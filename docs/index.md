@@ -12,7 +12,7 @@ U kunt een Bijbelverklaring op meerdere manieren gebruiken, bijvoorbeeld na iede
 
 Op deze website vind u 2 bijbelverklaringen vanuit geschreven vanuit een reformatorisch standpunt. 
 
-De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaring.
+De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaringen.
 
 ## Werk in uitvoering
 
