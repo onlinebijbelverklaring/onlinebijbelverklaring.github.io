@@ -1,7 +1,5 @@
 # Indeling van de Bijbel
 
-
-
 ## Oude Testament
 
 Oude Testament is de naam die de eerste christenen gaven aan de bundel joodse boeken die samen de Tenach vormen, de joodse bijbel. Een testament is een verbond, en de christenen wilden een duidelijk onderscheid maken tussen het Oude verbond (dat van God met de mensheid) en het Nieuwe (dat van Jezus met de mensheid). In zijn tweede brief aan de Korinthiërs maakt Paulus voor het eerst gewag van de term Oude Testament (2 Kor. 3:14).
