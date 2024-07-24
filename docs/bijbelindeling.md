@@ -7,7 +7,7 @@ hide:
 
 ## Oude Testament
 
-Oude Testament is de naam die de eerste christenen gaven aan de bundel joodse boeken die samen de Tenach vormen, de joodse bijbel. Een testament is een verbond, en de christenen wilden een duidelijk onderscheid maken tussen het Oude verbond (dat van God met de mensheid) en het Nieuwe (dat van Jezus met de mensheid). In zijn tweede brief aan de Korinthiërs maakt Paulus voor het eerst gewag van de term Oude Testament (2 Kor. 3:14).
+Oude Testament is de naam die de eerste christenen gaven aan de bundel joodse boeken die samen de Tenach vormen, de joodse bijbel. In zijn tweede brief aan de Korinthiërs spreekt Paulus voor het eerst van de term Oude Testament (2 Korinthe 3:14).
 
 In het Oude Testament wordt de geschiedenis van het joodse volk en van Israël beschreven. Centraal staat het exclusieve verdrag dat God met het joodse volk sluit. Dit verbond wordt twee maal aangegaan: via Noach na de zondvloed (Genesis 9:8-17), en via Mozes in de Sinaï (Exodus 19, 20 en 24).
 
@@ -17,7 +17,7 @@ De joodse Tenach bestond uit drie delen: de Thora (=wet, de vijf boeken van Moze
 
 De christenen besloten tot een indeling van soort bij soort: de boeken van Mozes, historische boeken, poëzie/geschriften en profeten. Op grond van de lengte van de boeken worden binnen de profeten de kortere boeken vaak aangeduid met kleine profeten.
 
-De rooms-katholieke Kerk rekent tot het Oude Testament ook de zgn. deutero-canonieke boeken Tobias, Judith, Wijsheid, Jezus Sirach, Baruch, 1 en 2 Makkabeeën en enkele hoofdstukken van Daniël en Esther. Protestanten beschouwen die boeken echter als apocrief, d.w.z. ze behoren niet tot de canon, zijn niet heilig.
+De rooms-katholieke Kerk rekent tot het Oude Testament ook de zgn. deutero-canonieke boeken Tobias, Judith, Wijsheid, Jezus Sirach, Baruch, 1 en 2 Makkabeeën en enkele hoofdstukken van Daniël en Esther. Protestanten beschouwen die boeken echter als apocrief, dat wil zeggen, ze behoren niet tot de canon, zijn niet heilig.
 
 === "Wet"
 
@@ -76,7 +76,7 @@ De rooms-katholieke Kerk rekent tot het Oude Testament ook de zgn. deutero-canon
 
 ## Nieuwe Testament
 
-Het tweede deel van de christelijke bijbel. Een testament is een verbond, en de eerste christenen wilden een duidelijk onderscheid maken tussen het Oude verbond (dat van God met de mensheid, via Noach en Mozes) en het Nieuwe (dat van Jezus met de mensheid). In het evangelie van Mattheüs wordt de term Nieuwe Testament geïntroduceerd, tijdens het Laatste Avondmaal (Matth. 26:28).
+Het tweede deel van de bijbel. Een testament is een verbond, en de eerste christenen wilden een duidelijk onderscheid maken tussen het Oude verbond en het Nieuwe verbond. In het evangelie van Mattheüs wordt de term Nieuwe Testament geïntroduceerd, tijdens het Laatste Avondmaal (Matth. 26:28).
 
 ### Indeling
 
