@@ -37,7 +37,8 @@ theme:
     - navigation.instant.prefetch
     - navigation.instant.progress
     # - navigation.expand
-    # - navigation.tabs.sticky
+   - navigation.tabs
+   - navigation.tabs.sticky
     - toc.follow
     # - search.suggest
     # - search.highligt
@@ -104,4 +105,6 @@ plugins:
 
 
 
-
+# Page tree
+nav:
+  - Home: index.md
