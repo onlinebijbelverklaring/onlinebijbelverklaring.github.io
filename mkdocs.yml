@@ -85,6 +85,7 @@ markdown_extensions:
   - pymdownx.details
   - pymdownx.superfences
   - pymdownx.mark
+  - pymdownx.critic
   - footnotes
   - attr_list
   - md_in_html
