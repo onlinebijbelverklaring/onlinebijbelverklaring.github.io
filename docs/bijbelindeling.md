@@ -2,136 +2,108 @@
 
 
 
-## Oude Testament
+### Oude Testament
 
-<table>
-  <tr>
-  	<th>Testament</th>
-    <th>Indeling</th>
-    <th>Bijbelboek</th>
-  </tr>
-  <tr>
-  	<td rowspan="39">Oude Testament</td>
-    <td rowspan="5">Wet</td>
-    <td>555-1234</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td rowspan="12">Geschiedenis</td>
-    <td>555-1234</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td rowspan="5">Geschriften</td>
-    <td>555-1234</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td rowspan="5">Grote Profeten</td>
-    <td>555-1234</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td rowspan="12">Kleine Profeten</td>
-    <td>555-1234</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-    <td>555-8745</td>
-  </tr>
-  <tr>
-</table>
+
+=== "Wet"
+
+    * Genesis
+    * Éxodus
+    * Leviticus
+    * Numeri
+    * Deuteronomium
+
+=== "Geschiedenis"
+
+    * Jozua
+    * Richteren
+    * Ruth
+    * 1 Samuël
+    * 2 Samuël
+    * 1 Koningen
+    * 2 Koningen
+    * 1 Kronieken
+    * 2 Kronieken
+    * Ezra
+    * Nehémia
+    * Esther
+
+=== "Geschriften"
+
+    * Job
+    * Psalmen
+    * Spreuken
+    * Prediker
+    * Hooglied
+
+=== "Grote Profeten"
+
+    * Jesaja
+    * Jeremía
+    * Klaagliederen
+    * Ezechiël
+    * Daniël
+
+=== "Kleine Profeten"
+
+    * Hoséa
+    * Joël
+    * Amos
+    * Obadja
+    * Jona
+    * Micha
+    * Nahum
+    * Hábakuk
+    * Zefánja
+    * Haggaï
+    * Zacharía
+    * Maleáchi
+
+
+
+
+
+
+#### Kleine Profeten
+Hoséa
+Joël
+Amos
+Obadja
+Jona
+Micha
+Nahum
+Hábakuk
+Zefánja
+Haggaï
+Zacharía
+Maleáchi
+
+
+### Nieuwe Testament
+Matthéüs
+Markus
+Lukas
+Johannes
+Handelingen
+Romeinen
+1 Korinthe
+2 Korinthe
+Galaten
+Éfeze
+Filipenzen
+Kolossenzen
+1 Thessalonicenzen
+2 Thessalonicenzen
+1 Timótheüs
+2 Timótheüs
+Titus
+Filémon
+Hebreeën
+Jakobus
+1 Petrus
+2 Petrus
+1 Johannes
+2 Johannes
+3 Johannes
+Judas
+Openbaring
