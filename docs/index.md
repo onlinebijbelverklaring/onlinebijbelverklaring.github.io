@@ -6,6 +6,18 @@ hide:
 
 # Bijbelverklaringen van Matthew Henry en Karl August Dächsel
 
+Bijbelverklaringen helpen u om bijbelteksten meer toegankelijk en begrijpelijker te maken. Deze verklaringen geven u meer context over bepaalde vertellingen uit de Bijbel. Bijbelverklaringen zijn niet alleen gemaakt voor dominees, maar voor iedereen.
+
+U kunt een Bijbelverklaring op meerdere manieren gebruiken, bijvoorbeeld na iedere kerkdienst. In een Bijbelverklaring kunt u opzoeken waar de dominee zojuist over heeft gepreekt en daarvan leren. Ook leent een Bijbelverklaring zich uitstekend voor Bijbelstudie. Door iedere dag een stukje te lezen en bestuderen krijgt u steeds meer inzicht tijdens het lezen van Gods Woord.
+
+Op deze website vind u 2 bijbelverklaringen vanuit geschreven vanuit een reformatorisch standpunt. 
+
+De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast is de gedrukte versie niet goedkoop en daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaring.
+
+## Werk in uitvoering
+
+Aan het online beschikbaar maken van de bijbelverklaringen wordt nog hard gewerkt. De verklaring van Matthew Henry zal media 2024 in de basis afgerond zijn. Media 2025 zal er worden gestart met de bijbelverklaring van Dachsel.
+
 
 <div class="grid cards" markdown>
 
