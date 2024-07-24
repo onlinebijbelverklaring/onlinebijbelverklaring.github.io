@@ -1,0 +1,60 @@
+{#-
+  This file was automatically generated - do not edit
+-#}
+{% if config.theme.icon.admonition %}
+  {% set style = ["\x3cstyle\x3e:root{"] %}
+  {% for type, icon in config.theme.icon.admonition.items() %}
+    {% import ".icons/" ~ icon ~ ".svg" as icon %}
+    {% set _ = style.append(
+      "--md-admonition-icon--" ~ type ~ ":" ~
+      "url('data:image/svg+xml;charset=utf-8," ~
+        icon | replace("\n", "") ~
+      "');"
+    ) %}
+  {% endfor %}
+  {% set _ = style.append("}\x3c/style\x3e") %}
+  {{ style | join }}
+{% endif %}
+{% if config.theme.icon.annotation %}
+  {% set style = ["\x3cstyle\x3e:root{"] %}
+  {% import ".icons/" ~ config.theme.icon.annotation ~ ".svg" as icon %}
+  {% set _ = style.append(
+    "--md-annotation-icon:" ~
+    "url('data:image/svg+xml;charset=utf-8," ~
+      icon | replace("\n", "") ~
+    "');"
+  ) %}
+  {% set _ = style.append("}\x3c/style\x3e") %}
+  {{ style | join }}
+{% endif %}
+{% if config.theme.icon.tag %}
+  {% set style = ["\x3cstyle\x3e"] %}
+  {% for type, icon in config.theme.icon.tag.items() %}
+    {% import ".icons/" ~ icon ~ ".svg" as icon %}
+    {% if type != "default" %}
+      {% set modifier = ".md-tag--" ~ type %}
+    {% endif %}
+    {% set _ = style.append(
+      ".md-tag" ~ modifier ~ "{" ~
+        "--md-tag-icon:" ~
+        "url('data:image/svg+xml;charset=utf-8," ~
+          icon | replace("\n", "") ~
+        "');" ~
+      "}"
+    ) %}
+  {% endfor %}
+  {% set _ = style.append("\x3c/style\x3e") %}
+  {{ style | join }}
+{% endif %}
+<link rel="icon" href="{{ config.theme.favicon | url }}">
+<link rel="apple-touch-icon" sizes="180x180" href="/apple-touch-icon.png">
+<link rel="icon" type="image/png" sizes="32x32" href="/favicon-32x32.png">
+<link rel="icon" type="image/png" sizes="16x16" href="/favicon-16x16.png">
+<link rel="manifest" href="/site.webmanifest">
+<link rel="mask-icon" href="/safari-pinned-tab.svg" color="#5bbad5">
+<meta name="msapplication-TileColor" content="#da532c">
+<meta property="og:title" content="{{ config.site_author }}" />
+<meta property="og:description" content="{{ config.site_description }}" />
+<meta property="og:image" content="assets/favicon.png" />
+<meta property="og:url" content="{{ page.canonical_url }}" />
+<meta name="keywords" content="bijbelverklaring, bijbel, matthew henry, online, verklaring, testament, OT, NT, oude testament, nieuwe testament">

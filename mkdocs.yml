@@ -1,0 +1,102 @@
+# Project information
+site_name: Onlinebijbelverklaring.nl
+site_url: http://onlinebijbelverklaring.nl/home/
+site_author: Onlinebijbelverklaring.nl
+site_description: >-
+  De volledige bijbelverklaringen van Matthew Henry en Karl August Dachsel online
+
+# Copyright
+copyright: |
+  Content van deze website is vrij van auteursrecht en is daardoor vrij te gebruiken en/of publiceren.
+  
+# Repository
+repo_url: https://github.com/onlinebijbelverklaring/home
+edit_uri: blob/main/docs/
+repo_name: onlinebijbelverklaring.github.io
+
+# Configuration
+theme:
+  font:
+    text: Montserrat
+  icon:
+    repo: fontawesome/brands/github
+    edit: material/playlist-edit
+    view: material/playlist-edit
+    logo: material/book-open-variant
+  favicon: assets/favicon.png
+  name: material
+  custom_dir: overrides
+  features:
+    - header.autohide
+    - navigation.path 
+    - navigation.indexes
+    - navigation.top
+    - navigation.footer
+    - navigation.tracking
+    - navigation.instant
+    - navigation.instant.prefetch
+    - navigation.instant.progress
+    # - navigation.expand
+    # - navigation.tabs.sticky
+    - toc.follow
+    # - search.suggest
+    # - search.highligt
+    # - search.share
+    - content.tabs.link
+    - content.code.annotatioin
+    - content.code.copy
+    - content.tooltips
+    # - content.action.edit
+    # - content.footnote.tooltips
+    # - content.code.select
+  language: nl
+  palette:
+     # Palette toggle for light mode
+    - media: "(prefers-color-scheme: light)"
+      scheme: default
+      primary: black
+      accent: indigo
+      toggle:
+        icon: material/weather-night
+        name: Donkere modus
+    # Palette toggle for dark mode
+    - media: "(prefers-color-scheme: dark)"
+      scheme: slate
+      primary: black
+      accent: indigo
+      toggle:
+        icon: material/weather-sunny
+        name: Lichte modus
+
+# Additional configuration
+extra:
+   analytics:
+    provider: google
+    property: G-2336KH3R5S-test
+
+# Markdown Extensions
+markdown_extensions:
+  - pymdownx.emoji:
+      emoji_index: !!python/name:material.extensions.emoji.twemoji 
+      emoji_generator: !!python/name:material.extensions.emoji.to_svg
+  - pymdownx.highlight:
+      linenums: true
+  - admonition
+  - pymdownx.details
+  - pymdownx.superfences
+  - pymdownx.mark
+  - footnotes
+  - attr_list
+  - md_in_html
+  - toc:
+      permalink: true
+
+
+
+plugins:
+  - search:
+      enabled: false
+
+
+
+
