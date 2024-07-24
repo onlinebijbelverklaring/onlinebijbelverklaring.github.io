@@ -1,3 +1,8 @@
+---
+hide:
+  - navigation
+---
+
 # Indeling van de Bijbel
 
 ## Oude Testament
