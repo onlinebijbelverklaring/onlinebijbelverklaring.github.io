@@ -17,7 +17,7 @@ Aan het online beschikbaar maken van de bijbelverklaringen wordt nog hard gewerk
 
 ## Bijbelverklaringen
 
-Op deze website vind u 2 bijbelverklaringen vanuit geschreven vanuit een reformatorisch standpunt. 
+Op deze website vind u 2 bijbelverklaringen geschreven vanuit een **reformatorisch** standpunt. 
 
 De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaringen.
 
@@ -39,7 +39,7 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
     ---
 
-    **24 november 1818 - 23 september 1901**<BR><BR>
+    **24 november 1818 - 23 september 1901** <BR><BR>
 
     Dächsel werd geboren in 1818 in een predikantenfamilie als zoon van Karl Dächsel (1790-1858) en Ernestine Kupfer (1792-1825). Hij studeerde Theologie aan de Universiteit van Leipzig. In 1847 wordt hij predikant te Hirschfeld. In 1852 vertrekt hij naar Hohenbocka en in 1858 naar het (tegenwoordig Poolse) Neusalz an der Oder.<BR><BR>
     
