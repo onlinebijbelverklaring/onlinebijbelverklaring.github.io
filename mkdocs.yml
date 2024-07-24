@@ -105,6 +105,7 @@ plugins:
 
 
 
-# Page tree
+# Navigation menu
 nav:
-  - Home: index.md
+  - Welkom: 'index.md'
+  - Bijbel indeling: 'bijbelindeling.md'
