@@ -8,11 +8,11 @@
   <tr>
   	<th>Testament</th>
     <th>Indeling</th>
-    <th>Bijbelboek</td>
+    <th>Bijbelboek</th>
   </tr>
   <tr>
-  	<th rowspan="39">Oude Testament</th>
-    <th rowspan="5">Wet</th>
+  	<td rowspan="39">Oude Testament</td>
+    <td rowspan="5">Wet</td>
     <td>555-1234</td>
   </tr>
   <tr>
@@ -28,7 +28,7 @@
     <td>555-8745</td>
   </tr>
   <tr>
-    <th rowspan="12">Geschiedenis</th>
+    <td rowspan="12">Geschiedenis</td>
     <td>555-1234</td>
   </tr>
   <tr>
@@ -65,7 +65,7 @@
     <td>555-8745</td>
   </tr>
   <tr>
-    <th rowspan="5">Geschriften</th>
+    <td rowspan="5">Geschriften</td>
     <td>555-1234</td>
   </tr>
   <tr>
@@ -81,7 +81,7 @@
     <td>555-8745</td>
   </tr>
   <tr>
-    <th rowspan="5">Grote Profeten</th>
+    <td rowspan="5">Grote Profeten</td>
     <td>555-1234</td>
   </tr>
   <tr>
@@ -97,7 +97,7 @@
     <td>555-8745</td>
   </tr>
   <tr>
-    <th rowspan="12">Kleine Profeten</th>
+    <td rowspan="12">Kleine Profeten</td>
     <td>555-1234</td>
   </tr>
   <tr>
