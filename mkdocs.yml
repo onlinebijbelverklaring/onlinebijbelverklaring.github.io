@@ -84,6 +84,8 @@ markdown_extensions:
   - admonition
   - pymdownx.details
   - pymdownx.superfences
+  - pymdownx.tabbed:
+      alternate_style: true
   - pymdownx.mark
   - pymdownx.critic
   - pymdownx.tilde

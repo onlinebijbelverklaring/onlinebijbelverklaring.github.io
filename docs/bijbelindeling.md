@@ -64,19 +64,6 @@
 
 
 
-#### Kleine Profeten
-Hoséa
-Joël
-Amos
-Obadja
-Jona
-Micha
-Nahum
-Hábakuk
-Zefánja
-Haggaï
-Zacharía
-Maleáchi
 
 
 ### Nieuwe Testament
