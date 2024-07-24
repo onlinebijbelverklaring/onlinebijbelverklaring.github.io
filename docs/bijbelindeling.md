@@ -5,15 +5,17 @@ hide:
 
 # Indeling van de Bijbel
 
-## Oude Testament
+Het is belangrijk dat om de indeling van de bijbel te kennen. De bijbelboeken staan niet zomaar in een bepaalde volgorde.
+
+## Oude Testament (OT)
 
 Oude Testament is de naam die de eerste christenen gaven aan de bundel joodse boeken die samen de Tenach vormen, de joodse bijbel. In zijn tweede brief aan de Korinthiërs spreekt Paulus voor het eerst van de term Oude Testament (2 Korinthe 3:14).
 
 In het Oude Testament wordt de geschiedenis van het joodse volk en van Israël beschreven. Centraal staat het exclusieve verdrag dat God met het joodse volk sluit. Dit verbond wordt twee maal aangegaan: via Noach na de zondvloed (Genesis 9:8-17), en via Mozes in de Sinaï (Exodus 19, 20 en 24).
 
-### Indeling
+### Indeling van de bijbelboeken 
 
-De joodse Tenach bestond uit drie delen: de Thora (=wet, de vijf boeken van Mozes), de Profeten (behalve de boeken door profeten ook die over profeten: Jozua, Richteren, Samuël en Koningen) en de Geschriften (een soort restcategorie met geschiedkundige werken, poëtische boeken en het profetische boek Daniël). Deze indeling volgt ruwweg de canoniseringsgeschiedenis ervan.
+De joodse Tenach bestond uit drie delen: de Thora (=wet, de vijf boeken van Mozes), de Profeten (behalve de boeken door profeten ook die over profeten: Jozua, Richteren, Samuël en Koningen) en de Geschriften (een soort restcategorie met geschiedkundige werken, poëtische boeken en het profetische boek Daniël). 
 
 De christenen besloten tot een indeling van soort bij soort: de boeken van Mozes, historische boeken, poëzie/geschriften en profeten. Op grond van de lengte van de boeken worden binnen de profeten de kortere boeken vaak aangeduid met kleine profeten.
 
@@ -74,11 +76,11 @@ De rooms-katholieke Kerk rekent tot het Oude Testament ook de zgn. deutero-canon
     * Maleáchi
 
 
-## Nieuwe Testament
+## Nieuwe Testament (NT)
 
 Het tweede deel van de bijbel. Een testament is een verbond, en de eerste christenen wilden een duidelijk onderscheid maken tussen het Oude verbond en het Nieuwe verbond. In het evangelie van Mattheüs wordt de term Nieuwe Testament geïntroduceerd, tijdens het Laatste Avondmaal (Matth. 26:28).
 
-### Indeling
+### Indeling van de bijbelboeken
 
 De boeken van het Nieuwe Testament worden net als die van het Oude Testament soort bij soort geordend, en dus niet naar ouderdom. Eerst de vier evangeliën, waarin het leven en de leer van Jezus beschreven worden, en de Handelingen der apostelen. Daarna een reeks brieven: eerst die van Paulus aan christelijke gemeenschappen en leerlingen, vervolgens de serie algemene brieven. Het laatste deel bestaat uit één boek, Openbaring.
 
