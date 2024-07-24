@@ -2,8 +2,7 @@
 
 
 
-### Oude Testament
-
+## Oude Testament
 
 === "Wet"
 
@@ -60,37 +59,48 @@
     * Maleáchi
 
 
-
-
-
-
-
-
 ### Nieuwe Testament
-Matthéüs
-Markus
-Lukas
-Johannes
-Handelingen
-Romeinen
-1 Korinthe
-2 Korinthe
-Galaten
-Éfeze
-Filipenzen
-Kolossenzen
-1 Thessalonicenzen
-2 Thessalonicenzen
-1 Timótheüs
-2 Timótheüs
-Titus
-Filémon
-Hebreeën
-Jakobus
-1 Petrus
-2 Petrus
-1 Johannes
-2 Johannes
-3 Johannes
-Judas
-Openbaring
+
+=== "Evangelien"
+
+    * Matthéüs
+    * Markus
+    * Lukas
+    * Johannes
+    * Handelingen
+
+=== "Geschiedenis"
+
+    * Handelingen
+
+=== "Brieven van Paulus"
+
+    * Romeinen
+    * 1 Korinthe
+    * 2 Korinthe
+    * Galaten
+    * Éfeze
+    * Filipenzen
+    * Kolossenzen
+    * 1 Thessalonicenzen
+    * 2 Thessalonicenzen
+    * 1 Timótheüs
+    * 2 Timótheüs
+    * Titus
+    * Filémon
+
+=== "Algemen Brieven"
+
+    * Hebreeën
+    * Jakobus
+    * 1 Petrus
+    * 2 Petrus
+    * 1 Johannes
+    * 2 Johannes
+    * 3 Johannes
+    * Judas
+
+=== "Profetie"
+
+    * Openbaring
+
