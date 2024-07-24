@@ -19,6 +19,8 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 Aan het online beschikbaar maken van de bijbelverklaringen wordt nog hard gewerkt. De verklaring van Matthew Henry zal media 2024 in de basis afgerond zijn. Media 2025 zal er worden gestart met de bijbelverklaring van Dachsel.
 
 
+## Bijbelverklaringen
+
 <div class="grid cards" markdown>
 
 -   :flag_gb:{ .lg .middle } __Matthew Henry__
