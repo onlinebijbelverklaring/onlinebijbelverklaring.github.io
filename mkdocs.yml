@@ -109,3 +109,4 @@ plugins:
 nav:
   - Welkom: 'index.md'
   - Bijbel indeling: 'bijbelindeling.md'
+  - Voortgang: 'voortgang.md'
