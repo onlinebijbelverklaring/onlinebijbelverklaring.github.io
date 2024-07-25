@@ -10,4 +10,4 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
 ## Bijdagen?
 Wil je meehelpen? Dat wordt zeer gewaardeerd.
-Fork een repo, en creeer een pull request (GitHub account vereist).
+Stuur een mail naar: onlinebijbelverklaring.nl@outlook.com
