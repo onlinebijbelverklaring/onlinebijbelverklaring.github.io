@@ -9,4 +9,5 @@ Op deze GitHub vind u 2 repositories van bijbelverklaringen geschreven vanuit ee
 De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaringen.
 
 ## Bijdagen?
-Stuur een berichtje op deze GitHub (account vereist)
+Wil je meehelpen? Dat wordt zeer gewaardeerd.
+Fork een repo, en creeer een pull request (GitHub account vereist).
