@@ -47,6 +47,7 @@ In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring
 <label for="file">Voortgang fase 2: 0/66 Bijbelboeken</label><progress id="file" value="0" max="66" style="width:80%; height:25px;"></progress> 
 
 
+## Bijdragen?
 
 !!! question "Bijdragen?"
-    Het online zetten van deze bijbelverklaring kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie. 
+    Het online zetten van deze bijbelverklaring kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie of stuur een email naar: [onlinebijbelverklaring.nl@outlook.com](onlinebijbelverklaring.nl@outlook.com)
