@@ -3,7 +3,7 @@ hide:
   - toc
 ---
 
-# De volledige bijbelverklaring van Karl August Dachsel online
+# De volledige bijbelverklaring van Karl August Dachsel
 
 K. A. Dachsel werd geboren Naumburg, 24 nov. 1818, overleden Steinkirche 23 sept. 1901. Hij was een Duits predikant en auteur van een bekende en wijdverspreide Bijbelverklaring, 'nach der deutschen Übersetzung Dr. Martin Luthers, mit in den Text eingeschalteter Auslegung.'
 
