@@ -102,7 +102,12 @@ markdown_extensions:
 
 plugins:
   - search:
-      enabled: false
+      enabled: true
+  - git-revision-date-localized:
+      enable_creation_date: true
+      type: date
+      timezone: Europe/Amsterdam
+      locale: nl
 
 
 
