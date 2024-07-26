@@ -115,9 +115,9 @@ nav:
   - Bijbelverklaringen:
     - Matthew Henry: https://onlinebijbelverklaring.nl/henry
     - Karl August Dachsel: https://onlinebijbelverklaring.nl/dachsel
-  - Matthew Henry: henry/index.md
-    - Levensschets: henry/levensschets.md
-    - Voorrede: henry/voorrede.md
+  - Matthew Henry: matthewhenry/index.md
+    - Levensschets: matthewhenry/levensschets.md
+    - Voorrede: matthewhenry/voorrede.md
 #    - Oude Testament:
 #      - tutorials/index.md
 #      - "Genesis":
