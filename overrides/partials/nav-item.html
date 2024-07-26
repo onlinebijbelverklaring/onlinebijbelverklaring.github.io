@@ -53,6 +53,7 @@
           {% endif %}
         {% endfor %}
       {% endif %}
+      {% if "navigation.tabs" in features %}
         {% if "navigation.sections" in features %}
           {% if level == 2 and nav_item.parent.active %}
             {% set class = class ~ " md-nav__item--section" %}
