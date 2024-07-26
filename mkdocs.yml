@@ -37,20 +37,20 @@ theme:
     - navigation.sections
     - navigation.instant.prefetch
     - navigation.instant.progress
-    # - navigation.expand
+#    - navigation.expand
 #    - navigation.tabs
     - navigation.tabs.sticky
     - toc.follow
-    # - search.suggest
-    # - search.highligt
-    # - search.share
+    - search.suggest
+    - search.highligt
+#    - search.share
     - content.tabs.link
     - content.code.annotatioin
     - content.code.copy
     - content.tooltips
-    # - content.action.edit
-    # - content.footnote.tooltips
-    # - content.code.select
+    - content.action.edit
+#    - content.footnote.tooltips
+#    - content.code.select
   language: nl
   palette:
      # Palette toggle for light mode
@@ -1448,6 +1448,6 @@ nav:
     - Inleiding: karlaugustdachsel/index.md
 #    - Levensschets: matthewhenry/levensschets.md
 #    - Voorrede: matthewhenry/voorrede.md
-    - Oude Testament:
-      - Genesis:
-        - Genesis: matthewhenry/Genesis/index.md
+#    - Oude Testament:
+#      - Genesis:
+#        - Genesis: matthewhenry/Genesis/index.md
