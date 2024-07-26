@@ -115,3 +115,6 @@ nav:
   - Bijbelverklaringen:
     - Matthew Henry: https://onlinebijbelverklaring.nl/henry
     - Karl August Dachsel: https://onlinebijbelverklaring.nl/dachsel
+  - Test: 
+    - Genesis: index.md
+      - Genesis 1: index.md
