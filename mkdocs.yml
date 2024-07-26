@@ -114,6 +114,8 @@ nav:
     - Voortgang: voortgang.md
   - Matthew Henry:
     - Inleiding: matthewhenry/index.md
+    - Levensschets: matthewhenry/levensschets.md
+    - Voorrede: matthewhenry/voorrede.md
     - Oude Testament:
       - Genesis:
         - Genesis: matthewhenry/Genesis/index.md
@@ -313,7 +315,6 @@ nav:
         - Deuteronomium 33: matthewhenry/Deuteronomium/Deuteronomium33/index.md
         - Deuteronomium 34: matthewhenry/Deuteronomium/Deuteronomium34/index.md
     - Nieuwe Testament:
-      - tutorials/index.md
       - Genesis:
         - tutorials/blogs/basic.md
         - tutorials/blogs/navigation.md
