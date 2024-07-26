@@ -45,4 +45,4 @@ In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring
 ## Bijdragen?
 
 !!! question "Bijdragen?"
-    Het online zetten van deze bijbelverklaring kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie of stuur een email naar: [onlinebijbelverklaring.nl@outlook.com](onlinebijbelverklaring.nl@outlook.com)
+    Het online zetten van deze bijbelverklaring kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie of stuur een email naar: [onlinebijbelverklaring.nl@outlook.com](mailto:onlinebijbelverklaring.nl@outlook.com)
