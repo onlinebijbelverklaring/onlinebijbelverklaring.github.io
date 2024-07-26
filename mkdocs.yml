@@ -114,7 +114,6 @@ nav:
     - Voortgang: voortgang.md
   - Matthew Henry:
     - Oude Testament:
-      - tutorials/index.md
       - Genesis:
         - Genesis: matthewhenry/Genesis/index.md
         - Genesis 1: matthewhenry/Genesis/Genesis1/index.md
