@@ -3,9 +3,9 @@ hide:
   - toc
 ---
 
-# De volledige bijbelverklaring van Matthew Henry online
+# De volledige bijbelverklaring van Matthew Henry
 
-Welkom op de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
+Of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
 Voor deze online versie is gebruikt de uitgave van J. H. Kok te Kampen de tweede druk uit 1912. Deze uitgave is opnieuw uit het Engels vertaald door Dr. H. Bavinck. Zijn voorrede is ook online beschikbaar gemaakt.
 
