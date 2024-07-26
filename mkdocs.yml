@@ -109,9 +109,9 @@ plugins:
 # Navigation menu
 nav:
   - Welkom:
-    - Welkom: 'index.md'
-    - Bijbel indeling: 'bijbelindeling.md'
-    - Voortgang: 'voortgang.md'
+    - Welkom: index.md
+    - Bijbel indeling: bijbelindeling.md
+    - Voortgang: voortgang.md
   - Bijbelverklaringen:
-    - Test: "https://onlinebijbelverklaring.nl/henry"
-    - Test: "https://onlinebijbelverklaring.nl/dachsel"
+    - Matthew Henry: https://onlinebijbelverklaring.nl/henry
+    - Karl August Dachsel: https://onlinebijbelverklaring.nl/dachsel
