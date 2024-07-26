@@ -39,6 +39,7 @@ theme:
     - navigation.instant.progress
 #    - navigation.expand
     - navigation.tabs
+    - navigation.prune
     - navigation.tabs.sticky
     - toc.follow
     - search.suggest
