@@ -1,8 +1,3 @@
----
-hide:
-  - navigation
----
-
 # Voortgang beschikbaarheid
 
 Het online beschikbaar maken van de bijbelverklaringen is veel werk. Hieronder kan je de voortgang per bijbelverklaring volgen.

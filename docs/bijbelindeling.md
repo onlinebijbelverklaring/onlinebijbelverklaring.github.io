@@ -1,8 +1,3 @@
----
-hide:
-  - navigation
----
-
 # Indeling van de Bijbel
 
 Het is belangrijk dat om de indeling van de bijbel te kennen. De bijbelboeken staan niet zomaar in een bepaalde volgorde.
