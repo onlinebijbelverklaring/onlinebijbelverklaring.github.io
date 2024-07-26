@@ -116,13 +116,13 @@ nav:
     - Matthew Henry: https://onlinebijbelverklaring.nl/henry
     - Karl August Dachsel: https://onlinebijbelverklaring.nl/dachsel
   - Matthew Henry: 
-    - Inleiding: matthewhenry/levensschets.md
+    - Inleiding: matthewhenry/index.md
     - Levensschets: matthewhenry/levensschets.md
     - Voorrede: matthewhenry/voorrede.md
     - Oude Testament:
 #      - tutorials/index.md
-#      - "Genesis":
-#        - tutorials/blogs/basic.md
+      - Genesis:
+        - matthewhenry/Genesis/Genesis1/basic.md
 #        - tutorials/blogs/navigation.md
 #        - tutorials/blogs/engage.md
 #      - "Exodus":
