@@ -108,6 +108,10 @@ plugins:
 
 # Navigation menu
 nav:
-  - Welkom: 'index.md'
-  - Bijbel indeling: 'bijbelindeling.md'
-  - Voortgang: 'voortgang.md'
+  - Welkom:
+    - Welkom: 'index.md'
+    - Bijbel indeling: 'bijbelindeling.md'
+    - Voortgang: 'voortgang.md'
+  - Bijbelverklaringen:
+    - Test: "https://onlinebijbelverklaring.nl/henry"
+    - Test: "https://onlinebijbelverklaring.nl/dachsel"
