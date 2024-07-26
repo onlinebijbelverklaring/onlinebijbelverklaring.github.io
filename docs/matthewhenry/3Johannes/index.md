@@ -1,0 +1,3 @@
+## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN DE DERDE BRIEF VAN de APOSTEL JOHANNES.
+
+In dezen brief wordt de Christelijke gemeenschap geoefend en aanbevolen. De Christenen behoren zich aan te bevelen door het praktische bewijs van hun belijdende onderwerping aan het Evangelie van Christus. Het aanmoedigende en leerrijke van het gedrag van edelmoedige en openbaarhandelende personen heeft op velen goeden invloed. Omdat te bevorderen zendt de apostel dezen opwekkende brief aan zijn vriend Gajus; in welken hij zich beklaagt over de juist tegenovergestelde geest en handel van een zekeren dienaar, en bevestigt de goede mededelingen omtrent een anderen, die meer waar is nagevolgd te worden. 

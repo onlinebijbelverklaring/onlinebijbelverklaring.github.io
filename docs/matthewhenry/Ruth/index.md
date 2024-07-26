@@ -1,0 +1,12 @@
+## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK RUTH
+
+Deze korte geschiedenis van de huiselijke aangelegenheden van een particulier gezin volgt gevoeglijk op het boek der Richteren daar de gebeurtenissen, hier verhaald, plaatshadden in de dagen der Richteren en zij gaat ook gevoeglijk aan de boeken van Samuel vooraf, omdat aan het einde er van David ingeleid wordt. De Joden scheiden het echter in hun Bijbels van beide deze boeken, en maken het tot een van de vijf megilloth, of rollen, die zij aan het einde bij elkaar plaatsen, en wel in deze volgorde: Het Hooglied, Ruth, de Klaagliederen, de Prediker, en Esther. Het is waarschijnlijk dat Samuel de schrijver is van dit boek. Het verhaalt geen wonderen of wetten, geen oorlogen en overwinningen, geen staatsomwentelingen, maar eerst de beproeving, en daarna de vertroosting van Naomi, eerst de bekering en daarna de verhoging van Ruth. Veel zulke gebeurtenissen zijn voorgevallen, die wij misschien even waardig vinden om vermeld te worden. Maar God oordeelde het goed en gepast dat deze ter onzer kennis zou gebracht worden, en zelfs gewone geschiedschrijvers achten zich vrij om hun onderwerp te kiezer. Het doel van dit boek is:
+
+I. Ons te wijzen op Gods voorzienigheid, ons te tonen hoe zij bekend is met onze bijzondere aangelegenheden, en ons te leren om in alles het oog op haar gericht te houden, God te erkennen in al onze wegen, en in alle gebeurtenissen, die ons betreffen. Zie 1 Samuel 2:7, 8; Psalm 113:7-9.  
+II. Ons tot Christus te leiden, die van Ruth afstamde; een gedeelte van Zijn stamboom eindigt dit boek, vanwaar het overgebracht is in Mattheüs.   
+1\. In de bekering van Ruth de Moabietische en hare vermelding in de geslachtslijst van de Messias hebben wij een type van de roeping der heidenen ter bestemder tijd, tot de gemeenschap van Christus Jezus onzen Heere.  
+Van de beproeving van Naomi en Ruth hebben wij een bericht in Hoofdstuk 1.   
+Voorbeelden van hare naarstigheid en nederigheid in hoofdstuk 2.   
+Haar in verwantschap komen met Boaz in Hoofdstuk 3.   
+Haar gelukkige vestiging hierdoor in Hoofdstuk 4.  
+En laat ons ons herinneren dat het toneel der gebeurtenis Bethlehem is, de stad waarin onze Verlosser is geboren.  
