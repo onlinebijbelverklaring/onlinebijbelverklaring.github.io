@@ -119,10 +119,10 @@ nav:
     - Oude Testament:
       - tutorials/index.md
       - "Genesis":
-        - matthewhenry/Genesis/index.md
-        - matthewhenry/Genesis/Genesis1/index.md
-        - matthewhenry/Genesis/Genesis2/index.md
-        - matthewhenry/Genesis/Genesis3/index.md
+        - Genesis: matthewhenry/Genesis/index.md
+        - Genesis 1: matthewhenry/Genesis/Genesis1/index.md
+        - Genesis 2: matthewhenry/Genesis/Genesis2/index.md
+        - Genesis 3: matthewhenry/Genesis/Genesis3/index.md
       - "Exodus":
         - tutorials/social/basic.md
         - tutorials/social/custom.md
