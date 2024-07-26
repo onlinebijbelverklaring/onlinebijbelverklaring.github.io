@@ -3,7 +3,7 @@ site_name: Onlinebijbelverklaring.nl
 site_url: https://onlinebijbelverklaring.nl
 site_author: Onlinebijbelverklaring.nl
 site_description: >-
-  De volledige bijbelverklaringen van Matthew Henry en Karl August Dachsel online
+  De volledige bijbelverklaringen van Matthew Henry en Karl August Dächsel online
 
 # Copyright
 copyright: |
@@ -1444,7 +1444,7 @@ nav:
         - Openbaring 20: matthewhenry/Openbaring/Openbaring20/index.md
         - Openbaring 21: matthewhenry/Openbaring/Openbaring21/index.md
         - Openbaring 22: matthewhenry/Openbaring/Openbaring22/index.md
-  - Karl August Dachsel:
+  - Karl August Dächsel:
     - Inleiding: karlaugustdachsel/index.md
 #    - Levensschets: matthewhenry/levensschets.md
 #    - Voorrede: matthewhenry/voorrede.md

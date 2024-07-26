@@ -9,11 +9,6 @@ Bijbelverklaringen helpen u om bijbelteksten meer toegankelijk en begrijpelijker
 
 U kunt een Bijbelverklaring op meerdere manieren gebruiken, bijvoorbeeld na iedere kerkdienst. In een Bijbelverklaring kunt u opzoeken waar de dominee zojuist over heeft gepreekt en daarvan leren. Ook leent een Bijbelverklaring zich uitstekend voor Bijbelstudie. Door iedere dag een stukje te lezen en bestuderen krijgt u steeds meer inzicht tijdens het lezen van Gods Woord.
 
-## Werk in uitvoering!
-
-Aan het online beschikbaar maken van de bijbelverklaringen wordt nog hard gewerkt. De verklaring van Matthew Henry zal media 2024 in de basis afgerond zijn. Media 2025 zal er worden gestart met de bijbelverklaring van Dachsel. 
-
-
 ## Bijbelverklaringen
 
 Op deze website vind u 2 bijbelverklaringen geschreven vanuit een ^^Reformatorisch standpunt^^. 
