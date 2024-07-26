@@ -119,7 +119,7 @@ nav:
     - Oude Testament:
       - tutorials/index.md
       - "Genesis":
-        - tutorials/blogs/basic.md
+        - matthewhenry/Genesis/Genesis1/index.md
         - tutorials/blogs/navigation.md
         - tutorials/blogs/engage.md
       - "Exodus":
