@@ -115,10 +115,8 @@ nav:
   - Bijbelverklaringen:
     - Matthew Henry: https://onlinebijbelverklaring.nl/henry
     - Karl August Dachsel: https://onlinebijbelverklaring.nl/dachsel
-  - Matthew Henry: 
-    - Levensschets: matthewhenry/levensschets.md
-    - Voorrede: matthewhenry/voorrede.md
-    - Oude Testament:
+#  - Matthew Henry:
+#    - Oude Testament:
 #      - tutorials/index.md
 #      - "Genesis":
 #        - tutorials/blogs/basic.md
@@ -127,7 +125,7 @@ nav:
 #      - "Exodus":
 #        - tutorials/social/basic.md
 #        - tutorials/social/custom.md
-    - Nieuwe Testament:
+#    - Nieuwe Testament:
 #      - tutorials/index.md
 #      - "Genesis":
 #        - tutorials/blogs/basic.md
@@ -139,11 +137,11 @@ nav:
 #  - Karl August Dachsel:
 #    - Oude Testament:
 #      - tutorials/index.md
-#      - Genesis:
+#      - "Genesis":
 #        - tutorials/blogs/basic.md
 #        - tutorials/blogs/navigation.md
 #        - tutorials/blogs/engage.md
-#      - Exodus:
+#      - "Exodus":
 #        - tutorials/social/basic.md
 #        - tutorials/social/custom.md
 #    - Nieuwe Testament:
