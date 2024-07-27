@@ -21,7 +21,7 @@ II. Hij dreigt met de oordelen Gods tegen de zodanigen, vers 3, 4.
 III. Hij klaagt over zijn boze naburen, die twistziek en kwellend waren, vers 5-7.  
 Bij het zingen van deze psalm kunnen we ons, als wij te eniger tijd onrechtvaardig de gesel gevoelen van de valse tong, er mee troosten, dat beteren dan we zijn er onder geleden hebben.
 
-## ## Psalm 120:1-4 
+## Psalm 120:1-4 
 Hier is:
 
 1\. Verlossing van een valse tong, verkregen door het gebed. David vermeldt zijn eigen ervaring hiervan.

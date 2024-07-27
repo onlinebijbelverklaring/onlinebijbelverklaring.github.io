@@ -9,7 +9,7 @@
 
 Het was in betrekking tot een grote en verbazingwekkende verlossing van Gods volk uit dienstbaarheid en verdrukking, dat deze psalm geschreven werd waarschijnlijk na hun terugkomst uit de Babylonische gevangenschap in de tijd van Ezra. Hoewel Babel hier niet genoemd is, zoals het in Psalm 137 genoemd is, was hun gevangenschap aldaar de merkwaardigste gevangenschap, zowel op zichzelve beschouwd, alsook omdat hun terugkeer er uit een afschaduwing is van onze verlossing door Christus. Hij is waarschijnlijk geschreven door Ezra, of door een van de profeten, die met de eersten waren opgetogen. Wij lezen van zangers uit de kinderen van Asaf, de vermaarde psalmist, die toen was teruggekeerd, Ezra 2:41. Daar het een lied van de opgangen is, waarin dezelfde dingen tweemaal herhaald worden met opklimming, vers 2, 3, is hij hier geplaatst onder de andere psalmen, die dit opschrift hebben.
 
-I. Zij die uit de gevangenschap terug waren gekomen worden hier opgeroepen om dankbaar te zijn, vers 1-3. 
+I. Zij die uit de gevangenschap terug waren gekomen worden hier opgeroepen om dankbaar te zijn, vers 1-3.  
 II. Voor hen, die nog in gevangenschap waren gebleven, wordt hier gebeden, vers 4, en zij worden bemoedigd, vers 5, 6.  
 Als wij deze psalm zingen, zal het gemakkelijk wezen om hem toe te passen hetzij op een bijzondere verlossing, gewerkt voor de kerk, of voor ons eigen land, of op het grote werk van onze verlossing door Christus.
 
