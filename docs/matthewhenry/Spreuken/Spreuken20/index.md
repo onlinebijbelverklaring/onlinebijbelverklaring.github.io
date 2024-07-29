@@ -31,6 +31,7 @@
 
 ## Spreuken 20:1 
 1\. Hier is het kwaad van de dronkenschap. De wijn is een spotter, de sterke drank is woelachtig. Dat is hij voor de zondaar zelf, hij bespot hem, maakt hem tot een dwaas, belooft hem een voldoening, die hij hem nooit geven kan, eerst lokt hij hem aan, maar in zijn einde zal hij bijten, hij woelt en woedt in zijn geweten bij het nadenken er over, hij woelt en woedt in zijn lichaam en brengt er de vochten tot gisting. Als de wijn er in is, is het verstand er uit, zegt het spreekwoord, en dan is de mens, al naar zijn aard is, hij zal of spotten als een dwaas, of woeden als een waanzinnige. Dronkenschap, die voorgeeft iets gezelligs te zijn, maakt de mensen ongeschikt voor gezelschap, want zij maakt hen beledigend met hun tong, en gewelddadig in hun hartstochten, Hoofdstuk 23:29. 
+
 2\. Hieruit is de dwaasheid van de dronkaards gemakkelijk af te leiden. Wie er in dwaalt wie zich laat verlokken tot die zonde als hij toch zo duidelijk gewaarschuwd is voor de gevolgen ervan, is niet wijs, hij toont geen recht besef of begrip te hebben van de dingen, en dat niet alleen, maar hij maakt zich ongeschikt om wijs te worden, want het is een zonde, die de mensen verstompt en verdwaast, hun hart wegneemt. Een dronkaard is een dwaas, en een dwaas zal hij waarschijnlijk blijven.
 
 ## Spreuken 20:2 

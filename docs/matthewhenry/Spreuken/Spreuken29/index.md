@@ -124,7 +124,7 @@ c. Het volk is lui en ledig, of zij spelen, zoals scholieren doen als de onderwi
 d. Ze zijn verstrooid als schapen, die geen herder hebben, omdat er geen meesters zijn van de verzamelingen om hen bijeen te roepen en bijeen te houden, Markus 6:34. Zij zijn verstrooid van God en van hun plicht door afval, van elkaar door verdeeldheden, God wordt ertoe gebracht hen te verstrooien door Zijn oordelen 2 Kronieken 15:3, 5.
 e. Ze komen om, zij zijn uitgeroeid, omdat zij zonder kennis zijn, Hoséa 4:6. Zie hoeveel reden wij hebben om dankbaar te zijn aan God voor het openbaar gezicht, dat onder ons is.
 
-2. Het geluk van een volk, dat niet slechts een vaste evangeliebediening heeft, maar een voorspoedige, het volk, dat de wet hoort en bewaart, onder hetwelk de godsdienst bovenaan staat, welgelukzalig is zo’n volk en ieder afzonderlijk persoon onder hen. Het is niet het hebben van de wet, maar het gehoorzamen er aan, en het leven in overeenstemming ermede dat ons aanspraak geeft op welgelukzaligheid.
+2\. Het geluk van een volk, dat niet slechts een vaste evangeliebediening heeft, maar een voorspoedige, het volk, dat de wet hoort en bewaart, onder hetwelk de godsdienst bovenaan staat, welgelukzalig is zo’n volk en ieder afzonderlijk persoon onder hen. Het is niet het hebben van de wet, maar het gehoorzamen er aan, en het leven in overeenstemming ermede dat ons aanspraak geeft op welgelukzaligheid.
 
 ## Spreuken 29:19 
 Hier is de beschrijving van een onnutten luie, boze dienstknecht, een slaaf, die niet gewetenshalve of uit liefde dient, maar zuiver en alleen uit vrees. Laat hen, die zulke dienstknechten hebben, zich wapenen met geduld, om de kwelling te dragen, en er zich niet om ontroeren. Zie hier hun aard.

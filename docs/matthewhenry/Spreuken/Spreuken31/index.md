@@ -30,6 +30,7 @@
 30. Schin. De bevalligheid is bedrog, en de schoonheid ijdelheid, maar een vrouw die den HEERE vreest, die zal geprezen worden.
 31. Thau. Geeft haar van de vrucht harer handen, en laat haar werken haar prijzen in de poorten.
 
+## Inleiding
 Dit hoofdstuk is aan Salomo’s Spreuken toegevoegd, omdat het, naar sommigen denken, van dezelfde schrijver is, veronderstellende dat koning Lemuël koning Salomo is, anderen alleen omdat het van dezelfde aard is, hoewel in geschrift nagelaten door een andere auteur, Lemuël genaamd. Hoe dit nu zij, het is een profetie, en daarom ingegeven en bestuurd door God, onder welke ingeving Lemuël zich bevond bij het schrijven ervan, en het brengen ervan in deze vorm, terwijl zijn moeder er hem de stof voor dicteerde. 
 Hier is:
 

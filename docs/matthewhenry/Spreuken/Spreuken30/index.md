@@ -32,6 +32,8 @@
 32. Zo gij dwaselijk gehandeld hebt met u te verheffen, en zo gij kwaad bedacht hebt: de hand op den mond!
 33. Want de drukking der melk brengt boter voort, en de drukking van den neus brengt bloed voort, en de drukking des toorns brengt twist voort.
 
+## Inleiding
+
 Dit en het volgende hoofdstuk vormen een aanhangsel van Salomo’s Spreuken, maar beide worden uitdrukkelijk in het eerste vers van beide, "Profetieën" genoemd, waaruit blijkt dat de schrijvers, wie zij ook geweest mogen zijn door de Geest Gods gedreven werden. Dit hoofdstuk werd geschreven door iemand, die de naam draagt van AGUR BEN JAKE. Van welke stam hij was, of wanneer hij leefde, wordt ons niet meegedeeld, wat hij schreef ingegeven zijnde door de Heilige Geest, is hier geregistreerd. Wij hebben hier:
 
 I. Zijn geloofsbelijdenis vers 1-6.  
