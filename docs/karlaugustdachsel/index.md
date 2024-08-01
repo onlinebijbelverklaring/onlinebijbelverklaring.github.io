@@ -15,6 +15,8 @@ Zijn Bijbelverklaring schreef hij in zeven delen tussen 1862 en 1880. Als opzet 
 
 Op dit moment wordt er nog niet gewerkt aan het online zetten van deze bijbelverklaring. Het is de bedoeling om hier medio 2025 mee te starten.
 
-Momenteel wordt er hard gewerkt om de bijbelverklaring van Matthew Henry af te ronden.
+Momenteel wordt er hard gewerkt om de bijbelverklaring van Matthew Henry af te ronden. 
+
+Genesis 1 is een voorbeeld van hoe de bijbelverklaring mogelijk zal worden weergegeven.
 
 Wilt u de bijbelverklaring lezen in PDF formaat? Kijk op: [https://theologienet.nl/auteurs/dachsel-karl-august/](https://theologienet.nl/auteurs/dachsel-karl-august/) 
