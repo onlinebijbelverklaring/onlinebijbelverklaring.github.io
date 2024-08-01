@@ -45,7 +45,8 @@ I. Hiskia’s vrome verontwaardiging over Rabsaké’s goddeloze rede, vers 1.
 II. zijn vriendelijke boodschap aan Jesaja om zijn gebed te verzoeken, vers 2-5.  
 III. Het bemoedigende antwoord dat Jesaja hem zond in de naam van God hem de verzekering gevende dat God zult zaak zou voorstaan tegen de koning van Assyrië, vers 6, 7.  
 IV. Een beledigende brief, die de koning van Assyrië zond aan Hiskia, waarvan doel en inhoud gelijk waren aan Rabsaké’s rede, vers 8-13.   
-V. Hiskia’s ootmoedig gebed tot God na de ontvangst van deze brief, vers 14-20. VI. Het nadere en volledige antwoord, dat God hem zond door Jesaja, hem belovende dat zijn zaken weldra een gelukkigen keer zullen nemen de storm voorbij zal gaan, en alles een kalm en helder aanzien zal krijgen, vers 21-35.  
+V. Hiskia’s ootmoedig gebed tot God na de ontvangst van deze brief, vers 14-20.  
+VI. Het nadere en volledige antwoord, dat God hem zond door Jesaja, hem belovende dat zijn zaken weldra een gelukkigen keer zullen nemen de storm voorbij zal gaan, en alles een kalm en helder aanzien zal krijgen, vers 21-35.  
 VII. De onmiddellijke vervulling van deze profetie in de ondergang van het Assyrische leger, vers 36, en de moord aan hem zelf gepleegd, vers 37, 38. Over dit alles is uitvoerig gesproken bij de verklaring van 2 Koningen 19. 
 
 ## Jesaja 37:1-7 

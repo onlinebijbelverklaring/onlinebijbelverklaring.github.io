@@ -31,7 +31,7 @@ I. De grote benauwdheid, waarin Juda en Jeruzalem komen zullen, vers 7-9.
 II. De bijzondere angst, waarin de zondaren in Sion zullen verkeren, vers 13, 14.  
 III. De gebeden van de Godvruchtigen tot God in deze benauwdheid, vers 2.   
 IV. De heilige gerustheid, die zij zullen smaken te midden van die benauwdheid, vers 15, 16.  
-V. De verdelging van het Assyrische leger, vers 1, waarin God grotelijks verheerlijkt zal worden, vers 5, 10 – 12.  
+V. De verdelging van het Assyrische leger, vers 1, waarin God grotelijks verheerlijkt zal worden, vers 5, 10-12.  
 VI. De verrijking van de Joden met de buit uit het Assyrische legerkamp, vers 4, 23, 24.  
 VII. De gelukkige bevestiging van Jeruzalem en de Joodsen staat, die op deze gebeurtenis volgde. De Godsdienst zal heersen, vers 6, en hun burgerlijke staat zal bloeien, vers 17-22. Dit is spoedig vervuld geworden, maar is geschreven tot onze lering. 
 
