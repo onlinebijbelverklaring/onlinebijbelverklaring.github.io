@@ -61,8 +61,8 @@ III. Hier wordt meegedeeld welke barmhartigheden God voor hen bewaard heeft. Het
 
 2. Zij zullen een groene weide voor hun kudden hebben, vers 10. Saron en het dal van Achor zullen opnieuw, evenals vroeger, vervuld worden met kudden. Saron lag westelijk, op de weg naar Joppe, Achor oostwaarts bij de Jordaan. Daardoor wordt aangeduid dat zij weer in bezit van het gehele land zullen gesteld worden, dat zij er voldoende kudden in zullen hebben, en dat zij er vreedzaam het genot van smaken zullen, zonder gestoord of verschrikt te worden. De instellingen van het Evangelie zijn de velden en valleien, waar de schapen van Christus zullen ingaan en uitgaan en weide vinden. Johannes 10:19, en waar zij vredig mogen neerliggen, Psalm 23:3, gelijk de kudden van Israël in het dal van Achor, Hoséa 2:15. 
 
-Jesaja 65:11 – 16
- Hier worden de verschillende toestanden van de godvrezenden en de goddelozen, van de Joden, die geloofden, en van hen, die in hun ongeloof volhardden, tegenover elkaar gezet, gelijk het leven en de dood, het goede en het kwade, de zegen en de vloek.
+Jesaja 65:11-16
+Hier worden de verschillende toestanden van de godvrezenden en de goddelozen, van de Joden, die geloofden, en van hen, die in hun ongeloof volhardden, tegenover elkaar gezet, gelijk het leven en de dood, het goede en het kwade, de zegen en de vloek.
 
 I. Hier is het verschrikkelijk vonnis over hen, die zich verhardden in hun afgoderij na de verlossing uit Babel, en in ongeloof na de verkondiging van het Evangelie.
 Merk op:
