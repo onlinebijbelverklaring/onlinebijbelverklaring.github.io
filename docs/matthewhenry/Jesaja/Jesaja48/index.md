@@ -27,7 +27,7 @@ Nadat God in het vorige hoofdstuk met de Babyloniërs gerekend heeft, en hen hun
 
 I. Hij beschuldigt hen van huichelarij in het goede en hardnekkigheid in het kwade, voornamelijk in hun afgoderij, ofschoon Hij hun zovele bewijzen gegeven heeft dat Hij God is en Hij alleen. vers 1-8.  
 II. Hij verzekert hun dat hun verlossing zal gewrocht worden alleen ter wille van zijn eigen naam en niet om enige verdiensten hunnerzijds vers 9-11.  
-III. Hij moedigt hen aan om voor hun verlossing uitsluitend Op Gods macht en belofte te rekenen vers 12-15.
+III. Hij moedigt hen aan om voor hun verlossing uitsluitend Op Gods macht en belofte te rekenen vers 12-15.  
 IV. Hij doet hun zien dat zij alleen door hun eigen zonden zichzelf in de gevangenis gebracht hebben, en dat het evenzo alleen door Gods genade zal zijn indien zij de nodige voorbereidingen voor hun vrijlating verkrijgen, vers 16-19.  
 V. Hij kondigt hun vrijlating aan, maar onder voorbehoud dat de goddelozen daardoor geen zegen zullen deelachtig worden, vers 20-22.  
 

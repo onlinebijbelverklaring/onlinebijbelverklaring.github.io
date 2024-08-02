@@ -135,6 +135,7 @@ IV. De rampen, die God over het Joodse volk zal brengen wegens hun moedwillige b
 
 V. De raad, hun gegeven tot hun verlichting, want hoewel hun toestand treurig is, is hij toch niet wanhopend. De meesten van hen waren doof, zij wilden niet horen naar de stem van Gods woord, daarom zal Hij het met Zijn roede beproeven, en zien wie onder hen daarop zal acht geven, vers 23. Wij moeten niet wanhopen aan hen, met wie lang gesproken, lang tevergeefs geredeneerd werd, sommigen van hen kunnen ten slotte horen en ter harte nemen, als de ene methode zonder uitwerking blijft dan zal een andere methode helpen, en de zondaren zullen zonder verontschuldiging gelaten worden.
 Merk op:
+
 1\. Wij allen kunnen, zo wij willen, de stem van God horen, en wij worden geroepen en uitgenodigd om haar te horen.
 
 2\. Het is van de moeite waard om te vragen wie het zijn, die het bemerken als God tot hen spreekt, en dan gewillig zijn om te horen.
