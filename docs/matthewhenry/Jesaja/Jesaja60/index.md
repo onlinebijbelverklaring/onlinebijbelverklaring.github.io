@@ -3,15 +3,15 @@ HOOFDSTUK 60
 
 Dit gehele hoofdstuk heeft dezelfde strekking en is in dezelfde toon als het vorige, het bevat een deel van Gods verbond met de kerk, waarvan in het laatste vers van het vorige hoofdstuk gesproken is en de hier beloofde zegeningen zijn de vruchten van het Woord en de Geest, welke daar beloofd werden. De gestadige voortduring van de kerk, zelfs tot in de laatste tijden, was daar beloofd, en hier wordt de grote uitbreiding toegezegd, zelfs tot aan de uiterste einden van de aarde. En deze beide strekken tot eer van de Verlosser.
 
-I. De kerk zal verlicht en bestraald worden, vers 1 - 2, 
-II. Zij zal uitgebreid en velen zullen tot haar gevoegd worden, om zich te verenigen tot de dienst van God, vers 3 - 8, 
-III. De nieuwbekeerden zullen de kerk en haar belangen zeer dienstig zijn, vers 9 - 13, 
-IV. De kerk zal grote eer en goede naam onder de mensen hebben, vers 14 - 16.
-V. Zij zal volkomen vrede en rust genieten, vers 17 - 18, 
-VI. Haar leden zullen allen rechtvaardigen zijn, en haar heerlijkheid en blijdschap zullen altijd duren, vers 19 - 22.
+I. De kerk zal verlicht en bestraald worden, vers 1-2, 
+II. Zij zal uitgebreid en velen zullen tot haar gevoegd worden, om zich te verenigen tot de dienst van God, vers 3-8, 
+III. De nieuwbekeerden zullen de kerk en haar belangen zeer dienstig zijn, vers 9-13, 
+IV. De kerk zal grote eer en goede naam onder de mensen hebben, vers 14-16.
+V. Zij zal volkomen vrede en rust genieten, vers 17-18, 
+VI. Haar leden zullen allen rechtvaardigen zijn, en haar heerlijkheid en blijdschap zullen altijd duren, vers 19-22.
  In zeker opzicht heeft dit betrekking op de vreedzamer en voorspoedige toestand waarin de Joden gedurende enigen tijd in hun eigen land waren na hun terugkeer uit de gevangenschap, maar het ziet voorzeker verder, en moest zijn gehele vervulling krijgen in het koninkrijk van de Messias, door de uitbreiding van dat koninkrijk door het toebrengen van de heidenen, en de geestelijke zegeningen in de tijden des Evangelies, door Christus Jezus, waarmee zij zou verrijkt worden, en al deze eerstelingen van eeuwige blijdschap en heerlijkheid. 
 
-Jesaja 60:1 - 8 
+Jesaja 60:1-8 
 Hier wordt beloofd dat de tempel des Evangelies zeer glansrijk en zeer groot zijn zal.
 
 I. Hij zal zeer glansrijk zijn. Uw Licht komt! Toen de Joden uit de gevangenschap terugkeerden hadden zij licht en blijdschap, vreugde en eer, toen werd hun gegeven de Heere te kennen en zich over Zijn grote goedheid te verheugen en daardoor kwam er licht. Wanneer de Verlosser tot Sion zal komen, zal Hij licht medebrengen, Hij zelf kwam om een licht te zijn. Merk nu op:
@@ -47,7 +47,7 @@ d. De kudden van bekeerlingen zullen grotelijks bewonderd worden, vers 8. Wie zi
 Ten eerste. Hoe de bekering van de zielen wordt omschreven. Het is een toevliegen tot Christus en Zijn kerk, waarheen wij gericht worden. het is een vliegen als een wolk, in grote menigten, zodat de hemelen er door bedekt worden, maar met eenstemmigheid, als een enkele wolk. Zij zullen komen met spoed, gelijk een wolk komt aangevlogen op de vleugelen des winds, en openlijk, voor ieder zichtbaar, zodat zelfs hun vijanden het waarnemen, Openbaring 11:12, zonder instaat te zijn het te verhinderen. Zij zullen aanvliegen gelijk duiven tot haar vensteren. Bij grote groepen, vele tegelijk, zij vliegen op de vleugelen van oprechte duiven, die laag vliegen, hetgeen haar onschuld en nederigheid aanduidt. Zij vliegen tot Christus, tot de kerk, tot het Woord en de instellingen, gelijk duiven instinctmatig naar haar vensteren, naar haar thuis. Daarheen vliegen zij om beschermd te zijn en schuilplaats te vinden tegen de vervolging van de roofvogels, en daarheen vliegen zij als zij vermoeid zijn van het ronddwalen, om uit te rusten, gelijk Noachs duif tot de ark kwam. 
 Ten tweede. Hoe deze bekering van zielen hier bewonderd wordt. Er wordt over gesproken met verwondering en genoegen. Wie zijn deze? Wij hebben reden om er ons over te verwonderen dat zovelen tot Christus komen, wanneer wij hen allen zullen bijeen zien, dan zullen wij er over verwonderd zijn vanwaar zij allen kwamen. En wij hebben reden om met verwondering en blijdschap te vragen: Wie zijn dezen? Hoe uitnemend, hoe beminnelijk zijn zij! Hoe heerlijk is het te zien dat arme zielen zich naar Christus haasten, met het vaste voornemen om bij Hem te blijven! 
 
-Jesaja 60:9 - 14 
+Jesaja 60:9-14 
 De beloften in de vorige verzen aan de kerk gedaan worden hier herhaald, verzekerd en uitgebreid, alles bedoeld tot vertroosting en aanmoediging van de Joden na hun terugkeer uit de gevangenschap, maar besluit met nog verdere strekking, tot uitbreiding en bevordering van de Evangelische kerk en om aan te tonen de overvloed van geestelijke zegeningen waarmee deze zal verrijkt worden.
 
 I. God zal zeer genadig en voorkomend jegens hen zijn. Wij moeten met deze belofte beginnen, omdat al de andere daardoor in waarde rijzen. Het heiligdom, dat verwoest lag, begint hersteld te worden wanneer God Zijn aangezicht er over laat lichten, Daniel 9:17. Al de gunst, die het volk Gods vindt bij de mensen, heeft het te danken aan het licht van Gods aangezicht en Zijn gunst over hen, vers 10. Allen zullen nu voorkomend voor hen zijn: want in Mijn verbolgenheid heb Ik u geslagen, toen gij in de gevangenschap waart. Het lijden van de kerk voornamelijk door haar bederf, afwijkingen en verdeeldheden, waartegen deze beloften haar moeten steunen, zijn treurige tekenen van Gods ongenoegen. Maar nu heb Ik Mij in Mijn welbehagen over u ontfermd, en daarom heb Ik al deze barmhartigheden voor u in voorraad.
@@ -70,7 +70,7 @@ VI. De kerk zal waarlijk groot en eerwaardig verschijnen, vers 14. Het Joodse vo
 
 2. Een verhoging voor de arme verdrukte leden van de kerk, en dit is de eer die hun zal worden aangedaan, zij zullen gelegenheid krijgen om goed te doen aan degenen die hen kwalijk gehandeld hebben, en hen te redden die hen bedroefd en veracht hebben. Het is een vermaak voor de godvrezende, en Hij rekent het zich een eer, om barmhartigheid te bewijzen aan hen, bij wie Hij geen barmhartigheid gevonden heeft. Maar dit is nog niet alles. Zij zullen zich niet alleen als smekelingen voor Uw voeten neerbuigen, in hun eigen belang meer zij zullen U ook eren. Zij zullen U noemen de stad des Heeren. Zij zullen eindelijk er van overtuigd zijn dat gij een gunstelinge des hemels zijt en de bijzondere zorg van de Goddelijke voorzienigheid geniet. Die stad is waarlijk groot en vereerd, die is sterk en rijk, die is veilig en schoon, die is de begeerlijkste plaats om in te wonen, die de stad des Heeren is, die Hij als de Zijne erkent, waar Hij woont en waar de godsdienst de hoogste plaats inneemt. Zulk een plaats is Sion, zij is de stad welke God verkoren heeft om daar Zijn naam te stellen, zij is het Sion van de Heilige Israëls. En daarom zijn wij er zeker van dat zij een heilige plaats is, anders zou de Heilige Israëls zich nooit haar beschermer genoemd hebben. 
 
-Jesaja 60:15 - 22 
+Jesaja 60:15-22 
 De gelukkige en verheerlijkte staat van de kerk wordt hier verder voorzegd, voornamelijk en uitsluitend met betrekking tot de Christelijke kerk en haar geestelijke vrede, maar onder het type van de kleine en uitwendige vrede welke de Joden nu en dan na hun terugkeer uit de gevangenschap genoten hebben. Derhalve wordt hier gesproken van haar:
 
 I. In vergelijking met hetgeen zij geweest was. Dit maakt haar vrede en eer zoveel aangenamer, dat haar toestand zo geheel anders was.
