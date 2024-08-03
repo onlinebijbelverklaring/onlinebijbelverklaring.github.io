@@ -26,7 +26,7 @@
 
 ## Inleiding
 
-Wij naderen nu het einde van deze Evangelische profetie. de laatste twee hoofdstukken richten onze blik op de nieuwe hemel en de nieuwe aarde, de nieuwe wereld welke de bedeling des Evangelies zou aanbrengen, en de scheiding die daardoor zou gemaakt worden tussen het kostelijke en het snode. Christus zegt: Ik ben tot een oordeel in de wereld gekomen. En daarom kan het ons niet bevreemden dat de profeet hier zou spreken van hetgeen, waarvan alle profeten getuigenis geven, 1 Petrus 1:10. De verwerping van de Joden en de aanneming van de heidenen worden dikwijls in het Nieuwe Testament vermeld als hetgeen door de profeten voorzien en voorzegd was, Handelingen 10:43, 13:40, Romeinen 16:28. In dit hoofdstuk hebben we 
+Wij naderen nu het einde van deze Evangelische profetie. de laatste twee hoofdstukken richten onze blik op de nieuwe hemel en de nieuwe aarde, de nieuwe wereld welke de bedeling des Evangelies zou aanbrengen, en de scheiding die daardoor zou gemaakt worden tussen het kostelijke en het snode. Christus zegt: Ik ben tot een oordeel in de wereld gekomen. En daarom kan het ons niet bevreemden dat de profeet hier zou spreken van hetgeen, waarvan alle profeten getuigenis geven, 1 Petrus 1:10. De verwerping van de Joden en de aanneming van de heidenen worden dikwijls in het Nieuwe Testament vermeld als hetgeen door de profeten voorzien en voorzegd was, Handelingen 10:43, 13:40, Romeinen 16:28. In dit hoofdstuk hebben wij: 
 
 I. De voorkoming van de heidenen met de roering van het Evangelie, vers 1.   
 II. De verwerping van de loden om hun halsstarrigheid en ongeloof, vers 2-7.  
