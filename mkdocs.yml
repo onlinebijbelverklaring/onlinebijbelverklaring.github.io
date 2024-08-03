@@ -113,6 +113,8 @@ nav:
     - Welkom: index.md
     - Bijbel indeling: bijbelindeling.md
     - Voortgang: voortgang.md
+    - Matthew Henry: matthewhenry/index.md
+    - Karl August Dachsel: karlaugustdachsel/index.md
   - Matthew Henry:
     - Inleiding: matthewhenry/index.md
     - Levensschets: matthewhenry/levensschets.md
