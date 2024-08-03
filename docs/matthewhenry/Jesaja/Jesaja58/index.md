@@ -48,7 +48,7 @@ d. Zij zijn zeer onderzoekend naar hun plichten en willen naar het schijnt daar 
 
 e. Voor het oog van de wereld doen zij zich voor alsof zij er een gewetenszaak van maken om hun plicht te betrachten, zij zijn als een volk, dat gerechtigheid doet en geen van de ordinanties van zijn God verwaarloost. Anderen houden hen daarvoor en zij geloven het ook van zichzelf, er was niets in hun gedrag waardoor de tegenspraak van hun belijdenis openbaar werd, maar zij waren schijnbaar zoals zij behoorden te zijn. Men kan een groot deel van de weg naar de hemel bewandelen en toch te kort komen, ja met een goede naam naar de hel gaan.
 
-2. Hij toont echter aan dat dit alles zo weinig tot bedekking of verontschuldiging van hun zonden dienen kon, dat die er integendeel door verzwaard werden. Toont hun hun zonden, waarin zij voortgaan, niettegenstaande hun kennis van goed en kwaad, zonde en plicht, en de overtuiging van hun geweten. 
+2\. Hij toont echter aan dat dit alles zo weinig tot bedekking of verontschuldiging van hun zonden dienen kon, dat die er integendeel door verzwaard werden. Toont hun hun zonden, waarin zij voortgaan, niettegenstaande hun kennis van goed en kwaad, zonde en plicht, en de overtuiging van hun geweten. 
 
 ## Jesaja 58:3-7 
 Hier zien wij:

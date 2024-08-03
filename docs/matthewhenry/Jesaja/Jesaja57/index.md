@@ -24,8 +24,8 @@
 
 De profeet maakt in dit hoofdstuk zijn opmerkingen over:
 
-I. De dood van de rechtvaardigen, prijzende hen die in hun oprechtheid weggenomen werden, en bestraffende hen die niet onder de indruk kwamen van zulke daden van de voorzienigheid, vers 1-2. 
-II. De grove afgoderijen en schaamteloze hoererij, waaraan de Joden zich schuldig maakten, en de verwoestende oordelen, die zij daardoor over zichzelf brachten vers 3-12. 
+I. De dood van de rechtvaardigen, prijzende hen die in hun oprechtheid weggenomen werden, en bestraffende hen die niet onder de indruk kwamen van zulke daden van de voorzienigheid, vers 1-2.  
+II. De grove afgoderijen en schaamteloze hoererij, waaraan de Joden zich schuldig maakten, en de verwoestende oordelen, die zij daardoor over zichzelf brachten vers 3-12.  
 III. De genadige terugkeer van God tot zijn volk om een einde te maken aan hun gevangenschap, en hen in hun voorspoed te herstellen, vers 13-21. 
 
 ## Jesaja 57:1-2 
