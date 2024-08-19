@@ -148,7 +148,10 @@ c. De slechtheid van de zonde, zij is een kwaad en bitter ding. De zonde is een 
 
 d. De noodlottige gevolgen van de zonde, omdat zij in zichzelf kwaad en bitter is heeft zij rechtstreeks de strekking om ons ellendig te maken. Uw eigen boosheid zal u kastijden en uw afkeringen zullen u straffen, niet alleen verwoesten hiernamaals maar reeds hier kastijden en straffen. Zij zullen zeker leed over u brengen, de straf zal zo onvermijdelijk op de zonde volgen, dat het zal schijnen alsof de zonde die zelf meebrengt. Zelfs zal de straf in haar soort en omstandigheden zo rechtstreeks beantwoorden aan de zonde, dat gij uw zonde in de straf zult zien, en de rechtvaardigheid van de straf zal zo duidelijk zijn dat gij er geen woord tegen kunt inbrengen, uw eigen ongerechtigheid zal u overtuigen en voor altijd de mond stoppen, en gij zult gedwongen worden te erkennen dat de Heere rechtvaardig is.
 
-e. Het nut en de toepassing van dit alles: Zie dus en heb berouw over uw zonden opdat de kastijding, tot uw verbetering bedoeld, niet uw verwoesting worde! Jeremia 2:20-28 In deze verzen gaat de profeet voort met zijn beschuldigingen tegen het afgedwaalde volk. Merk op I. De zonde zelf, waarover hij hen beschuldigt, afgoderij, de grote overtreding, waaraan zij voornamelijk schuldig stonden.
+e. Het nut en de toepassing van dit alles: Zie dus en heb berouw over uw zonden opdat de kastijding, tot uw verbetering bedoeld, niet uw verwoesting worde! 
+
+## Jeremia 2:20-28 
+In deze verzen gaat de profeet voort met zijn beschuldigingen tegen het afgedwaalde volk. Merk op I. De zonde zelf, waarover hij hen beschuldigt, afgoderij, de grote overtreding, waaraan zij voornamelijk schuldig stonden.
 
 1\. Zij bezochten de plaatsen waar de afgoden aangebeden werden, vers 20. Op alle hoge heuvels en onder elke groene boom, op de hoge plaatsen en in de bossen, waarvoor de heidenen een dwaze voorliefde en verering koesterden. Gij loopt om, gij wandelt, van de ene plaats naar de andere, onbestemd, onrustig, onvoldaan, maar overal hoererende, de valse goden aanbiddende, hetwelk is geestelijke hoererij, en gewoonlijk vergezeld ging van lichamelijke onzedelijkheid. Zij die God verlaten lopen eindeloos rond, en zwervende begeerte is onverzadigbaar.
 
