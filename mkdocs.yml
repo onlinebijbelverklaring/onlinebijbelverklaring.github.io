@@ -29,7 +29,7 @@ theme:
   features:
     - header.autohide
     - navigation.path 
-    - navigation.indexes
+#    - navigation.indexes
     - navigation.top
     - navigation.footer
     - navigation.tracking
