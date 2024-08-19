@@ -29,7 +29,7 @@ theme:
   features:
     - header.autohide
     - navigation.path 
-#    - navigation.indexes
+    - navigation.indexes
     - navigation.top
     - navigation.footer
     - navigation.tracking
@@ -923,7 +923,7 @@ nav:
         - Jeremía 8: matthewhenry/Jeremia/Jeremia8/index.md
         - Jeremía 9: matthewhenry/Jeremia/Jeremia9/index.md
         - Jeremía 10: matthewhenry/Jeremia/Jeremia10/index.md
-    #    - Jeremía 11: matthewhenry/Jeremia/Jeremia11/index.md
+        - Jeremía 11: matthewhenry/Jeremia/Jeremia11/index.md
     #    - Jeremía 12: matthewhenry/Jeremia/Jeremia12/index.md
     #    - Jeremía 13: matthewhenry/Jeremia/Jeremia13/index.md
     #    - Jeremía 14: matthewhenry/Jeremia/Jeremia14/index.md
