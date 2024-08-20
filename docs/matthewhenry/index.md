@@ -1,6 +1,8 @@
 ---
 hide:
   - toc
+
+icon: material/book-open-variant
 ---
 
 # De bijbelverklaring van Matthew Henry

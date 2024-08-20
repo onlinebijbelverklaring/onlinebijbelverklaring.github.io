@@ -1,6 +1,8 @@
 ---
 hide:
   - toc
+
+icon: material/home
 ---
 
 # Welkom op Onlinebijbelverklaring.nl
