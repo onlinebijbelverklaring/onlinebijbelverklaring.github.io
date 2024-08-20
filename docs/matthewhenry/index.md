@@ -3,7 +3,7 @@ hide:
   - toc
 ---
 
-# De volledige bijbelverklaring van Matthew Henry
+# De bijbelverklaring van Matthew Henry
 
 Of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
