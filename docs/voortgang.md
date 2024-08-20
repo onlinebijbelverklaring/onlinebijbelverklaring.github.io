@@ -12,12 +12,12 @@ De bijbelverklaring zal in 2 fases volledig online worden gezet. Daarna zal gepr
 
 In deze fase zal de volledige bijbelverklaring online worden gezet.
 
-<label for="file">Voortgang fase 1: 63/66 Bijbelboeken</label><progress id="file" value="63" max="66" style="width:80%; height:25px;"></progress> 
+<label for="file">Voortgang fase 1: 64/66 Bijbelboeken</label><progress id="file" value="64" max="66" style="width:80%; height:25px;"></progress> 
 
 
 #### Fase 2. Verbeteren van de leesbaarheid (Verwachte start Q4 2024)
   
-In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het toevoegen van alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
+In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het splitsen in meerdere alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
  
 <label for="file">Voortgang fase 2: 0/66 Bijbelboeken</label><progress id="file" value="0" max="66" style="width:80%; height:25px;"></progress> 
 
