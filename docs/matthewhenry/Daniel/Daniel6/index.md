@@ -1,4 +1,4 @@
-1. DARÍUS* de Meder nu ontving het koninkrijk, omtrent twee en zestig jaren oud zijnde.
+1. DARÍUS de Meder nu ontving het koninkrijk, omtrent twee en zestig jaren oud zijnde.
 2. En het dacht Daríus goed dat hij over het koninkrijk stelde honderd en twintig stadhouders, die over het ganse koninkrijk zijn zouden;
 3. En over dezelve drie vorsten, van dewelke Daniël de eerste zijn zou, denwelken die stadhouders zelven zouden rekenschap geven, opdat de koning geen schade leed.
 4. Toen overtrof deze Daniël die vorsten en die stadhouders, daarom dat een voortreffelijker geest in hem was; en de koning dacht hem te stellen over het gehele koninkrijk.
@@ -33,7 +33,7 @@
 Daniel geeft geen doorlopend verhaal van de regeringen, waaronder hij leefde, noch van de staatkunde van de koninkrijken der Chaldeeën en Perzen, hoewel hij zelf een grote rol daarin speelde, want welk belang hebben wij daarbij? Maar hij bewaart die bijzondere episodes, die dienen om ons geloof in God te bevestigen en onze gehoorzaamheid aan Hem aan te moediger, want de dingen, die tevoren geschreven zijn, zijn tot onze lering geschreven. Het is een zeer opmerkelijke, nuttige geschiedenis, die wij in dit hoofdstuk hebben, hoe Daniel door het geloof "den muil der leeuwen toegesloten, en aldus getuigenis bekomen" heeft, Hebreeën 11:33. De drie jongelingen werden in de vurige oven geworpen, omdat zij niet wilden doen, wat zij wisten, dat zonde was, Daniël werd in de leeuwenkuil geworpen, omdat hij niet wilde nalaten, wat hij wist, dat zijn plicht was, en dat God beide wonderdadig verlost heeft, is vermeld tot bemoediging van zijn knechten in alle eeuwen, om vastberaden en standvastig te zijn, beide in hun afschuw van hetgeen boos is en in hun gehechtheid aan hetgeen goed is, wat het dan ook kosten moge. In dit hoofdstuk hebben wij, 
 
 I. Daniels verhoging aan het hof van Darius, vers 2-4.  
-II. de nijd en de boosaardigheid van zijn vijanden tegen hem, vers 5, 6.  
+II. De nijd en de boosaardigheid van zijn vijanden tegen hem, vers 5, 6.  
 III. Het besluit, dat zij verkregen tegen een verzoek of gebed in dertig dagen, vers 7-10.  
 IV. Daniels volharding en standvastigheid in het gebed, ondanks dat besluit, vers 11.  
 V. De aanklacht tegen hem, waarop hij in de kuil der leeuwen geworpen wordt, vers 12-18.  
@@ -143,7 +143,7 @@ A. Des konings strengheid, daar hij hun vrouwen en kinderen met hen voor de leeu
 
 B. De bloeddorst der leeuwen. Zij kwamen niet op de grond des kuils, of de leeuwen heersten over hen en verscheurden hen zonder verwijl. Dit bevestigde het wonder, waardoor Daniël gespaard was en maakte het nog groter, want hieruit bleek, dat het niet was, omdat zij geen honger hadden, maar omdat het hun niet toegelaten werd. Bloedhonden, die gemuilband worden, zijn te bloeddorstiger, als de muilband afgenomen wordt, zo was het ook met deze leeuwen. En de Heere is bekend door de oordelen, die Hij houdt. 
 
-## Daniël 6:25-28 
+## Daniël 6:25-29
 Darius doet hier zijn best om de fout, die hij gemaakt heeft door de oneer, die hij beide God en Daniel aangedaan heeft, door Daniel in de leeuwenkuil te werpen, te herstellen door beide te eren.
 
 I. Hij geeft eer aan God door een besluit, verkondigt aan alle volken, waarin zij opgeroepen worden voor Hem te vrezen. En dit besluit is inderdaad geschikt om afgekondigd te worden als onveranderlijk, neer de wet der Meden en Perzen, want het is het eeuwig Evangelie, gepredikt aan hen, die op de aarde wonen, Openbaring 14:6 Vreest God en geeft Hem heerlijkheid. Opmerking verdient 
