@@ -2,7 +2,7 @@
 hide:
   - toc
 
-icon: material/book-open-variant
+icon: material/bookshelf
 ---
 
 # De bijbelverklaring van Matthew Henry
