@@ -1,4 +1,5 @@
 User-agent: *
 Allow: /
+Disallow: /dev-preview/
 
 Sitemap: https://onlinebijbelverklaring.nl/sitemap.xml
