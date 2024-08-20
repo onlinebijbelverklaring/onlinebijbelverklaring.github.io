@@ -25,7 +25,7 @@
 Dit hoofdstuk en de twee volgende hoofdstukken waarmee dit boek besluit, vormen tezamen een visioen en profetie, dat aan Daniel werd meegedeeld ten dienste van de kerk, niet door tekenen en voorstellingen, zoals tevoren, Hoofdstuk 7, 8, maar in menselijke taal, en dit was ongeveer twee jaar na het gezicht in het voorgaande hoofdstuk. Dan iel bad dagelijks, maar had alleen nu en dan een visioen. In dit hoofdstuk hebben wij een en ander, dat een inleiding vormt tot de profetie, in het elfde hoofdstuk de afzonderlijke voorspellingen, en in het twaalfde hoofdstuk het besluit er van. Dit hoofdstuk toont ons, 
 
 I. Daniëls plechtig vasten en vernedering, voordat hij dit gezicht had, vers 1-3.  
-II. een heerlijke verschijning van de Zoon van God aan hem, en de diepen indruk daardoor op hem gemaakt, vers 4-9. 
+II. een heerlijke verschijning van de Zoon van God aan hem, en de diepen indruk daardoor op hem gemaakt, vers 4-9.  
 III. De aanmoediging hem gegeven, om een openbaring van toekomstige gebeurtenissen te verwachten, die bevredigend en nuttig zou zijn, beide voor anderen en voor hem zelf, en dat hij bekwaam gemaakt zou worden beide, om de betekenis van deze openbaring te verstaan, hoe moeilijk dat ook was, en om de glans er van te verdragen hoe verblindend en vreselijk ook, vers 10-21.  
 
 ## Daniël 10:1-9 
