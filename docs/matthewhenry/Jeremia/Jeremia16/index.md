@@ -26,7 +26,8 @@ In dit hoofdstuk:
 
 I. Wordt de grootheid van de ramp, die over het Joodse volk in aantocht was geïllustreerd door het verbod van de profeet om geen eigen huis te bouwen, vers 1-4, noch in het klaaghuis te gaan, vers 5-7, noch in het huis des maaltijds. vers 8, 9.  
 II. God wordt gerechtvaardigd. In deze strenge behandeling van hen door het verhaar van hun grote goddeloosheid, vers 10-13.  
-III. Een wenk wordt gegeven van mogelijke genade, vers 14, 15 IV. Er wordt enige hoop te kennen gegeven, dat de bestraffing van hun zonden, de verbetering van de zondaars zal blijken, en, dat zij zich tenslotte tot God zullen bekeren op de weg van de gehoorzaamheid, en aldus geschikt maakt voor Zijn terugkeer tot hen op de weg van gunst, vers 16-21.
+III. Een wenk wordt gegeven van mogelijke genade, vers 14, 15.  
+IV. Er wordt enige hoop te kennen gegeven, dat de bestraffing van hun zonden, de verbetering van de zondaars zal blijken, en, dat zij zich tenslotte tot God zullen bekeren op de weg van de gehoorzaamheid, en aldus geschikt maakt voor Zijn terugkeer tot hen op de weg van gunst, vers 16-21.
 
 
 ## Jeremia 16:1-9 

@@ -36,7 +36,9 @@ III. Naar aanleiding daarvan moet hij hen opwekken tot berouw en zelfvernedering
 IV. Hij moet hen bevestigen, dat hun hardnekkigheid en onbekeerlijkheid oorzaak is, dat Gods oordelen niet ophouden, maar ten volle uitgevoerd zullen worden, vers 22-27.
 
 ## Jeremia 13:1-11 
-Hier is, I. Een teken, het verderf van de gordel, die de profeet enigen tijd had gedragen, door die in een kloof van de steenrots nabij de rivier Eufraat te verbergen. De profeten waren gewoon, door tekenen te leren, opdat een dom onnadenkend volk tot nadenken gebracht werd en geloofde en belang ging stellen in wat hun meegedeeld werd.
+Hier is, 
+
+I. Een teken, het verderf van de gordel, die de profeet enigen tijd had gedragen, door die in een kloof van de steenrots nabij de rivier Eufraat te verbergen. De profeten waren gewoon, door tekenen te leren, opdat een dom onnadenkend volk tot nadenken gebracht werd en geloofde en belang ging stellen in wat hun meegedeeld werd.
 
 1\. Hij moest enige tijd een linnen gordel dragen, vers 1, 2. Sommigen menen, dat hij die onder zijn klederen droeg, omdat het linnen was, en er van gezegd wordt, dat hij die aan zijn lendenen deed, waaraan de gordel kleefde, vers 1, 11. Eer schijnt hij boven zijn klederen gedragen te zijn, want hij werd gedragen tot een naam en tot lof, en was waarschijnlijk een schone band, zoals officieren die in groot tenue dragen en ook in het Oosten gebruikelijk is. Hij moest die gordel niet in het water brengen, maar dragen gelijk die was, opdat hij sterker zou zijn en minder onderhevig aan verrotting, linnen verteert bijna evenzeer door wassen als door dragen. Wijl de gordel niet nat was, was hij te stijver en te minder buigzaam, toch moest hij hem dragen. Waarschijnlijk was het zeer fijn linnen, dat lang goed blijft zonder wassen. De profeet was, evenmin als Johannes de Doper, iemand, die gewoon was zachte klederen te dragen, en het zou daarom te opvallender zijn, hem met een linnen gordel om te zien, terwijl hij denkelijk aan een ieder gewoon was.
 
