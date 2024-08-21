@@ -17,7 +17,7 @@
 17. Zij zeggen steeds tot degenen die Mij lasteren: De HEERE heeft het gesproken, gijlieden zult vrede hebben; en tot al wie naar zijns harten goeddunken wandelt, zeggen zij: Ulieden zal geen kwaad overkomen.
 18. Want wie heeft in des HEEREN raad gestaan en Zijn woord gezien of gehoord? Wie heeft Zijn woord aangemerkt en gehoord?
 19. Zie, een onweder des HEEREN, een grimmigheid, is uitgegaan, ja, een pijnlijk onweder; het zal blijven op der goddelozen hoofd.
-20 Des HEEREN toorn zal zich niet afwenden, totdat Hij zal hebben gedaan en totdat Hij zal hebben daargesteld de gedachten Zijns harten; in het laatste der dagen zult gij met verstand daarop letten.
+20. Des HEEREN toorn zal zich niet afwenden, totdat Hij zal hebben gedaan en totdat Hij zal hebben daargesteld de gedachten Zijns harten; in het laatste der dagen zult gij met verstand daarop letten.
 21. Ik heb die profeten niet gezonden, nochtans hebben zij gelopen; Ik heb tot hen niet gesproken, nochtans hebben zij geprofeteerd.
 22. Maar zo zij in Mijn raad hadden gestaan, zo zouden zij Mijn volk Mijn woorden hebben doen horen, en zouden hen afgekeerd hebben van hun bozen weg en van de boosheid hunner handelingen.
 23. Ben Ik een God van nabij, spreekt de HEERE, en niet een God van verre?
