@@ -42,10 +42,10 @@
 
 De beker van de verschrikking gaat nog rond, en de natiën moeten die alle drinken, volgens de last, die Jeremia gegeven is Hoofdstuk 25:15. Dit hoofdstuk zet hem op de hand, 
 
-I. van de Ammonieten, vers 1-6 
-II. van de Edomieten, vers 7-22.
-III. van de Syriërs, vers 23-29.
-IV. van de Kedarenen en van de koninkrijken van Hazor, vers 28-33.
+I. van de Ammonieten, vers 1-6.   
+II. van de Edomieten, vers 7-22.  
+III. van de Syriërs, vers 23-29.  
+IV. van de Kedarenen en van de koninkrijken van Hazor, vers 28-33.  
 V. van de Elamieten, vers 34-39. Wanneer Israël nauwelijks zalig wordt, waar zullen deze verschijnen? 
 
 ## Jeremia 49:1-6 
