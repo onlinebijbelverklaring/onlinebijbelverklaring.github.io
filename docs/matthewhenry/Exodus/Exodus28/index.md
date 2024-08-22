@@ -46,7 +46,7 @@
 
 De orders waren gegeven voor het in orde maken van de plaats van de openbare aanbidding, wordt nu zorg gedragen voor de priesters die als de huisdienaren van de God Israëls in die veilige plaats de dienst moesten verrichten. Hij huurde dienaren als een teken van Zijn voornemen om onder hen te wonen. In dit hoofdstuk:  
 
-I.	Doet Hij keuze van de personen, die Zijn dienaren zullen zijn, vers 1. Bepaalt Hij hun livrei. Hun werk was heilig, en zo moeten ook hun kleren heilig zijn, en in overeenstemming met de heerlijkheid van het huis, dat nu opgericht stond te worden vers 2 – 4.  
+I.	Doet Hij keuze van de personen, die Zijn dienaren zullen zijn, vers 1. Bepaalt Hij hun livrei. Hun werk was heilig, en zo moeten ook hun kleren heilig zijn, en in overeenstemming met de heerlijkheid van het huis, dat nu opgericht stond te worden vers 2-4.  
 II.	Hij bepaalt de kledij van Zijn opperste dienaar, de hogepriester, die zeer kostbaar was. Een Efod en gordel, vers 5-14. Een borstlap des gerichts, vers 15-29, waarin de Urim en Thummim gezet moeten zijn, vers 30. De mantel des Efods, vers 31-35 De hoed vers 36-39.   
 III.	De kleren van de mindere priesters, vers 40, 43. En ook deze waren schaduwen van toekomende goederen.  
 
