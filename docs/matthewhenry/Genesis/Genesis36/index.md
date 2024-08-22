@@ -61,6 +61,7 @@ VI. De koningen en vorsten van Edom, vers 31-43. Er wordt weinig meer vermeld da
 ## Genesis 36:1-8
 
 Merk hier op: 
+
 1\. Betreffende Ezau zelf, vers 1. Hij wordt Edom genoemd, (en opnieuw in vers 8) de naam door welke de gedachtenis bestendigd werd aan de dwaze koop, die hij gesloten had, toen hij zijn geboorterecht voordat rode, dat rode kooksel verkocht. Het noemen van die naam volstaat reeds om de reden aan te duiden, waarom slechts zo kort een bericht van zijn geslacht wordt gegeven. Als mensen iets verkeerds doen, dan hebben zij aan zichzelf te wijten, als het nog lang daarna tot hun schande wordt herdacht.
 
 2\. Betreffende zijn vrouwen en de kinderen. die zij hem gebaard hebben in het land Kanaän, Hij had drie vrouwen, en bij die allen slechts vijf zonen, menigeen heeft er meer bij slechts een vrouw. In Zijn voorzienigheid stelt God diegene teleur, die slinkse middelen gebruiken om een gezin op te bouwen, maar hier had de belofte de overhand, en Ezau’s gezin werd opgebouwd.
@@ -71,6 +72,7 @@ Waarschijnlijk had Izaak hem daarheen gezonden (zoals Abraham bij zijn leven de 
 ## Genesis 36:9-19
 
 Merk hier op: 
+
 1\. Dat alleen de namen van Ezau’s zonen en kleinzonen vermeld worden, alleen hun namen maar niet hun geschiedenis, want het is de kerk, waarvan Mozes de geschiedenis schrijft, niet de geschiedenis van hen, die buiten de kerk zijn. Alleen de ouden, die door het geloof leefden, hebben getuigenis gekregen. Het is Sion, dat mannen van naam voortbrengt, niet Seir, Psalm 87:5. Die geslachtslijst gaat ook niet verder dan tot het derde en vierde geslacht, zelfs de namen zijn in vergetelheid begraven. Het is alleen de stamboom van de Israëlieten, die de erfgenamen waren van Kanaän, en uit wie het beloofde heilige Zaad moest voortkomen, die nauwkeurig en volledig wordt meegedeeld, voorzover dit nodig was, zelfs van al de stammen, totdat Kanaän onder hen verdeeld was, en van de koninklijke linie, totdat Christus kwam.
 
 2\. Dat deze zonen en kleinzonen van Ezau vorsten, of - volgens de Engelse en Franse overzetting - hertogen genoemd werden, vers 15-19. Waarschijnlijk waren zij militaire bevelhebbers, hertogen of kapiteins, die soldaten onder zich hadden, want Ezau en zijn geslacht leefden op hun zwaard, Hoofdstuk 27:40. Eretitels zijn van hoger oudheid buiten de kerk dan in de kerk. Ezau’s zonen waren hertogen toen de zonen van Jakob nog eenvoudige herders waren, Hoofdstuk 47:3. Dat is geen reden, waarom zulke titels niet onder christenen gebruikt moeten worden, maar wèl is het een reden, waarom de mensen zichzelf of anderen er niet om moeten overschatten. Er is een eer, die van God komt, en een naam in Zijn huis, die van oneindig hoger waarde is. Edomieten kunnen hertogen zijn bij mensen, maar ware Israëlieten zijn Gode tot koningen en priesters gemaakt.

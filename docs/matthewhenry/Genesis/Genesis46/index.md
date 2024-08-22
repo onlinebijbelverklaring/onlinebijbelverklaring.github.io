@@ -49,27 +49,41 @@ I. Dat hij God heeft gekend in zijn weg. Hij kwam van Hebron, waar hij nu woonde
 1\. Het oog op God als de God van zijn vader Izaak, dat is: een God in verbond met hem, want door Izaak was het verbond op hem overgegaan. God had aan Izaak, toen er in zijn tijd hongersnood heerste in Kanaän, Hoofdstuk 26:2 verboden om af te reizen naar Egypte, hetgeen Jakob zich misschien voor de geest bracht toen Hij God raadpleegde als de God van zijn vader Izaak, en wel met deze gedachte: "Heere, hoewel ik zeer begerig ben Jozef te zien, zal ik mij toch aan Uw wil onderwerpen, zo Gij mij verbiedt naar Egypte af te trekken zoals Gij het mijn vader Izaak verboden hebt en dan zal ik tevreden blijven waar ik ben." 
 
 2\. Offerde hij offeranden, buitengewone offeranden, behalve die hij op zijn gezette tijden bracht. Die offeranden werden geofferd:
+
 a. Bij wijze van dankzegging voor de gezegende verandering, die er nu onlangs in zijn familie heeft plaats gehad, voor de goede tijding, die hij omtrent Jozef heeft ontvangen, en de hoop die hij had, om hem weer te zien. Wij moeten God danken voor het begin van een zegen, al is hij ook nog niet voltooid, en dit is dan tevens een betamelijke manier om nog verdere zegeningen te vragen.
+
 b. Bij wijze van smeking dat God met hem zal zijn op zijn reis. Door deze offeranden wenste hij vrede te hebben met God, vergeving van zonde te verlangen, opdat hij geen schuld met zich neemt op die reis, want schuld is een slechte gezellin. Door Christus, de grote offerande, moeten wij ons verzoenen met God, en onze beden en smekingen tot Hem opzenden.
+
 c. Bij wijze van raadpleging, ook de heidenen raadpleegden hun orakelen door offeranden. Jakob wilde niet gaan vóór hij God om verlof had gevraagd: "Zal ik vertrekken naar Egypte, of teruggaan naar Hebron?" Zo moeten ook wij in twijfelachtige gevallen navraag doen, en hoewel wij geen direct antwoord van de hemel kunnen verwachten, zullen wij toch, zo wij naarstig achtgeven op de aanwijzingen van het woord, van de consciëntie en van de voorzienigheid van God, bevinden, dat wij God niet tevergeefs om raad vragen.
 
 II. Hoe God hem dan ook geleid heeft op zijn pad. In nachtgezichten (waarschijnlijk reeds in de volgende nacht nadat hij zijn offeranden geofferd had, zoals 2 Kronieken 1:7) sprak God tot hem, vers 2. Zij, die gemeenschap met God wensen te onderhouden, zullen bevinden dat zij nooit zijnerzijds faalt. Als wij tot Hem spreken zoals het behoort, dan zal Hij niet falen tot ons te spreken. God riep hem bij zijn naam, zijn oude naam. Jakob! Jakob! om hem zijn lage staat te doen gedenken, zijn tegenwoordige vrees betaamde nauwelijks aan een Israël. Als een, die wel bekend is met de gezichten van de Almachtige, en gereed is om er aan te gehoorzamen, antwoordt hij: Zie, hier ben ik, bereid en gereed om orders te ontvangen." En wat heeft God hem nu te zeggen? 
+
 1\. Hij hernieuwt het verbond met hem, Ik ben die God, de God van uw vader, vers 3, dat is: "Ik ben wat gij Mij erkent te zijn, gij zult Mij een God bevinden, een goddelijke wijsheid en macht voor u, en gij zult Mij de God van uw vader bevinden, getrouw aan het verbond, dat met hem gemaakt is.
 
 2\. Hij moedigt hem aan tot dit vertrek met zijn gezin, vrees niet af te reizen naar Egypte. Het schijnt dat Jakob, hoewel hij op het eerste bericht van het leven van Jozef en zijn heerlijkheid in Egypte zonder enige aarzeling besloten had: ik zal gaan en hem zien, er toch bij nader bedenken wel enige moeilijkheid in zag, waarover hij niet goed wist heen te komen. In de veranderingen, die de grootste blijdschap en hoop schijnen mee te brengen, is toch altijd een bijmengsel van zorg en vrees. "Nulla estsincera voluptas - Er is geen onvermengd genot." Wij moeten ons altijd verheugen met beving. Jakob had vele kommervolle gedachten omtrent deze reis, waarvan God nota neemt.
+
 a. Hij was oud, honderddertig jaren oud, en het wordt als een van de zwakheden van oude mensen genoemd, dat zij "voor de hoogten vrezen en dat er verschrikkingen zullen zijn op de weg," Prediker 12:5. Het was een lange reis, en Jakob was niet geschikt tot reizen, en wellicht dacht hij er aan, dat zijn beminde Rachel op een reis gestorven is.
+
 b. Hij vreesde dat zijn zonen besmet zouden worden door de afgoderij van Egypte en de God van hun vaderen zouden vergeten, of verzot zouden worden op de genietingen van Egypte en het land van de belofte zouden vergeten.
+
 c. Waarschijnlijk dacht hij aan hetgeen God tot Abraham had gezegd betreffende de dienstbaarheid en de verdrukking van zijn zaad, Hoofdstuk 15:13, en vreesde hij dat zijn verhuizing naar Egypte dit ten gevolge zou hebben. Een lieflijkheid voor heden moet ons niet doen verzuimen te denken aan toekomstige bezwaren en ongemakken, die wel zouden kunnen voortkomen uit hetgeen ons nu zo lieflijk en veelbelovend toeschijnt.
+
 d. Hij kon het denkbeeld niet verdragen, dat zijn gebeente in Egypte zou rusten. Maar, welke ontmoedigende gedachten hij nu ook had, dit was genoeg om ze allen tot zwijgen te brengen: Vrees niet te vertrekken naar Egypte.
 
 3\. Hij belooft hem vertroosting bij deze verhuizing.
+
 a. Dat hij in Egypte zich zal vermenigvuldigen. "Ik zal u aldaar, waar gij vreest dat uw familie zal wegzinken en verloren gaan tot een groot volk maken. Dat is de plaats, die de oneindige wijsheid verkoren heeft voor de vervulling van die belofte." 
+
 b. Dat de tegenwoordigheid van God met hem zal wezen, Ik zal met u vertrekken naar Egypte. God zal voorzeker met hen wezen, die gaan waar Hij hen zendt, en dat is genoeg om hen, waar zij ook zijn te beveiligen, en hun vrees tot zwijgen te brengen, wij kunnen ons gerust wagen naar Egypte, als God er met ons gaat.
+
 c. Dat noch hij noch de zijnen in Egypte verloren zullen gaan, Ik zal u doen weer optrekken, mee optrekkende. 
 
 Hoewel Jakob in Egypte stierf, is deze belofte toch vervuld geworden:
+
 (1). Door het overbrengen van zijn lichaam om in Kanaän begraven te worden, waaromtrent hij zeer bezorgd scheen, Hoofdstuk 49:29-32.
+
 (2). In het overbrengen van zijn nakomelingen om in Kanaän gevestigd te worden. Hoe somber en duister het dal ook moge wezen, waarin wij te eniger tijd geroepen worden, wij kunnen er gerust op wezen dat, zo God er met ons vertrekt Hij ons ook zeker weer uit zal opvoeren. Als Hij met ons afgaat in de dood, dan zal Hij ons gewis weer opvoeren tot de heerlijkheid.
+
 (3). Dat in leven en sterven zijn geliefde zoon Jozef hem tot troost zal wezen, Jozef zal zijn hand op uw ogen leggen. Dat is een belofte, dat Jozef leven zal zolang als hij leefde, dat hij bij hem zou zijn bij zijn sterven, hem met alle mogelijke tederheid en eerbied de ogen zou sluiten, zoals de dierbaarste bloedverwanten dat plegen te doen. Toen zijn gedachten zich alzo in hem vermenigvuldigden, heeft Jakob waarschijnlijk gewenst, dat Jozef hem die laatste dienst van de liefde zou bewijzen: "Ille meos oculos comprimat - Laat hem mij de ogen sluiten, " en God verhoorde hem aldus ook naar de letter van zijn begeerte. Zo vervult God soms de onschuldige begeerten van Zijn volk en maakt niet slechts dat zij zalig sterven, maar maakt er zelfs de omstandigheden lieflijk van.
 
 ## Genesis 46:5-27 
@@ -78,12 +92,15 @@ De bejaarde Jakob is hier aan het verhuizen, weinig heeft hij gedacht ooit Kana�
 Merk op:
 
 I. Hoe Jakob vervoerd werd, niet in een koets, hoewel die toen reeds in gebruik was, maar in een wagen, vers 5. Jakob was een eenvoudig man, die op geen pracht of statigheid gesteld was, zijn zoon reed in een staatsiewagen, Hoofdstuk 41:43, maar hem was een gewone wagen voldoende.
+
 II. Het vervoer van hetgeen hij had.
 
 1\. Zijn have, vers 6, zijn vee en zijn have, dit nam hij mee, teneinde voor zijn onderhoud niet geheel en al van Farao afhankelijk te zijn, en niet later van hen gezegd zou kunnen worden, dat zij als bedelaars naar Egypte gekomen zijn.
 
 2\. Zijn gezin, al zijn zaad, vers 7. Waarschijnlijk waren zij allen bij hun vader blijven wonen, en daarom zijn zij, toen hij heenging, ook heengegaan, waartoe zij wellicht te meer bereid waren, omdat, hoewel zij hadden gehoord dat het land Kanaän hun beloofd was, zij er echter tot nu toe niets van in bezit hadden. Wij hebben hier een nauwkeurige opgaaf van de namen van Jacobs kinderen, zijn zonen en de zonen van zijn zonen, die later als hoofden van geslachten in de verschillende stammen vermeld zullen worden. Zie Numeri 26:5. en verv. Bisschop Patrick merkt op dat Issaschar zijn oudste zoon Tola noemde, hetgeen worm betekent, waarschijnlijk omdat hij, toen hij geboren werd, een zeer klein, zwak kind was, een worm en geen man, die waarschijnlijk wel niet in het leven zou blijven. en toch is er een talrijk nakomelingschap uit hem voortgekomen, 1 Kronieken 7:2. Noch het leven, noch het sterven komt altijd overeen met hetgeen wij waarschijnlijk achten. Het gehele getal, dat naar Egypte aftoog, was zes en zestig, vers 26, waarbij Jozef en zijn twee zonen, die er reeds waren, en Jakob zelf, het hoofd van het gezin, gevoegd moeten worden, en dan hebben wij het volledig getal van zeventig zielen vers 27. De "zeventig" geven het getal op van vijf en zeventig en Stefanus volgt hen hierin, Handelingen 7:14. De reden hiervoor laten wij over aan de gissing van de critici, maar laat ons opmerken:
+
 a. Dat hoofden van gezinnen voor allen hebben te zorgen, die tot hun huis behoren, hen moeten voorzien van het brood huns bescheiden deels, geschikte spijs beide voor lichaam en ziel. 
+
 b. Toen Jakob zelf heenging naar een land van overvloed, wilde hij geen van zijn kinderen in het onvruchtbare land achterlaten om er van honger om te komen.
 
 3\. Hoewel de vervulling van de beloften altijd zeker is, duurt het toch dikwijls lang eer zij komt. Het was nu al tweehonderdvijftien jaren geleden sedert God aan Abraham beloofde hem tot een groot volk te zullen maken, Hoofdstuk 12:2, en toch was die tak van zijn geslacht, waarop de belofte overging, nog slechts tot een getal van zeventig personen aangegroeid, waarmee hier zo bijzonder rekening wordt gehouden, opdat Gods macht, die deze zeventig tot een zo grote menigte heeft doen worden zelfs in Egypte zoveel heerlijker zou uitkomen. Als het Hem behaagt, dan zal "de kleinste tot duizend worden," Jesaja 60:22.
@@ -91,10 +108,13 @@ b. Toen Jakob zelf heenging naar een land van overvloed, wilde hij geen van zijn
 ## Genesis 46:28-34 
 
 I. Wij hebben hier de blijde ontmoeting tussen Jakob en zijn zoon Jozef, waarin wij hebben op te merken: 
-1. Jacobs wijsheid in zijn vooruit zenden van Juda naar Jozef om hem zijn aankomst in Gosen te berichten. Dit was een eerbiedsbetuiging aan de regering, onder wier bescherming deze vreemdelingen zich kwamen stellen, vers 28. Wij moeten zeer zorgvuldig vermijden om aan iemand, wie het ook zij, maar vooral aan de hogere machten, aanstoot te geven.
+
+1\. Jacobs wijsheid in zijn vooruit zenden van Juda naar Jozef om hem zijn aankomst in Gosen te berichten. Dit was een eerbiedsbetuiging aan de regering, onder wier bescherming deze vreemdelingen zich kwamen stellen, vers 28. Wij moeten zeer zorgvuldig vermijden om aan iemand, wie het ook zij, maar vooral aan de hogere machten, aanstoot te geven.
 
 2\. Jozefs kinderlijke eerbied voor hem. Hij ging hem in zijn karos tegemoet, en bij het onderhoud met hem toonde hij:
+
 a. Hoezeer hij hem eerde, hij vertoonde zich aan hem. Het is de plicht van de kinderen hun ouders te eren, ook wanneer zij, in uiterlijke omstandigheden, door de leiding van Gods voorzienigheid boven hen geplaatst zijn.
+
 b. Hoezeer hij hem liefhad. De tijd heeft het gevoel van de verplichting, die hij aan hem had, niet uitgewist, maar de overvloedige tranen die hij weende aan zijn hals, tranen van blijdschap van hem te zien, waren echte blijken van de oprechte en sterke genegenheid, die hij voor hem had. Zie hoe dicht bij elkaar smart en vreugde zijn in deze wereld, als tranen dienen om aan die beide uiting te geven, in de andere wereld zal wenen alleen tot smart beperkt zijn, in de hemel is er volmaakte blijdschap, daar zijn geen tranen van blijdschap, alle tranen, zelfs deze, zullen daar afgewist zijn, omdat daar de vreugde, zoals geen vreugde hier op aarde, onvermengd is. Er is opgemerkt van Jozef, toen hij Benjamin omhelsde, dat hij weende, maar toen hij zijn vader omhelsde, heeft hij lang aan zijn hals geweend, zijn broeder Benjamin was hem dierbaar, maar zijn vader Jakob is hem dierbaarder.
 
 3\. Jacobs grote voldoening in dit weerzien, vers 30. Dat ik nu sterve. Niet, dat het niet begerenswaardig voor hem was om met Jozef te leven, zijn eer te zien, er getuige van te zijn hoe nuttig hij was, maar hij smaakte zo’n voldoening en genot in dit eerste weerzien, dat hij dacht dat het te veel was om in deze wereld nog meer te begeren of te verwachten, waar onze genietingen toch altijd onvolmaakt moeten zijn. Jakob wenste onmiddellijk te sterven, en toch leefde hij nog zeventien jaren, hetgeen, naar verhouding van ons leven tegenwoordig, een aanzienlijk deel is van eens mensen leeftijd. De dood komt niet altijd wanneer wij hem roepen, hetzij in een uitbarsting van smart of van blijdschap. Onze tijden zijn in Gods hand, en niet in onze hand, wij moeten sterven als het Gode behaagt, en niet juist wanneer wij oververzadigd zijn van de genietingen des levens, of overstelpt zijn door de smart ervan.

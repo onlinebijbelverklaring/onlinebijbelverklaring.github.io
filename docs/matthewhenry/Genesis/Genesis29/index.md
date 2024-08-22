@@ -46,19 +46,27 @@ IV. Over de zaken van vorsten en machtige volken, die toen in wording waren, wor
 ## Genesis 29:1-8 
 
 Al de verschillende pleisterplaatsen op Israëls tocht naar Kanaän zijn nauwkeurig opgetekend, maar er is geen dagboek van Jacobs reis verder dan tot Beth-el. Neen, hij had niet meer zulke zalige nachten, zulke visioenen van de Almachtige als te Beth-el, die waren bestemd om een feestmaal te zijn, en dus moet hij ze niet als zijn dagelijks brood verwachten. Maar: 
+
 1\. Er wordt ons hier meegedeeld hoe goedsmoeds hij voortreisde na zijn lieflijke gemeenschap met God te Beth-el. Toen hief Jakob zijn voeten op, vers 1. Toen ging hij snel en blijmoedig voorwaarts, niet gedrukt onder zijn zorgen, onbeklemd door vrees, in volle verzekerdheid dat God met hem was. Na de visioenen, die wij van God gehad hebben, en de geloften, die wij Hem gedaan hebben in plechtige inzettingen, behoren wij met een verruimd hart de weg van Zijn geboden te lopen, Hebreeën 12:1.
 
 2\. Hoe gelukkig hij zijn reis volbracht, Gods voorzienigheid leidde hem naar het veld, waar de kudden van zijn oom gedrenkt moesten worden, en daar ontmoette hij Rachel, zijn aanstaande huisvrouw.
 Merk op:
+
 a. De Goddelijke voorzienigheid moet erkend worden in al de kleine omstandigheden, die samenwerken om een reis of een andere onderneming aangenaam en voorspoedig te maken. Indien wij, als wij in verlegenheid zijn, ter rechter tijd hen ontmoeten, die ons kunnen raden en leiden, indien ons een ongeluk overkomt, en diegenen zijn in onze nabijheid, die ons willen helpen, dan moeten wij niet zeggen dat dit toevallig was, of dat het geluk ons diende, maar dat de Voorzienigheid ons heeft geleid, en dat God ons gunst betoond heeft. Onze wegen zijn wegen der lieflijkheid, als wij er voortdurend God in erkennen.
+
 b. Zij, die kudden hebben, moeten er goed voor zorgen, naarstig zijn om het aangezicht van hun schapen te kennen, Spreuken 27:23. Wat hier gezegd wordt van de voortdurende zorg van herders voor hun schapen, vers 2, 3, 7-8, kan dienen om de tedere zorg voor te stellen, die onze Heere Jezus, de grote Herder der schapen, heeft voor Zijn kudde, dat is de kerk, want Hij is de goede Herder, die Zijn schapen kent en door hen gekend wordt, Johannes 10:15. De steen op de mond van de put, waarvan hier zo dikwijls melding wordt gemaakt, diende of om hun het eigendomsrecht er van te verzekeren, want water was schaars, het was daar niet tot ieders gebruik, of het diende om de put voor beschadiging te bewaren, door de hitte van de zon of door de een of andere kwaadwillige hand, of om te voorkomen, dat de lammeren er in zouden vallen en verdrinken.
+
 c. Bijzondere belangen moeten geen verenigde en wederzijdse hulp in de weg staan, als al de herders met hun kudden bijeen waren gekomen, dan hebben zij als vriendelijke, liefdevolle naburen hun kudden gedrenkt.
+
 d. Het betaamt ons beleefd en vriendelijk te spreken tot vreemdelingen. Jakob was geen hoveling, maar een eenvoudig man, wonende in tenten, toch spreekt hij zeer hoffelijk met de lieden, en noemt hen zijn broeders vers 4."de leer der goeddadigheid op de tong oefent grote macht," Spreuken 31:26. Sommigen denken dat hij hen broeders noemt, omdat zij allen hetzelfde bedrijf uitoefenden, herders waren, zoals hij. Hoewel hij nu verhoogd, bevorderd, stond te worden, schaamde hij zich toch niet voor zijn beroep.
+
 e. Zij, die achting betonen, zullen gewoonlijk ook achting ontvangen. Daar Jakob beleefd was jegens deze vreemdelingen, waren zij ook beleefd jegens hem. Toen hij het ondernam hen te leren hoe hun werk met spoed te volbrengen vers 7, hebben zij hem niet gezegd, dat hij zich met zijn eigen zaken meest bemoeien, maar ofschoon hij een vreemdeling was, gaven zij hem de reden van hun wachten, vers 8. Zij, die zich vriendelijk en als goede naburen betonen zullen ook met vriendelijkheid en voorkomendheid worden behandeld.
 
 ## Genesis 29:9-14 
 
-Hier zien wij: 1. Rachels nederigheid en vlijt, zij was een herderin, vers 9, zij droeg zorg voor de schapen, met dienstboden onder zich. Rachels naam betekent moederschaap of ooi Eerlijke, nuttige arbeid is iets, waarvoor niemand zich behoeft te schamen, en het behoeft ook niemands bevordering in de weg te staan.
+Hier zien wij: 
+
+1\. Rachels nederigheid en vlijt, zij was een herderin, vers 9, zij droeg zorg voor de schapen, met dienstboden onder zich. Rachels naam betekent moederschaap of ooi Eerlijke, nuttige arbeid is iets, waarvoor niemand zich behoeft te schamen, en het behoeft ook niemands bevordering in de weg te staan.
 
 2\. Jacobs tederheid en genegenheid. Toen hij vernam dat deze zijn nicht was (waarschijnlijk had hij haar naam tevoren reeds gehoord) en wetende, waartoe hij in dat land was gekomen, moet het hem, naar wij kunnen veronderstellen, terstond voor de geest zijn gekomen, dat zij zijn vrouw moest worden, daar hij reeds getroffen was door haar edel, schoon gelaat, al was dit ook gebruind door de zon, en al droeg zij slechts het gewaad van een herderin, vandaar dat hij oplettend en hoffelijk is jegens haar, en zeer begerig om haar van dienst te zijn, vers 10. Vandaar ook dat hij haar toespreekt, met tranen van blijdschap en haar met hartelijke genegenheid kust, vers 11. Nu spoedt zij zich heen om er mededeling van te doen aan haar vader, want zij wil de liefdesverklaring van haar neef niet aannemen, zonder dat haar vader er kennis van draagt en het goedkeurt, vers 12. Die wederzijdse ingenomenheid met elkaar bij de eerste kennismaking was een goed voorteken voor hun toekomstig geluk als man en vrouw.
 
@@ -89,6 +97,7 @@ Het hebben van vele vrouwen past zeer goed bij de vleselijke, zinnelijke geest v
 
 Wij hebben hier de geboorte van vier Jacobs zonen, allen bij Lea.
 Merk op 
+
 I. Dat Lea, die minder bemind was, met kinderen werd gezegend, terwijl aan Rachel die zegen wordt onthouden, vers 31. Zie hoe Gods voorzienigheid in de bedeling van zijn gaven naar evenredigheid handelt, teneinde het evenwicht te bewaren, kruisen en zegeningen tegenover elkaar stellende, opdat niemand zich te veel zou verheffen of te veel neergedrukt zou zijn. Rachel heeft geen kinderen, maar zij is bevoorrecht met de liefde van haar man, Lea derft die liefde, maar zij is vruchtbaar. Zo was het ook met de twee vrouwen van Elkana, 1 Samuel 1:5, want de Heere is wijs en rechtvaardig. Toen nu de Heere zag, dat Lea gehaat was, dat is: minder bemind dan Rachel, in welke zin en betekenis wij het haten moeten verstaan van vader en moeder in vergelijking namelijk met Christus, Lukas 14:26, toen heeft de Heere haar een kind geschonken. Dit was een bestraffing voor Jakob omdat hij zo’n groot verschil maakte tussen haar, tot wie hij in gelijke betrekking stond, een bestraffing ook voor Rachel, omdat zij wellicht triomfeerde over haar zuster wegens de meerdere liefde van Jakob, en het was een vertroosting voor Lea, opdat zij niet neergedrukt zou zijn onder haar versmaadheid. Alzo "geeft God overvloediger eer aan hetgeen gebrek aan dezelve heeft," 1 Corinthiërs 12:24.
 
 II. Dat de namen, die zij aan haar kinderen gaf, de uitdrukking waren van haar liefde en eerbied jegens God en jegens haar man.

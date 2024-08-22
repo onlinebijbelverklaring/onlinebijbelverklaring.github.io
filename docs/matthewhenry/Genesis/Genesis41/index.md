@@ -82,7 +82,9 @@ Het vertellen van dwaze dromen kan niets beters dan dwaze praat opleveren. Maar 
 Maar nog twee jaren in de gevangenis blijvende, en er nu ten laatste bij deze gelegenheid uitkomende, om des konings dromen uit te leggen, werd hem de weg gebaand tot zijn zeer grote verhoging. Aan hen, die geduldig de Heere verbeiden zal hun wachten betaald worden, niet slechts het kapitaal maar ook de interest, Klaagliederen 3:26.
 
 2\. Jozefs voorstelling aan Farao. De zaak van de koning eiste spoed, Jozef wordt in allerijl uit de gevangenis gehaald. Farao’s bevel ontsloeg hem beide uit de gevangenis en uit de dienstbaarheid, en maakte hem tot kandidaat voor een der hoogste ambten van vertrouwen aan het hof. De betamelijkheid eiste, dat Jozef zich schoor en van kleren verwisselde eer hij tot de koning kwam, maar deze kon er hem nauwelijks de tijd voor toestaan. Hiermede wordt zoveel mogelijk haast gemaakt, en Jozef wordt naar het hof gebracht, wellicht even verbaasd als Petrus was, toen hij uit de gevangenis gevoerd werd, Handelingen 12:9. Zo plotseling is hij uit de gevangenschap weergebracht, dat het hem was alsof hij droomde, Psalm 126:1. Zonder te vragen wie of vanwaar hij was, geeft Farao hem zijn zaak te kennen, namelijk dat hij van hem de uitlegging van zijn droom verwacht, vers 15, waarop Jozef hem een zeer bescheiden en betamelijk antwoord geeft, vers 16, waarmee hij:
+
 a. Gode de eer toebrengt: "Het is buiten mij, God zal het geven." Grote gaven schijnen dan het meest schoon en uitnemend, als zij, die ze hebben, ze gebruiken met ootmoed, er de lof niet van opeisen voor henzelf maar hem toebrengen aan God. Aan de zodanigen geeft God meer genade.
+
 b. Hij toont eerbied voor Farao, en hartelijke welwillendheid voor hem en zijn regering, door te veronderstellen dat de uitlegging een antwoord van vrede van God zal wezen. Zij, die de orakelen Gods raadplegen, kunnen een antwoord van vrede verwachten. Als Jozef tot uitlegger gemaakt wordt, zo hoop het beste.
 
 ## Genesis 41:17-32 
@@ -109,7 +111,9 @@ Hier is:
 I. De goede raad, die Jozef gaf aan Farao, namelijk: 
 
 1\. Dat hij in de jaren van overvloed moest opleggen voor de jaren van honger, koren moest opkopen, als het goedkoop was, ten einde beide zichzelf te verrijken en het land van koren te kunnen voorzien, als het duur en schaars zal zijn.
+
 a. Een trouwe waarschuwing moet altijd gevolgd worden door goede raad. Een kloekzinnig mens ziet het kwaad, opdat hij zich verberge. God heeft ons in Zijn woord gesproken van een dag van beproeving en nood, die aanstaande is, wanneer wij al de genade nodig zullen hebben, die wij kunnen verkrijgen. Voorzie u er dan van.
+
 b. Tijden van verzamelen moeten naarstig gebruikt worden, omdat er een tijd van uitgeven zal komen. "Laat ons naar de mier gaan, en wijsheid van haar leren," Spreuken 6:6-8.
 
 2\. Omdat hetgeen ieders werk is, gewoonlijk blijkt niemands werk te zijn, raadt hij Farao aan om beambten aan te stellen, die dit tot hun werk moeten maken, en een persoon te kiezen, die over allen het toezicht heeft, vers 33. Indien Jozef die raad niet gegeven had, zou het waarschijnlijk niet geschied zijn, Farao’s raadslieden waren even weinig instaat een goed gebruik te maken van de droom, als zijn tovenaars om hem uit te leggen, daarom is van hem gezegd: dat hij "de oudsten heeft onderwezen." Psalm 105:22. Hieruit kunnen wij dus terecht met Salomo afleiden: "Beter is een arm en wijs jongeling, dan een oud en zot koning," Prediker 4:13.
@@ -122,18 +126,27 @@ II. De grote eer, die Farao Jozef aandeed.
 Waarschijnlijk waren er wel personen aan het hof, die tegen Jozefs bevordering waren, wat aan Farao aanleiding gaf om hem zijn benoeming zo dikwijls te herhalen, en wel met die plechtige verzekering, vers 44. Ik ben Farao. Toen het voorstel gedaan werd, dat er een korenmeester-generaal benoemd zou worden, was dit goed in de ogen van al zijn knechten, vers 37, daar ieder van hen hoopte de post te zullen krijgen, maar toen Farao tot hen zei: "Jozef zal de man er voor zijn", lezen wij niet, dat een van hen een antwoord gaf, omdat het hun niet beviel, maar zij berustten er in, omdat zij niet anders konden. Jozef had ongetwijfeld vijanden, schutters, die hem hebben beschoten en gehaat, Hoofdstuk 49:23, evenals ook Daniël, Hoofdstuk 6:4, 5.
 
 3\. Hij schonk hem alle mogelijke eretekenen, ten einde hem in de achting en eerbied van het volk te verheffen, als des konings gunsteling in wiens eer de koning een welbehagen heeft.
+
 a. Hij gaf hem zijn eigen ring, als bevestiging van zijn aanstelling en ten teken van zijn bijzondere gunst, of wel: het stond gelijk met hem het grootzegel over te geven.
+
 b. Hij gaf hem fraaie kleren, inplaats van zijn gevangeniskleren. Want zij, die in de paleizen van de koningen zijn, moeten zachte kleren dragen. Hij, die ‘s morgens nog zijn ijzeren boeien voortsleepte, was eer de avond kwam met een gouden keten gesierd.
+
 c. Hij deed hem rijden op de tweede wagen, die op de zijne volgde, en gaf bevel dat men zich voor hem zou buigen: "Knielt, zoals voor Farao zelf.
+
 d. Hij gaf hem een nieuwe naam, om zijn gezag over hen te kennen te geven, maar die tevens de uitdrukking was van zijn waardering van hem: Zafnath-Paäneah - een ontdekker van verborgenheden.
+
 e. Hij heeft hem een eervol huwelijk doen aangaan met de dochter van een vorst. Waar God vrijgevig is geweest in het geven van wijsheid en andere gaven, daar was Farao niet karig in het schenken van eerbewijzen. Nu was deze verhoging van Jozef: 
+
 A. Een overvloedige beloning voor zijn onschuldig en geduldig lijden, een blijvend voorbeeld en bewijs van de rechtvaardigheid en goedheid van de Voorzienigheid en een aanmoediging voor alle Godvruchtigen om op een goede God te vertrouwen. 
+
 B. Zij was een type van de verhoging van Christus, de grote verklaarder van verborgenheden, Johannes 2:18, of, gelijk sommigen Jozefs nieuwe naam vertalen: de "behouder der wereld." De grootste heerlijkheid van de bovenwereld is Zijn deel, de grote belangen zijn aan Hem toevertrouwd, en alle macht is Hem gegeven in hemel en op aarde. Hij is de verzamelaar, de bewaarder en de beschikker van al de schatten van de Goddelijke genade, de opperbestuurder van het koninkrijk Gods onder de mensen. Het is het werk van Zijn dienstknechten om voor Hem uit te roepen: "Knielt, kust de Zoon!" Genesis 41:46-57
 
 Merk hier op:
+
 I. De opbouw van Jozefs gezin door de geboorte van twee zonen, Manasse en Efraïm, vers 50-52. In de namen, die hij hun gaf, erkende hij Gods voorzienigheid, die zulk een gelukkige keer in zijn lot had teweeggebracht.
 
 1\. God heeft hem "de moeite doen vergeten" Job 11:16. Wij behoren ons leed zó te dragen, als die niet weten, of Gods voorzienigheid misschien later zoveel vertroostingen en zegeningen zal schenken, dat zij ruim opwegen tegen alle leed en beproevingen, zodat wij ze, als zij geleden zijn, vergeten. Maar kon hij zo onnatuurlijk wezen, dat hij "het ganse huis zijns vaders vergat?" Hij bedoelt de onvriendelijkheid waarmee zijn broeders hem bejegend hebben of misschien de rijkdom en de eer, die hij van zijn vader had verwacht met het geboorterecht. Het gewaad, dat hij nu droeg, deed hem de veelvervige rok vergeten, die hij in het huis van zijn vader had gedragen.
+
 2\. God heeft hem "vruchtbaar gemaakt in het land van zijn verdrukking." Het is het land van zijn verdrukking geweest, en in zekere zin was het dit nog, want het was Kanaän, het land der belofte, niet. Zijn verwijdering van zijn vader was nog zijn verdrukking. Licht is soms voor de oprechte gezaaid in een dor land, maar toch, als God het is, die het zaait en het bevochtigt, dan zal het opwassen. De verdrukking der heiligen bevordert hun vruchtbaarheid. Efraïm betekent vruchtbaarheid, en Manasse vergetelheid, want deze twee gaan dikwijls samen, toen Jeschurun vet werd, heeft hij God vergeten, die hem gemaakt had.
 
 II. De vervulling van Jozefs voorzeggingen. Farao had groot vertrouwen in de waarheid er van, daar hij, hetgeen door anderen niet aldus kon gevoeld worden - , misschien in zijn eigen geest een nauwkeurige overeenkomst gewaar werd tussen die voorzeggingen en zijn dromen, zoals tussen de sleutel en het slot, en de uitkomst bewees, dat hij niet bedrogen was. De zeven jaren van overvloed kwamen, vers 47 maar liepen ten einde, vers 53. Wij behoren het naderend einde te voorzien van de dagen van onze voorspoed, en daarom moeten wij ons niet veilig en gerust wanen in het genot van onze voorspoed, alsof die altijd zal duren, en niet traag of onachtzaam te zijn in het gebruik maken van onze goede gelegenheden. Jaren van overvloed zullen eindigen, en daarom: wat uw hand vindt om te doen, doe het, en vergader in de tijd dat vergaderd kan worden. "De morgenstond komt, en ook de nacht," Jesaja 21:12, de overvloed en ook de honger. 
