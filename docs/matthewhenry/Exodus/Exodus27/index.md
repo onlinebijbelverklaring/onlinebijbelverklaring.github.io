@@ -29,12 +29,19 @@ Betreffende de olie voor de luchter, vers 20,21.
 ## Exodus 27:1-8 
 
 Zoals God in de tabernakel Zijn tegenwoordigheid wilde openbaren onder Zijn volk, zo moesten zij Hem daar hun hulde en aanbidding brengen, niet in de tabernakel zelf, (daar moesten alleen de priesters als Gods huisdienaren binnengaan) maar in de voorhof van de tabernakel, waar zij als gewone onderdanen kwamen. Daar moest een altaar opgericht worden, waarop zij hun offeranden moesten brengen, en waarop de priesters ze aan God moesten offeren. Dit altaar moest hun gaven heiligen, vandaar moesten zij God hun diensten bieden, zoals Hij hun van het verzoendeksel Zijn orakelen gaf, en aldus werd er een gemeenschap geopend tussen God en Israël. Aan Mozes worden hier bevelen gegeven ten opzichte van:
+
 1\. De afmetingen ervan, het was vierkant, vers 1.
+
 2\. De hoornen ervan, die tot nut en sieraad waren, vers 2, de offers werden met touwen aan de hoornen van het altaar gebonden, en tot de hoornen van het altaar vluchtten boosdoeners om er bescherming te vinden.
+
 3\. De materialen, het was van hout, overtrokken met koper, vers 1,2.
+
 4\. De gereedschappen ervan, die alle van koper moesten wezen.
+
 5\. Het rooster, dat geplaatst was in de holte in het midden van het altaar, waarop het vuur was en het offer verbrand werd. Hij was gemaakt van netwerk van koper, als een zeef, en in de holte geplaatst, om het vuur beter te doen branden, en opdat de as in de holte van het altaar zou kunnen vallen, vers 4,5.
+
 6\. De handbomen, om het te dragen, vers 6,7. 
+
 Eindelijk, wordt hij verwezen naar het voorbeeld, dat hem getoond is, vers 8. 
 Dit koperen altaar nu was een type van Christus, stervende om verzoening te doen voor onze zonden: het hout zou door het vuur van de hemel verteerd zijn, indien het niet beveiligd was door het koper, en de menselijke natuur van Christus zou de toorn Gods niet hebben kunnen dragen, indien zij niet door een Goddelijke kracht ondersteund was geworden. Christus heeft zich voor de kerk als haar altaar geheiligd, Johannes 17:19, en door Zijn middelaarschap heiligt Hij nog dagelijks de diensten van Zijn volk, die ook macht hebben van dit altaar te eten, daar zij er als geestelijke priesters aan dienen. Tot de hoornen van dit altaar nemen arme zondaren de toevlucht, als zij door de gerechtigheid worden vervolgd, en daar zijn zij veilig krachtens het offer, dat er geofferd is.
 
@@ -45,5 +52,7 @@ Voor het altaar moest een plein of voorhof wezen, ingesloten door gordijnen van 
 ## Exodus 27:20-21 
 
 In het vijf en twintigste hoofdstuk lazen wij van de kandelaar, en hier wordt gedurig bevolen dat de lampen er gedurig in moeten branden, want anders zou hij nutteloos zijn. In iedere kandelaar behoort een brandend en schijnend licht te wezen, kandelaars zonder kaarsen of lampen zijn als fonteinen zonder water, of als regenloze wolken. Nu moest:
+
 1\. Het volk in de olie voorzien, van het volk moeten de dienaren des HEEREN hun onderhoud hebben. Of liever, de reine olie betekende de genadegaven des Geestes, die aan alle gelovigen meegedeeld worden uit Christus, de goede olijfboom, uit wiens volheid wij ontvangen Zacharia 4:11,12, en zonder wie ons licht niet kan schijnen voor de mensen.
+
 2\. De priesters moesten de lampen aansteken en verzorgen, het behoorde tot hun dagelijkse dienst om ze altijd te doen branden, nacht en dag, zo is het het werk van de Evangeliedienaren om, door de prediking en verklaring der Schrift (die als een lamp zijn) de kerk, Gods tabernakel op aarde, te verlichten, en de geestelijke priesters in de dienst van God te onderwijzen. Het moet een eeuwige inzetting zijn, dat de lampen van het woord even nauwkeurig worden aangestoken als het reukwerk van gebed en lofzegging wordt geofferd.

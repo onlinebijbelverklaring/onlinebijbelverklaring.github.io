@@ -52,6 +52,7 @@ II. Een kort verslag van het werk, aangeboden aan Mozes, toen alles voleindigd w
 ## Exodus 39:1-31 
 
 In dit bericht van het vervaardigen van de priesterkleren naar de voorschriften, die er van gegeven waren, Hoofdstuk 28, kunnen wij opmerken:
+
 1\. Dat de priesterkleren hier ambtskleren, of dienstkleren, genoemd worden, vers 1. Zij, die gewaden van de eer dragen, moeten ze beschouwen als dienstklederen, want van hen, op wie eer gelegd is, wordt dienst verwacht. Er wordt van hen, die met witte kleren bekleed zijn, gezegd dat zij "voor de troon van God zijn, en Hem dag en nacht dienen in Zijn tempel," Openbaring 7:13, 15. Heilige kleren worden voor de mensen niet gemaakt om er in te slapen, of er trots op straat heen en weer in te gaan, maar om er dienst in te verrichten, en dan zijn zij in waarheid tot heerlijkheid en tot sieraad. De Zoon des mensen zelf is niet gekomen om gediend te worden, maar om te dienen.
 
 2\. Dat al de zes paragrafen, die een bepaald verslag geven van het maken van deze heilige kleren, eindigen met deze woorden: gelijk de Heere aan Mozes bevolen had, vers 5, 7, 21, 26-29, 31. Dit vinden wij in geen der voorafgaande berichten, alsof zij in deze dingen, meer dan in al de andere tot de tabernakel behorende, zeer bijzonder acht hadden gegeven op het voorschrift van de Heere, zowel tot hun volmacht als tot hun leiding. Hiermede wordt aan alle dienstknechten van de Heere een wenk gegeven, om in al hun dienen het woord Gods tot hun richtsnoer te nemen en te handelen in overeenstemming met, en gehoorzaamheid aan, het gebod van God.
@@ -59,13 +60,17 @@ In dit bericht van het vervaardigen van de priesterkleren naar de voorschriften,
 3\. Dat deze kleren, in overeenstemming met het overige toebehoren van de tabernakel zeer kostbaar en zeer prachtig waren. Aldus werd de kerk in haar jeugd onderwezen en behaagd met de beginselen van deze wereld, maar om nu onder het evangelie, dat de bediening is van de Geest, zodanige prachtige kledij aan te nemen en verplichtend te stellen zoals de kerk van Rome, onder voorwendsel van betamelijkheid en onderwijs, doet, dat is een verraden van de vrijheid, waarmee Christus ons vrijgemaakt heeft dat is de kerk weer onder de dienstbaarheid te brengen van die vleselijke verordeningen, die slechts tot op de tijd van de verbetering waren opgelegd.
 
 4\. Dat zij allen schaduwen waren van toekomstige goederen, maar dat het wezen Christus is en de genade van het evangelie, als dus het wezen gekomen is, dan is het dwaasheid om nog aan de schaduw te blijven hangen.
+
 a. Christus is onze grote Hogepriester, toen Hij het werk van onze verlossing op zich nam, heeft Hij de dienstkleding aangedaan. Hij bekleedde zich met de genadegaven van de Geest, die Hij zonder mate ontvangen heeft, Hij heeft zich gegord met de kunstige riem of gordel van de volharding, om met Zijn onderneming voort te gaan, heeft zich belast met geheel Gods geestelijk Israël, droeg hen op Zijn schouders en op Zijn hart, heeft hen in Zijn handpalmen gegraveerd, en hen in de borstlap van de gerechtigheid Zijn Vader voorgesteld. Eindelijk: Hij heeft zich gekroond met heiligheid van de Heere, geheel Zijn onderneming toewijdende aan de eer van de heiligheid van Zijn Vader. Aanzie dan nu hoe groot deze is.
+
 b. Ware gelovigen zijn geestelijke priesters. Het reine lijnwaad, waarvan al hun dienstkleding gemaakt moeten worden, is "de rechtvaardigmaking van de heiligen," Openbaring.19:8, en heiligheid van de Heere moet zo op hun voorhoofd geschreven zijn, dat allen, die met hen omgaan, haar zien en zeggen, dat zij het beeld dragen van de heiligheid van God, en toegewijd zijn aan de lof er van.
 
 ## Exodus 39:32-43 
 
 Merk hier op:
+
 I. Dat de bouwers van de tabernakel met bekwame spoed hebben gewerkt. Er waren niet veel meer dan vijf maanden van het begin van het werk tot de voleindiging er van. Hoewel er zeer veel fraai en fijn werk bij was, dat gewoonlijk veel tijd vordert, borduren en graveren niet slechts in goud, maar ook in edelgesteenten, hebben zij er toch weinig tijd in doorgebracht. Kerkenwerk gaat gewoonlijk langzaam, maar zij zijn er spoedig mee gereed gekomen, en toch hebben zij het met de grootst-mogelijke nauwkeurigheid gedaan. Want:
+
 1\. Er werden vele handen voor gebruikt, en alle werklieden waren eensgezind en hebben niet met elkaar getwist. Dit bespoedigde het werk en maakte het gemakkelijk.
 
 2\. De werklieden waren door God onderwezen, en zo bleven zij bewaard voor vergissingen, die vertraging zouden hebben teweeggebracht.
@@ -80,10 +85,13 @@ En behalve dat: hoewel zij beter dan Mozes het werk wisten te doen, had Mozes to
 IV. Dat Mozes na ingesteld onderzoek bevonden heeft, dat alles naar regel en voorschrift gedaan was, vers 43. Beide tot hun en zijn eigen voldoening heeft Mozes geheel het werk nagezien, stuk voor stuk, en zie, zij hadden het gedaan naar het voorbeeld, dat hem op de berg getoond was, want hetzelfde wezen, dat hem het voorbeeld had getoond, had hun hand bestuurd bij het werk. Al de kopieën van Gods genade komen nauwkeurig overeen met het origineel van Zijn raadsbesluiten, wat God in ons en door ons werkt, is de vervulling van het welbehagen van Zijn goedheid, en als de verborgenheid Gods vervuld zal wezen, en al hetgeen Hij gewrocht heeft vergeleken zal worden bij Zijn voornemens en bedoelingen, dan zal het blijken dat: Zie, alles gedaan is naar de raad van Zijn wil, waarvan geen tittel of jota ter aarde zal vallen, geen tittel of jota zal er van afgeweken zijn.
 
 V. Dat Mozes hen zegende.
+
 1\. Hij prees hen en gaf hun zijn goedkeuring te kennen van alles wat zij gedaan hadden. Hij heeft geen fouten gevonden waar geen fouten waren, zoals sommigen doen, die denken dat zij aan hun eigen oordeel tekort doen, indien zij ook op het beste werk niets weten aan te merken. In al dat werk zou er waarschijnlijk hier en daar een verkeerde steek gevonden zijn, een lijn die niet geheel recht of niet genoeg gebogen was, hetgeen aan een al te streng of kieskeurig criticus iets te berispen gegeven zou hebben, maar Mozes was te edel van gemoed om kleine fouten te willen zien, waar geen grote aanwezig zijn. Alle regeerders moeten tot prijs zijn dergenen die goed doen, zowel als tot verschrikking der kwaaddoeners. Waarom zou iemand er zich op beroemen, dat hij moeilijk te voldoen is? 
 
 2\. Hij heeft hen niet alleen geprezen, maar ook voor hen gebeden. Hij zegende hen als gezaghebbende, want hetgeen minder is wordt gezegend van hetgeen meerder is. Wij lezen van geen loon, dat Mozes hun betaalde voor hun werk, maar deze zegen gaf hij hun. Want gewoonlijk is de arbeider wel zijn loon waardig maar in dit geval:
 
 a.	Arbeidden zij voor zichzelf. De eer en de vertroosting, de lieflijkheid van Gods tabernakel onder hen te hebben, zal beloning genoeg zijn. Indien gij wijs zijt, gij zijt wijs voor uzelf.
+
 b.	Van de hemel ontvingen zij hun spijs om niet, voor henzelf en voor hun gezin, en hun kleren verouderden niet aan hen zodat zij geen loon nodig hadden, noch reden hadden het te verwachten. Gij hebt het om niet ontvangen, geeft het om niet. Onze verplichting om God te dienen, zowel uit gehoorzaamheid aan Hem als in ons eigen belang, moet volstaan om ons op te wekken tot ons werk, al zouden wij ook geen vooruitzicht hebben op loon. Maar: 
+
 c.	Deze zegen in de Naam van de Heere was loon genoeg voor al hun werk. Zij, die door God worden gebruikt, zullen door God gezegend worden, en die Hij zegent, zijn in waarheid gezegend. De zegen, dien Hij gebiedt, is leven tot in eeuwigheid.

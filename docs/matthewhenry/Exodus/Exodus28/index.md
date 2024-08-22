@@ -45,9 +45,10 @@
 ## Inleiding 
 
 De orders waren gegeven voor het in orde maken van de plaats van de openbare aanbidding, wordt nu zorg gedragen voor de priesters die als de huisdienaren van de God Israëls in die veilige plaats de dienst moesten verrichten. Hij huurde dienaren als een teken van Zijn voornemen om onder hen te wonen. In dit hoofdstuk:  
-1.	Doet Hij keuze van de personen, die Zijn dienaren zullen zijn, vers 1. Bepaalt Hij hun livrei. Hun werk was heilig, en zo moeten ook hun kleren heilig zijn, en in overeenstemming met de heerlijkheid van het huis, dat nu opgericht stond te worden vers 2 – 4.  
-2.	Hij bepaalt de kledij van Zijn opperste dienaar, de hogepriester, die zeer kostbaar was. Een Efod en gordel, vers 5-14. Een borstlap des gerichts, vers 15-29, waarin de Urim en Thummim gezet moeten zijn, vers 30. De mantel des Efods, vers 31-35 De hoed vers 36-39.   
-3.	De kleren van de mindere priesters, vers 40, 43. En ook deze waren schaduwen van toekomende goederen.  
+
+I.	Doet Hij keuze van de personen, die Zijn dienaren zullen zijn, vers 1. Bepaalt Hij hun livrei. Hun werk was heilig, en zo moeten ook hun kleren heilig zijn, en in overeenstemming met de heerlijkheid van het huis, dat nu opgericht stond te worden vers 2 – 4.  
+II.	Hij bepaalt de kledij van Zijn opperste dienaar, de hogepriester, die zeer kostbaar was. Een Efod en gordel, vers 5-14. Een borstlap des gerichts, vers 15-29, waarin de Urim en Thummim gezet moeten zijn, vers 30. De mantel des Efods, vers 31-35 De hoed vers 36-39.   
+III.	De kleren van de mindere priesters, vers 40, 43. En ook deze waren schaduwen van toekomende goederen.  
 
 ## Exodus 28:1-4 
 
@@ -93,7 +94,11 @@ b. Door Hem wordt hetgeen goed is Gode aangenaam gemaakt, onze persoon, ons werk
 ## Exodus 28:40-43 
 
 Wij hebben hier:
+
 1\. Bijzondere orders omtrent de kledij van de mindere priesters. Zij moesten rokken hebben en gordels en mutsen van dezelfde stof als die van de hogepriester, maar er was een verschil van vorm tussen hun mutsen en zijn hoed. De hunne en de zijne waren tot heerlijkheid en sieraad, vers 40, opdat zij een groot aanzien zouden hebben bij hun bediening, maar al die heerlijkheid was niets in vergelijking met de heerlijkheid van de genade, die schoonheid was niets in vergelijking met de schoonheid van de heiligheid, waarvan deze heilige kleren een type waren. Inzonderheid wordt hun bevolen om bij hun bediening linnen onderbroeken te dragen, vers 42. Dit leert ons zedigheid en welvoeglijkheid te betrachten in kledij en houding, altijd, maar inzonderheid bij de openbare eredienst, 1 Corinthiërs 11:5, 6, 10, Het geeft ook te kennen hoe grote behoefte onze ziel heeft aan een bedekking, opdat "de schaamte onzer naaktheid niet gezien worde." 2. Een algemene regel betreffende de kleren, die zowel de hogepriester als de mindere priesters aan moesten hebben bij hun eerste ordening of heiliging, als teken dat zij met dit ambt bekleed waren, vers 41, en daarna bij al hun ambtsverrichtingen moesten dragen, maar niet op andere tijden, vers 43, en dit wel op hun risico, opdat zij geen ongerechtigheid dragen en sterven. 
-Zij die zich schuldig maken aan nalatigheid in plicht, zowel als aan nalaten of verzuim van plicht, zullen hun ongerechtigheid dragen. Als de priesters de ingestelde dienst verrichten en het niet doen in de voorgeschreven kledij, dan is het (zeggen de Joodse geleerden) alsof een vreemde het deed, "en de vreemde, die nadert, zal gedood worden." God zal ook geen vermetelheid en oneerbiedigheid voorbijzien, zelfs niet in hen, die Hij het dichtst tot Hem doet naderen. Indien Aaron zelf minachting betoont voor de Goddelijke instelling, dan zal hij ongerechtigheid dragen, en sterven. Voor ons zijn deze kleren een type van: 
+
+Zij die zich schuldig maken aan nalatigheid in plicht, zowel als aan nalaten of verzuim van plicht, zullen hun ongerechtigheid dragen. Als de priesters de ingestelde dienst verrichten en het niet doen in de voorgeschreven kledij, dan is het (zeggen de Joodse geleerden) alsof een vreemde het deed, "en de vreemde, die nadert, zal gedood worden." God zal ook geen vermetelheid en oneerbiedigheid voorbijzien, zelfs niet in hen, die Hij het dichtst tot Hem doet naderen. Indien Aaron zelf minachting betoont voor de Goddelijke instelling, dan zal hij ongerechtigheid dragen, en sterven. Voor ons zijn deze kleren een type van:
+ 
 a. "De gerechtigheid van Christus, " indien wij niet in deze voor God verschijnen, dan zullen wij "ongerechtigheid dragen en sterven." Wat hebben wij op het bruiloftsfeest te doen, zonder een bruiloftskleed? Of aan Gods altaar zonder de kledij van Zijn priesters? Mattheüs 22:12, 13.
+
 b. "De wapenrusting Gods," voorgeschreven in Efeziers 6:13. Als wij het wagen die wapenrusting af te leggen, dan zullen onze geestelijke vijanden de dood veroorzaken van onze ziel, en ons bloed zal op ons hoofd zijn. Zalig dus hij, die waakt en zijn kleren bewaart. Openbaring 16:15. Eindelijk. Dit wordt gezegd een eeuwige inzetting te zijn, dat is: zij moet duren, zolang het priesterschap duurt. Maar het voortdurende, het eeuwige er van is in het wezen, de substantie, waarvan deze dingen de schaduwen zijn geweest.

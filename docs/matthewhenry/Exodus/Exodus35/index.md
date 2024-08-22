@@ -39,9 +39,10 @@
 Hetgeen gezegd en gedaan had moeten worden toen Mozes voor de eerste maal van de berg af kwam indien het gouden kalf niet alles in wanorde had gebracht, begint nu eindelijk, nadat met grote moeite de verzoening tot stand was gebracht, gezegd en gedaan te worden, en met de grote zaak van de oprichting van de eredienst Gods kan nu zonder stoornis worden voortgegaan.  
 
 I. Mozes geeft aan Israël de instructie, ontvangen van God, die een onmiddellijk waarnemen vereisen.  
-1. Betreffende de sabbat, vers 1-3.  
-2. Betreffende de bijdragen, die gegeven moesten worden voor de oprichting van de tabernakel, vers 4-9.  
-3. Betreffende het maken van de tabernakel en zijn gereedschappen, vers 10-19 II. Het volk brengt zijn bijdragen, vers 20-29.  
+1\. Betreffende de sabbat, vers 1-3.  
+2\. Betreffende de bijdragen, die gegeven moesten worden voor de oprichting van de tabernakel, vers 4-9.  
+3\. Betreffende het maken van de tabernakel en zijn gereedschappen, vers 10-19.  
+II. Het volk brengt zijn bijdragen, vers 20-29.  
 III. De aanstelling van de hoofdwerklieden, vers 30-35.  
 
 ## Exodus 35:1-19 
@@ -56,9 +57,13 @@ In Hoofdstuk 34:32 is gezegd in het algemeen: Mozes gebood hun al wat de Heere m
 Een sabbat van sabbattisme, zoals anderen die woorden lezen, een type van het sabbattisme, of de rust, beide geestelijke en eeuwige, die daar overblijft voor het volk van God, Hebreeën 4:9. Het is een sabbat van de rust, dat is: waarin een rusten van alle wereldlijke arbeid zorgvuldig en nauwkeurig waargenomen moet worden. Het is een sabbat en een kleine sabbat, zoals sommigen van de Joden hier willen lezen, niet slechts de hele dag als een sabbat waarnemende, maar nog een uur vóór het begin, en een uur na het einde er van, die zij er van hun eigen tijd bijvoegen, en een kleine sabbat noemen, om te tonen hoe verheugd zij waren over de nadering van de sabbat, en hoe ongaarne zij er van scheidden. Het is een sabbat van de rust, maar het is een rust voor de Heere, aan wiens eer hij gewijd moet wezen. Er wordt hier een straf gesteld op het verbreken er van: al wie daarop werk doet, zal gedood worden, en een bijzonder verbod om vuur te ontsteken op de sabbat voor dienstwerk, zoals van een smid, of loodgieter, enz.
 
 4\. Hij beveelt dat er toebereidselen zullen gemaakt worden voor de oprichting van de tabernakel. Er moesten twee dingen gedaan worden: 
+
 a. Allen, die er toe instaat waren, moesten er bijdragen voor geven. Neemt van hetgeen gijlieden hebt een hefoffer, vers 5. de tabernakel moest aan de eer Gods worden gewijd en gebruikt in Zijn dienst, en daarom was dat wat gebracht werd voor de oprichting en meubilering er van een hefoffer voor de Heere. Onze goedheid raakt niet tot God, maar wat gegeven wordt ter bevordering van Zijn koninkrijk en de belangen daarvan onder de mensen wil Hij aannemen als een offer gebracht aan Hemzelf en Hij eist zodanige erkenning, dat wij alles van Hem ontvangen, en zodanig bewijs, dat wij alles aan Hem willen wijden. De regel is: Een ieder, wiens hart vrijwillig is, zal het brengen. 
+
 Het was geen belasting, die hun opgelegd werd, maar een vrijwillige bijdrage, om ons te kennen te geven: 
+
 A. Dat God ons juk niet zwaar heeft gemaakt. Hij is een Vorst, die Zijn onderdanen geen zware lasten oplegt, en zich niet doet dienen met spijsoffer, maar trekt met mensenkoorden, en het aan onszelf overlaat om te oordelen hetgeen recht is. In Zijn regering is geen oorzaak tot klacht, want Hij heerst niet met strengheid.
+
 B. Dat God een blijmoedige gever liefheeft, en dat vrijwillige offeranden Hem het meest welbehaaglijk zijn. Die diensten zijn Hem welgevallig die komen "uit een gewillig hart van een gewillig volk," Psalm 110:3.
 
 b. Allen, die bekwaam waren, moesten werken, vers 10. Allen die wijs van hart zijn onder ulieden, zullen komen en maken. Zie hoe God Zijn gaven onderscheidenlijk uitdeelt, en, "een iegelijk, gelijk hij gave ontvangen heeft, alzo bediene hij die," 1 Petrus 4:10. Zij, die rijk waren, moesten materialen brengen om ze te bewerken, zij, die vernuftig waren, moesten de tabernakel dienen met hun verstand of vernuft, gelijk zij elkaar nodig hadden, zo had de tabernakel hen beide nodig, 1 Corinthiërs 12:7,21. Het werk moest wel voorspoedig voortgaan, als sommigen hielpen met hun beurs, anderen met hun handen, en beide met een gewillig hart. Gelijk Mozes hun gezegd had wat gegeven moet worden, vers 5-9, zo duidt hij hun ook onder algemene hoofden aan wat gemaakt moet worden, vers 11-19, opdat zij, als zij zagen hoeveel werk zij voor zich hadden, er zich met kracht en ijver op zouden toeleggen en alle handen vlug in de weer zouden zijn. En het gaf hun zo’n denkbeeld van het gebouw, dat ontworpen was, dat het wel niet anders kon, of zij moesten wensen het voltooid te zien.
@@ -66,6 +71,7 @@ b. Allen, die bekwaam waren, moesten werken, vers 10. Allen die wijs van hart zi
 ## Exodus 35:20-29 
 
 Daar Mozes hun nu de wil van God bekend had gemaakt, gingen zij naar huis en brachten hetgeen zij gehoord hadden terstond in praktijk, vers 20. O mocht elke vergadering na het horen van het woord Gods, aldus heengaan met het vaste besluit om er daders van te zijn! Merk hier op:
+
 I. De offeranden, die gebracht werden voor de dienst van de tabernakel vers 21 enz. Betreffende die vele en velerlei zaken kan gezegd worden:
 
 1\. Dat zij hun offeranden terstond hebben gebracht. Zij gingen naar hun tenten om terstond hun offeranden te halen, en verlangden geen tijd om er zich over te bedenken, opdat door uitstel hun ijver niet zou bekoelen. De plicht, waarvan God ons overtuigt en waartoe Hij ons roept, behoren wij met alle spoed te volbrengen. Geen tijd zal er geschikter voor wezen dan de tegenwoordige tijd.
@@ -89,6 +95,7 @@ II. Het werk, dat gedaan werd ten dienste van de tabernakel, vers 25. De vrouwen
 
 Hier is de Goddelijke aanstelling van de voornaamste werkmeesters, opdat er geen twist zij om het ambt, en opdat allen, die in het werk gebruikt werden, er leiding in zullen ontvangen van, en er rekenschap van zullen geven aan, deze algemene opzieners, want God is een God van orde, en niet van verwarring.
 Merk op:
+
 1\. Hen, die God met name geroepen heeft tot deze dienst, heeft Hij vervuld met de Geest Gods, vers 30, 31, om hen er bekwaam voor te maken. Bekwaamheid in wereldlijke werkzaamheden is "Gods gave, en komt van boven," Jakobus 1:17. Van Hem is het vermogen en het kunnen gebruiken er van. Aan Zijn eer en heerlijkheid moet alle kennis worden gewijd en wij moeten er ons op toeleggen om Hem er mee te dienen. Het werk was buitengewoon, waarvoor Bezaleël bestemd was, en daarom werd hij er op buitengewone wijze voor bekwaam gemaakt, en zo werden de apostelen toen zij aangesteld werden als bouwmeesters om de Evangelietabernakel op te richten vervuld met de Geest Gods in wijsheid en verstand.
 
 2\. Zij werden aangesteld, niet slechts om te bedenken, maar om te werken, vers 32, in alle werk, vers 35. Zij, die grote gaven hebben en bekwaam zijn om anderen te leiden en te onderrichten, moeten niet denken dat dit luiheid of ledigheid bij hen zal verontschuldigen. Velen zijn vernuftig genoeg in het bedenken van werk voor anderen, en weten te zeggen wat deze man en die man doen moet, maar de lasten, die zij anderen opleggen, willen zij zelf met hun vinger niet verroeren. Deze zullen gerekend worden tot de luie dienstknechten.
