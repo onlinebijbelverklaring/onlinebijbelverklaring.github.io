@@ -78,7 +78,7 @@ III. Hij verloor zijn juwelen bij de koop. Volgens belofte zond hij de geitenbok
 1\. Dat zijn zonde openlijk bekend zou worden, en er dan van gesproken werd. Hoererij en alle onreinheid zijn te allen tijde beschouwd als iets schandelijks, en zij waren de smaad en schande van hen, die er schuldig aan werden bevonden. Niets zal hen doen blozen, die zich daar niet voor schamen. 
 Of: 
 
-2. Opdat men hem niet zal bespotten als een dwaas om aan een lichtekooi zijn zegelring en zijn snoer toe te vertrouwen. Hij toont geen berouw over zijn zonde, is er niet over bezorgd om er vergeving voor te verkrijgen, slechts wilde hij er de schande van voorkomen. Zo zijn er velen, wie er meer aan gelegen is om hun goede naam onder de mensen te behouden, dan zich de gunst van God en een goede consciëntie te verzekeren, "opdat wij niet misschien tot verachting worden," weegt bij hen zwaarder dan "opdat wij niet verdoemd worden." 
+2\. Opdat men hem niet zal bespotten als een dwaas om aan een lichtekooi zijn zegelring en zijn snoer toe te vertrouwen. Hij toont geen berouw over zijn zonde, is er niet over bezorgd om er vergeving voor te verkrijgen, slechts wilde hij er de schande van voorkomen. Zo zijn er velen, wie er meer aan gelegen is om hun goede naam onder de mensen te behouden, dan zich de gunst van God en een goede consciëntie te verzekeren, "opdat wij niet misschien tot verachting worden," weegt bij hen zwaarder dan "opdat wij niet verdoemd worden." 
 
 ## Genesis 38:24-30 
 

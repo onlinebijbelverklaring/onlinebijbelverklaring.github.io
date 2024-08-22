@@ -151,7 +151,7 @@ Merk hier op:
 
 3\. Dat Heber, naar wie de Hebreeën genoemd zijn, het langst geleefd heeft van allen die na de vloed zijn geboren, hetgeen wellicht een beloning was voor zijn uitnemende Godsvrucht en zijn nauwgezet wandelen op de wegen Gods.
 
-## Genesis 11:27 – 32
+## Genesis 11:27-32
 
 Hier begint de geschiedenis van Abram, wiens naam van nu aan vermaard is in beide Testamenten. Wij hebben hier:
 

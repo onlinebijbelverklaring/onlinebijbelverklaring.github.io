@@ -30,7 +30,7 @@ Wij hebben hier het huwelijk van Abram met Hagar, die zijn ondergeschikte vrouw 
 
 I. Die nu dit huwelijk tot stand had gebracht (wie zou het kunnen denken?) was Sarai zelf. Zij zei tot Abram: Ga toch in tot mijn dienstmaagd, vers 2. 
 
-1. Het is Satans listig beleid om de verzoeking tot ons te laten komen door onze naaste en dierbaarste bloedverwanten of door vrienden, voor wie wij genegenheid koesteren en grote achting hebben. De verzoeking is het gevaarlijkst, als zij ons gebracht wordt door een hand, van wie wij dit het minst verwachten, daarom zullen wij wijs handelen door acht te geven, niet zozeer op wie spreekt, als wel op wat gesproken wordt.
+1\. Het is Satans listig beleid om de verzoeking tot ons te laten komen door onze naaste en dierbaarste bloedverwanten of door vrienden, voor wie wij genegenheid koesteren en grote achting hebben. De verzoeking is het gevaarlijkst, als zij ons gebracht wordt door een hand, van wie wij dit het minst verwachten, daarom zullen wij wijs handelen door acht te geven, niet zozeer op wie spreekt, als wel op wat gesproken wordt.
 
 2\. Gods geboden gaan veel meer met ons welzijn en onze eer te rade dan onze bedenksels er mee te rade gaan. Het zou veel meer in Sarai’s belang zijn geweest, dat Abram zich aan Gods wet had gehouden, dan zich te laten leiden door haar dwaze plannen, maar wij handelen dikwijls in ons eigen nadeel.
 
