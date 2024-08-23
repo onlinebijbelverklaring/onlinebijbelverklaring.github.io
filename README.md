@@ -8,6 +8,8 @@ Op deze GitHub vind u de repositorie van 2 bijbelverklaringen geschreven vanuit 
 
 De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaringen.
 
+## :exclamation: Fout ontdekt?
+Door de grote hoeveelheid tekst zullen er (ondanks controle) ongetwijfeld veel textuele foutjes voorkomen. Ook de verouderde schrijfstijl werkt hierin niet mee. Desondanks willen we graag verbeteringen blijven doorvoeren. Taal- en tikfouten fouten kunt u aan ons doorgeven door een e-mail te sturen naar: onlinebijbelverklaring.nl@outlook.com
+
 ## ✔️ Bijdagen?
-Wil je meehelpen? Dat wordt zeer gewaardeerd.
-Stuur een mail naar: onlinebijbelverklaring.nl@outlook.com
+Het controleren en verbeteren van teksten van de bijbelverklaringen kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie of stuur een email naar: onlinebijbelverklaring.nl@outlook.com
