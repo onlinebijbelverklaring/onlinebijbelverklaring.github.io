@@ -19,7 +19,7 @@ In deze fase zal de volledige bijbelverklaring online worden gezet.
   
 In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het splitsen in meerdere alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
  
-<label for="file">Voortgang fase 2: 0/66 Bijbelboeken</label><progress id="file" value="0" max="66" style="width:80%; height:25px;"></progress> 
+<label for="file">Voortgang fase 2: 3/66 Bijbelboeken</label><progress id="file" value="3" max="66" style="width:80%; height:25px;"></progress> 
 
 
 ## Bijbelverklaring van Karl August Dachsel 
@@ -28,7 +28,7 @@ In deze fase wordt gekeken om de leesbaarheid te verbeteren. De bijbelverklaring
 
 De bijbelverklaring zal in 1 fase volledig online worden gezet.
 
-#### Fase 1. Het online zetten van de volledige bijbelverklaring (Verwachte start Q3 2025)
+#### Fase 1. Het online zetten van de volledige bijbelverklaring (Verwachte start Q2 2025)
 
 In deze fase zal de volledige bijbelverklaring online worden gezet.
 

@@ -3,7 +3,7 @@ God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongev
  
 ***1\. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)***
  
-a)Psalm 33:6; 89:12; 136:5, Handelingen 14:15; 17:24, Hebreeen 11:3 
+a) Psalm 33:6; 89:12; 136:5, Handelingen 14:15; 17:24, Hebreeen 11:3 
 
 1) Wat vóór dit begin was, is de eeuwigheid. Vóór dit begin was er geen tijd, gelijk er eens geen tijd meer zal zijn (Openbaring. 10:6). Nu ontstaat het begrensde; bij de wording van het stof is het begin van de tijd. De Engelen zijn in den beginne geschapen, want zij zijn niet eeuwig, het Woord was in den beginne (Johannes 1:1) en is dus eeuwig. 
  

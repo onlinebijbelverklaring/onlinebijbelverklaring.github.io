@@ -45,3 +45,14 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
 
 </div>
+
+## Fout ontdekt?
+
+!!! note "Heeft u een fout ontdekt?"
+    Door de grote hoeveelheid tekst zullen er (ondanks controle) ongetwijfeld veel textuele foutjes voorkomen. Ook de verouderde schrijfstijl werkt hierin niet mee. Desondanks willen we graag verbeteringen blijven doorvoeren. Taal- en tikfouten fouten kunt u aan ons doorgeven door een e-mail te sturen naar: [onlinebijbelverklaring.nl@outlook.com](mailto:onlinebijbelverklaring.nl@outlook.com)
+
+
+## Bijdragen?
+
+!!! question "Bijdragen?"
+    Het controleren en verbeteren van teksten van de bijbelverklaringen kost veel tijd. Wilt u meehelpen? Uw bijdrage wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie of stuur een email naar: [onlinebijbelverklaring.nl@outlook.com](mailto:onlinebijbelverklaring.nl@outlook.com)
