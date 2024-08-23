@@ -112,7 +112,7 @@ nav:
   - Welkom:
     - Welkom: index.md
   - Matthew Henry:
-    - Inleiding: matthewhenry/index.md
+    - Matthew Henry: matthewhenry/index.md
     - Levensschets: matthewhenry/levensschets.md
     - Voorrede: matthewhenry/voorrede.md
     - Oude Testament:
@@ -1439,7 +1439,7 @@ nav:
         - Openbaring 21: matthewhenry/Openbaring/Openbaring21/index.md
         - Openbaring 22: matthewhenry/Openbaring/Openbaring22/index.md
   - Karl August Dächsel:
-    - Index: karlaugustdachsel/index.md
+    - Karl August Dächsel: karlaugustdachsel/index.md
     - Oude Testament:
       - Inleiding: karlaugustdachsel/inleiding.md
       - Genesis:
