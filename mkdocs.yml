@@ -98,7 +98,6 @@ markdown_extensions:
   - toc:
       permalink: 🔗
 
-
 # Plugins
 plugins:
   - search:
