@@ -96,8 +96,7 @@ markdown_extensions:
   - attr_list
   - md_in_html
   - toc:
-      permalink: ':material-link:'
-      anchorlink: true
+      permalink: material/link
 
 
 # Plugins
