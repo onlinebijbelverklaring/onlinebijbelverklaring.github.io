@@ -71,9 +71,10 @@ theme:
 
 # Additional configuration
 extra:
-   analytics:
+  analytics:
     provider: google
     property: G-VQEZZ3SCH3
+  generator: false
 
 # Markdown Extensions
 markdown_extensions:
