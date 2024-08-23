@@ -27,8 +27,8 @@ In Jeremia wordt alleen vermeld, dat zij met de andere volken zou delen in het a
 
 I. De zonde, die Tyrus ten laste wordt gelegd namelijk het juichen over de verwoesting van Jeruzalem, vers 2.  
 II. De voorspelling van de verwoesting van Tyrus zelf.  
-1\. De volledigheid van deze verwoesting: het zal volkomen verwoest worden, vers 4-6, 12-14. 
-2\. De werktuigen van deze verwoesting, vele volken, vers 3, en met name de koning van Babel met zijn groot, overwinnend leger, vers 7- 11. 
+1\. De volledigheid van deze verwoesting: het zal volkomen verwoest worden, vers 4-6, 12-14.  
+2\. De werktuigen van deze verwoesting, vele volken, vers 3, en met name de koning van Babel met zijn groot, overwinnend leger, vers 7-11.  
 3\. De grote verrassing, die dit zou geven aan de naburige volken, die zich alleen zouden verbazen over de val van zo’n grote stad en er ontsteld door worden, vers 15-21.
 
 ## Ezechiël 26:1-14 
