@@ -22,7 +22,7 @@
 Nadat God de profeet een duidelijke voorstelling heeft gegeven van de volksrampen, die met snelheid naderden, geeft Hij hem hier een duidelijk begrip van de volkszonden, waardoor God getergd was deze rampen over hen te brengen, opdat hij God in al Zijn oordelen mocht rechtvaardigen, en de zonden des volks te nadrukkelijker mocht berispen, en hun ondergang te nadrukkelijker voorspellen. In een visioen brengt God hem hier naar Jeruzalem, om hem de zonden te tonen, die daar begaan werden, hoewel God begonnen was met hen te twisten, vers 1-4, en daar ziet hij 
 
 I. Het beeld van de ijvering, dat aan de poort van het altaar gesteld was, vers 5, 6.  
-II. De oudsten van Israël, die in een geheime kamer alle soorten van beelden vereren, vers 7- 12.  
+II. De oudsten van Israël, die in een geheime kamer alle soorten van beelden vereren, vers 7-12.  
 III. De vrouwen, bewenende de Thammuz, vers 13, 14.  
 IV. De mannen, die de zon aanbidden, vers 15, 16. En dan beroept God zich op hem, of men nog barmhartig moet zijn met een volk, dat er zich zozeer op toelegt, Hem tot toorn te verwekken, vers 17, 18.
 
