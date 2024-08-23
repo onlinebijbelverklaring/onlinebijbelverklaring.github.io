@@ -99,6 +99,7 @@ markdown_extensions:
       permalink: ':material-link:'
       anchorlink: true
 
+
 # Plugins
 plugins:
   - search:
