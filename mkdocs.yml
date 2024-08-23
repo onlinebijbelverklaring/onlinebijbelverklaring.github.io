@@ -109,8 +109,7 @@ plugins:
 
 # Navigation menu
 nav:
-  - Welkom:
-    - Welkom: index.md
+  - Welkom: index.md
   - Matthew Henry:
     - Matthew Henry: matthewhenry/index.md
     - Levensschets: matthewhenry/levensschets.md

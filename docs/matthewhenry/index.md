@@ -19,6 +19,15 @@ De verklaring van Matthew Henry is ongetwijfeld een van de meest gebruikte comme
 Het ging hem niet om geleerde uiteenzettingen, maar om een eenvoudige en praktische verklaring.
 
 
+## Beschikbaarheid
+
+De bijbelverklaring staat inmiddels volledig online. Op dit moment wordt er gewerkt aan de verbetering van de leesbaarheid.
+
+De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het splitsen in meerdere alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
+ 
+<label for="file">Voortgang fase 2: 3/66 Bijbelboeken</label><progress id="file" value="3" max="66" style="width:80%; height:25px;"></progress> 
+
+
 ### Faseringen
 
 De bijbelverklaring zal in 2 fases volledig online worden gezet. Daarna zal geprobeerd worden de leesbaarheid te verbeteren.
