@@ -9,7 +9,7 @@ a) Jesaja 21:8.
 
 1) De ziel, die de prediking des Heiligen Geestes in zich wil vernemen, moet omhoog stijgen, d. i. zich door stil in zich te keren, boven al het aardse in sterk verlangen tot den hemel verheffen; zij moet staan en zich stellen d. i. in onafgebroken opzien tot God, alle krachten des gemoeds tot Hem richten en op Hem wachten. Dat juist is het eenvoudige woord, waarvan de Heere spreekt.
 
-2) De Profeet is er in geoefend de stem van Gods Geest te onderscheiden van die van zijn eigen hart; beide scheidt hij ook hier scherp van elkaar (1 Peter 1:10 v.)
+2) De Profeet is er in geoefend de stem van Gods Geest te onderscheiden van die van zijn eigen hart; beide scheidt hij ook hier scherp van elkaar (1 Petrus 1:10 v.)
 
 3) Het klaagschrift tegen de vermetelheid van den Chaldeër, die zijne kracht tot zijn God heeft gemaakt, en op mensen als op wormen treedt, heeft de Profeet voor den troon van den eeuwigen Rechter neergelegd. Nu wacht hij geduldig het antwoord van den Rechtvaardige, als een wachter uitgaande op den wachttoren, met het aangezicht vol verwachting ten hemel gewend, vast staande in gelovig vertrouwen al op ene rots. Er kan inderdaad geen treffender beeld worden gedacht, om den vrome te schilderen, die zijne zaak in handen stelt van Hem, die rechtvaardig richt, dan hem als man des geloofs op ene rots te stellen, en als man der hoop op een wachttoren te verheffen.
 
