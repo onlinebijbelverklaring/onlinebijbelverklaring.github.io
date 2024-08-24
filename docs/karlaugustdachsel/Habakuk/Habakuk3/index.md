@@ -31,7 +31,7 @@ Aan Zijne hand wil hier zeggen, aan Zijne beide handen, het deel wordt voor het 
 
 De Profeet spreekt in het tweede gedeelte uit, hoe Zijne almacht in dien lichtglans verborgen is.
 
-*** 5. Voor Zijn aangezicht ging (gaat), nu Hij ten gerichte komt, als Zijn voorloper, de pestilentie, en de vurige kool 1) ging(gaat) voor (achter) Zijne voeten henen; met deze trawanten begint Hij Zijn gericht (Openbaringen (6:7 v.).***
+***5. Voor Zijn aangezicht ging (gaat), nu Hij ten gerichte komt, als Zijn voorloper, de pestilentie, en de vurige kool 1) ging(gaat) voor (achter) Zijne voeten henen; met deze trawanten begint Hij Zijn gericht (Openbaringen (6:7 v.).***
 
 1) In het Hebreeën Resjef Beter: de koortshitte, of een besmettelijke ziekte, gelijk luidende met de pestilentie in het eerste gedeelte van het vers. De Profeet wil er mede zeggen, dat voor den Heere uitging de pestilentie om het volk te verderven.
 
@@ -133,7 +133,7 @@ Ook de Profeet Habakuk arbeidt gelijk Nahum in het rijk van Juda, nadat het rijk
 
 Met de zachtheid des gemoeds van een Jeremia treedt hij op, om de zifting van Gods volk door de gerichten te voorspellen.
 
-Spreukenk Nahum tegen Nineve, voorspelde deze de verwoesting van die anti-goddelijke wereldmacht, den Profeet Habakuk werd het door de ingeving des Heiligen Geestes te verstaan gegeven, dat datzelfde Babel, hetwelk reeds Juda had beroerd, en eenmaal ook Juda's volk in ballingschap zou weg voeren, de wereldmacht zou zijn, die, ja, wel tegen God zich zou stellen, maar ook op haar beurt weer door de gerichten Gods met vernietiging zou worden getroffen.
+Sprak Nahum tegen Nineve, voorspelde deze de verwoesting van die anti-goddelijke wereldmacht, den Profeet Habakuk werd het door de ingeving des Heiligen Geestes te verstaan gegeven, dat datzelfde Babel, hetwelk reeds Juda had beroerd, en eenmaal ook Juda's volk in ballingschap zou weg voeren, de wereldmacht zou zijn, die, ja, wel tegen God zich zou stellen, maar ook op haar beurt weer door de gerichten Gods met vernietiging zou worden getroffen.
 
 Met die vernietiging van Babel zou dan tevens gepaard gaan de verlossing van het volk Gods.
 
