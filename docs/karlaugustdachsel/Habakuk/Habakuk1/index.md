@@ -1,4 +1,4 @@
-## INVAL DER CHALDEEN TEGEN JUDA.
+#### INVAL DER CHALDEEN TEGEN JUDA.
  
 ***1. De last, de voorzegging van het zware oordeel en de verwerping van Juda en Jeruzalem (Jes. 13:1), welken Habakuk (= omarmer), de Profeet, de Leviet, die het ambt van enen Profeet of mond Gods vervulde (Hoofdst. 3:19). gezien heeft in  de laatsten tijd van  de koning Manasse en onder  de koning Josia tussen 650 en 628 v. Chr.***
  
@@ -37,7 +37,7 @@ Het is niet het genieten van Gods Woord en Ordinantiën, maar derzelver kracht e
  
 ***5. De HEERE: Ik heb niet werkeloos de goddeloosheid aangezien, zo als gij meent, ziet, gij le de van Mijn volk! onder de Heidenen, en aanschouwt hoe daar de lawine loskomt, die de goddeloosheid met de goddelozen zal bedekken, en verwondert u over het vreselijke van de straf, welke u wacht; verwondert u, want a) Ik werk een werk in ulieder dagen, hetwelk gij niet geloven zult, als het verteld zal wor de (’ t welk als het verhaald werd men niet zou geloven).***
  
-a) Hand. 13:41.
+a) Handelingen 13:41
  
 God heeft grote macht om te verwoesten. Daartegen beschermt geen eigendomstitel noch geërfd recht. Hij ontneemt aan wien Hij wil, en geeft aan wien Hij wil. Maar Hij heeft nog groter lust en macht om op te bouwen. Het verwoeste is in een ogenblik, het bouwen voor de eeuwigheid. En in Zijn verwoesten is altijd het bouwen mede vervat. Met de ondergeploegde stoppelen wordt het veld voor  de nieuwen oogst gemest, en de ploeg oogst niet, maar de ploeger. 
  
