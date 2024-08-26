@@ -7,7 +7,7 @@ icon: material/bookshelf
 
 # Bijbelverklaring van Karl August Dächsel
 
-Karl August Dächsel werd geboren te Naumburg op 24 november 1818 en overleed te Steinkirche op 23 september 1901. Hij was een Duits predikant en auteur van een bekende en wijdverspreide Bijbelverklaring, 'nach der Deutschen Übersetzung Dr. Martin Luthers, mit in den Text eingeschalteter Auslegung.'
+Karl August Dächsel werd geboren te Naumburg op 24 november 1818 en overleed te Steinkirche op 23 september 1901. Hij was een Duits predikant en auteur van een bekende en wijdverspreide Bijbelverklaring, 'nach der Deutschen Übersetzung Dr. Martin Luthers, mit in den Text eingeschalteter Auslegung'.
 
 Dächsel studeerde Theologie aan de Universiteit van Leipzig. In 1847 wordt hij predikant te Hirschfeld. In 1852 vertrekt hij naar Hohenbocka en in 1858 naar het (tegenwoordig Poolse) Neusalz an der Oder.
 
