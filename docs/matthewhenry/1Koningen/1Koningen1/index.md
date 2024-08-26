@@ -55,6 +55,7 @@
 ## Inleiding
 
 In dit hoofdstuk zien wij:  
+
 I. Dat Davids gezondheid afneemt, vers 1-4.  
 II. Adonia streeft naar de regering, en onthaalt zijn partij, teneinde er toe te geraken, vers 5-10.  
 III. Nathan en Bathseba weten te bewerken dat de opvolging aan Salomo wordt verzekerd, en verkrijgen een order hiervoor van David vers 11-31.  
