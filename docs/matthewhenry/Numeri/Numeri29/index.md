@@ -59,6 +59,7 @@ Er waren in de zevende maand meer heilige feesten dan in enige andere maand van 
 
 Kort na de verzoendag, de dag waarop de mensen hun zielen moesten verootmoedigen, volgde het feest van de loofhutten, waarop zij zich voor het aangezicht des Heeren moesten verblijden, want die met tranen zaaien, zullen weldra met gejuich maaien. Aan de vorige wetten betreffende dit feest, die wij hadden in Leviticus 23:34 en verv. zijn hier nog aanwijzingen toegevoegd nopens de vuuroffers, die zij gedurende de zeven dagen van dat feest de Heere moesten offeren, Leviticus 23:36..
 Merk hierop:
+
 1\. Hun dagen van blijdschap en verheuging moesten dagen zijn van offeranden. Een blijmoedige stemming doet ons geen kwaad, en is geen kwaad teken, als die stemming ons niet ongeschikt maakt voor de plichten van de onmiddellijke dienst van God, maar veeleer ons hart er toe aanspoort en verruimt.
 
 2\. Al de dagen van hun wonen in loofhutten moesten zij offeranden offeren. Zolang wij nog hier in de tabernakelstaat zijn, is het ons belang en onze plicht, om voortdurend gemeenschap te onderhouden met God, ook zal het onzekere, het onvaste, van onze toestand ons niet verontschuldigen, als wij de plichten van Gods eredienst veronachtzamen.

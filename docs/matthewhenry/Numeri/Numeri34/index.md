@@ -39,20 +39,27 @@ II. Betreffende de verdeling en de uitdeling er van aan de stammen Israëls, ver
 God onderrichtte Mozes hier om deze grenzen vast te stellen, niet als een aardrijkskundige op een landkaart, om aan de weetgierigheid te voldoen, maar als een vorst voor een schenking opdat met zekerheid geweten zou worden, wat in die schenking begrepen is. Er was hun een veel grotere bezitting beloofd, die hun ook ter bestemder tijd gegeven zou zijn, indien zij gehoorzaam waren geweest, reikende zelfs tot aan de Eufraat, Deuteronomium 11:24. En zover heeft Israëls heerschappij zich ook werkelijk uitgestrekt in de tijd van David en Salomo, 2 Kronieken 9:26. Maar wat hier beschreven wordt, is alleen Kanaän, dat het deel was van de negen en een halve stam, want de andere twee en een halve stam waren reeds gevestigd. vers 14-15. Betreffende deze grenzen nu van Kanaän valt op te merken: 
 
 I. Dat zij binnen zekere bepalingen waren afgeperkt, want God heeft de bepalingen van onze woningen verordend, Handelingen 17:26. Die landpalen waren hun gesteld:
+
 1\. Opdat zij zouden weten wie zij hadden te verdrijven, en hoever de opdracht, die hun gegeven was, zich uitstrekte, Hoofdstuk 33:53 dat zij de inwoners zouden uitdrijven. Alleen diegenen, welke zich tussen deze grenzen bevonden, moesten zij verdelgen, tot hiertoe moet hun bloedig zwaard gaan en niet verder.
 
 2\. Opdat zij zouden weten welke bezitting zij te wachten hadden. God wilde niet dat Zijn volk hun begeerte naar wereldlijk goed zou vergroten, maar dat zij zouden weten genoeg te hebben, om daarmee dan tevreden te zijn. De Israëlieten zelf moeten niet alleen inwoners gemaakt worden in het midden van het land, maar plaats laten voor hun naburen om bij hen te wonen. God stelt bepalingen aan onze erve zo laat ons dan perken stellen aan onze begeerten en ons schikken naar de toestand, waarin God ons geplaatst heeft.
 
 II. Dat het, betrekkelijk, een kleine omvang had. Zoals de grenzen hier gesteld zijn, wordt het berekend slechts een lengte gehad te hebben van honderd zestig mijlen, en een breedte van ongeveer vijftig mijlen, het bevatte misschien niet veel meer dan de helft van de oppervlakte van Engeland, en toch is dit het land, dat aan de vader van de gelovigen beloofd was, en de bezitting van het zaad Israëls. Dit was het plekje gronds, waarin gedurende veel eeuwen God alleen bekend was en Zijn naam groot was Psalm 76:2. Dit was de wijngaard des Heeren de besloten hof, maar zoals het is met wijngaarden en hoven, de beperktheid van omvang werd ruim opgewogen door de buitengewone vruchtbaarheid van de grond, want anders zou het kleine land het talrijke volk, dat het bewoonde niet hebben kunnen onderhouden. Zie hieraan:
+
 1\. Hoe klein een deel van de wereld God voor zichzelf heeft, hoewel de aarde des Heeren is, en haar volheid, zijn er slechts weinigen, die Hem kennen en Hem dienen, maar die weinigen zijn gelukkig, zeer gelukkig, omdat zij Gode vruchtbaar zijn.
 
 2\. Hoe klein een deel van de wereld God dikwijls aan Zijn volk geeft. Zij, die hun deel hebben in de hemel, hebben reden om tevreden te wezen met een klein deel op aarde, maar evenals hier, wat er ontbreekt aan hoeveelheid wordt vergoed door de hoedanigheid, want het weinige, dat de rechtvaardige heeft, het van de liefde Gods hebbende en met Zijn zegen, is veel beter en veel troostrijker, dan de overvloed van de goddelozen, Psalm 37:16.
 
 III. Er was iets opmerkelijks in die grenzen en landpalen.
+
 1\. Kanaän zelf was een schoon, lieflijk, sierlijk land, Daniel 8:9, Psalm 48:3 -  en toch grensde het aan woestijnen en zeeën, en was omringd van onderscheidene treurig -  uitziende landschappen. Aldus is de wijngaard van de kerk aan alle zijden omgeven door de woestijn van deze wereld, die als contrast er van dient om te doen uitkomen, hoe schoon van gelegenheid zij is.
+
 2\. Velen van die grenzen waren zijn bolwerken en natuurlijke versterkingen, om de toegang voor vijanden moeilijk te maken, waarmee hun te kennen werd gegeven dat de God van de natuur hun beschermer was en hen met goedgunstigheid zal omringen als met een rondas, Psalm 5:13.
+
 3\. De grens reikte tot aan de rivier van Egypte, vers 5. Opdat de aanblik van dat land, dat zij van uit het hunne zien konden, hen zou doen gedenken aan hun dienstbaarheid aldaar en hun wonderbare bevrijding.
+
 4\. Het begin van hun grenzen wordt hier gesteld aan de Zoutzee, vers 3, en daar eindigen zij, vers 12. Dat was het blijvende gedenkteken van de verwoesting van Sodom en Gomorra, de schone, vruchtbare vallei, waarin deze steden gestaan hebben, werd een meer, welks wateren nooit door een wind werden bewogen, geen schip droegen, met geen vis werden gevuld, generlei levend schepsel werd er in gevonden, en daarom de Dode Zee werd genoemd. Dit was een deel van hun grenzen, om een gedurige waarschuwing voor hen te wezen, om zich te wachten voor de zonden die het verderf over Sodom hebben gebracht toch werd de ongerechtigheid van Sodom later in Israël gevonden, Ezechiel 16:49, om welke Kanaän wel niet, zoals Sodom tot een zoutzee werd gemaakt, maar wel tot een onvruchtbare grond, en dat gebleven is tot op de huldigen dag.
+
 5\. Hun westergrens was de grote zee, vers 6, die thans de Middellandse Zee genoemd wordt. Sommigen beschouwen die zee zelf als deel uitmakende van hun bezit, en dat zij krachtens deze schenking de heerschappij er over hadden, zodat zij er de meesters van hadden kunnen zijn, indien zij het niet verbeurd hadden door hun zonde.
 
 ## Numeri 34:16-29 
