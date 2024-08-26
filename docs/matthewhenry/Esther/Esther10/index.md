@@ -9,7 +9,7 @@ Dit is slechts een gedeelte van een hoofdstuk, het overige ervan, beginnende van
 I. Betreffende Ahasveros op de troon, welk een machtig vorst hij was, vers 1, 2.  
 II. Betreffende Mordechaï, zijn gunsteling, welk een grote, blijkbare zegen hij was voor zijn volk, vers 2, 3.  
 
-## Esther 10:1 – 3
+## Esther 10:1-3
 
 Hier wordt ons meegedeeld:
 
