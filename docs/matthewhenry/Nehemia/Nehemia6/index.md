@@ -56,7 +56,9 @@ I. Hoe laaghartig de vijanden met deze verzoeking tewerk gingen.
 Nehémia schijnt achting voor hem gehad te hebben, want hij ging naar zijn huis om met hem te beraadslagen, vers 10. Er waren ook andere profeten, en een profetes, Noadja, vers 14, die de belangen van de vijanden van de Joden waren toegedaan, afhangelingen van hen en verraders van hun land waren. Of Zij aanspraak maakten op Goddelijke ingeving blijkt niet. Zij zeggen niet: Aldus spreekt de Heere, zoals de valse profeten vanouds, indien zij daar geen aanspraak op maakten, wilden zij toch gehouden worden voor mensen, die uitmuntten in kennis van God en in menselijke wijsheid en een buitengewone mate van inzicht in de dingen, weshalve zij, evenals vroeger de profeten, in moeilijke gevallen geraadpleegd werden. Dezulken worden door de vijanden gezocht en betaald om hen van raad te dienen. 
 
 Laat ons naar aanleiding hiervan treuren:
+
 a. Over de boosheid van slechte mensen, zoals deze profeten geweest zijn, dat ooit iemand zo verdorven kan zijn om de zaak van God en van zijn land te verraden, zelfs onder voorgeven van gemeenschapsoefening met God en zorg voor hun land.
+
 b. Over het ongeluk van Godvruchtige mannen als Nehémia, die in gevaar zijn om door zulke bedriegers misleid te worden, en tot wie geen verzoeking met meer kracht komt dan die welke onder de dekmantel komt van de Godsdienst, of onder schijn van een openbaring van God, en door middel van profeten.
 
 3\. Het voorgeven liet zich wel horen. Deze profeten zeiden aan Nehémia, dat de vijanden zouden komen om hem te doden, en dat wel in de nacht, en hij had reden genoeg om dit te geloven, zij zouden het voorzeker doen, indien zij konden, indien zij durfden. Zij gaven voor zeer bezorgd te zijn voor zijn veiligheid, allen waren zij verloren indien hem een ongeluk wedervoer, en daarom was het hun ernstige raad aan hem, dat hij zich zou verbergen in de tempel, totdat het gevaar voorbij was. De tempel was een sterke en heilige plaats waar hij zich onder de bijzondere zorg des hemels zou bevinden, Psalm 27:5. Indien Nehémia zich had laten bewegen om dit te doen, dan zou het volk terstond het werk gestaakt hebben, de wapens hebben afgelegd en iedereen zou voor zijn eigen veiligheid hebben gezorgd, en dan zouden de vijanden gemakkelijk en zonder tegenstand te ontmoeten, het reeds gedane werk kunnen afbreken, de muur weer kunnen neerwerpen, en zo zouden zij dan hun doel hebben bereikt. Hoewel zelfbehoud een fundamenteel beginsel is van de wet van de natuur, is het toch niet altijd de beste en verstandigste raad, die men voorgeeft op dat beginsel gegrond te zijn.
@@ -64,12 +66,16 @@ b. Over het ongeluk van Godvruchtige mannen als Nehémia, die in gevaar zijn om 
 II. Zie hoe kloekmoedig Nehémia over deze verzoeking heeft gezegevierd.
 
 1\. Onmiddellijk besloot hij er niet aan toe te geven, vers 11. Zie hier:
+
 a. Hoe hij redeneert: "Zou een man als ik vlieden? Zou ik aflaten van mijn werk, of mijn eigen werklieden ontmoedigen, die ik gebruikt en aangemoedigd heb? Zal ik zo licht aan ieder gerucht geloof slaan en zo overbezorgd zijn voor mijn eigen leven? Ik, die de landvoogd ben, op wie zoveel ogen, beide van vrienden en vijanden, gericht zijn? Een ander zou kunnen vlieden, maar ik niet. Wie is er, zijnde als ik, op mijn post van eer en macht en vertrouwen, die in de tempel zou gaan, zich daar schuil zou houden, als er werk te doen is, al was het dan ook om zijn leven te redden?" Als wij tot zonde worden verzocht, dan moeten wij gedenken wie en wat wij zijn, opdat wij niet iets doen dat ons niet betaamt - niet betaamt aan onze belijdenis. "Het komt de koningen niet toe, o Lemuël!" Spreuken 31:4.
+
 b. Wat het resultaat was van zijn redenering, hij komt tot een besluit. "Ik zal er niet ingaan, ik wil liever sterven, bezig zijnde aan mijn werk, dan leven door mij schandelijk ervan terug te trekken," Heilige kloekmoedigheid en grootheid van ziel zullen er ons toe leiden om, wat het ons ook moge kosten, nooit een goed werk af te wijzen, en nooit een slecht werk te doen.
 
 2\. Hij begreep terstond hoe de zaak eigenlijk gelegen was, vers 12. "Ik merkte, en zie, God had hem niet gezonden, dat hij die raad gaf, niet door bestuur of leiding van God, hetzij gewone of buitengewone, maar uit kwade bedoeling tegen mij." De slechtheid van zulke huurlingen zal vroeg of laat aan het licht gebracht worden.
 Nehémia zei dat hij twee dingen vreesde in hetgeen hem aangeraden werd.
+
 a. Tegen God te zondigen, Hem te beledigen, dat ik zou vrezen, en alzo doen, en zondigen Zonde is hetgeen wij boven alles, wat het ook zij, moeten vrezen, en het is een goed voorbehoedmiddel tegen zonde, om voor niets te vrezen dan voor de zonde.
+
 b. Zich te schande te maken, opdat zij mij zouden honen. Na het zondige van de zonde is dat het schandelijke ervan, dat wij moeten vrezen.
 
 3\. Hij vraagt ootmoedig aan God om met hen af te rekenen voor hun lage bedoelingen tegen hem, vers 14. Gedenk, mijn God, aan Tobia en aan Sanballat en aan de overigen van hen, naar deze hun werken. Evenals hij, toen hij van zijn eigen goede diensten had gesproken, niet met begeerlijkheid of eerzucht God had voorgeschreven welke beloning Hij hem geven zou, maar met bescheidenheid had gebeden: Gedenk mijner, mijn God, Hoofdstuk 5:19, zo heeft hij ook hier niet wraakzuchtig bijzondere oordelen over zijn vijanden ingeroepen, maar de zaak aan God overgelaten: "Gij kent hun hart en zijt de wreker van leugen en bedrog, neem kennis van deze zaak, spreek recht tussen mij en hen, en vorder rekenschap van hen hoe en wanneer het U behaagt." Welk onrecht ons ook gedaan moge worden, wij moeten toch onszelf niet wreken, maar onze zaak overgeven aan Hem, die rechtvaardig oordeelt.
@@ -77,18 +83,28 @@ b. Zich te schande te maken, opdat zij mij zouden honen. Na het zondige van de z
 ## Nehémia 6:15-19 
 
 Hier voltooit Nehémia de muur van Jeruzalem, maar nog worden hem door zijn vijanden moeilijkheden bereid.
+
 1\. Tobia en de andere tegenstanders van de Joden hadden het verdriet om de muur opgebouwd te zien in weerwil van al hun pogingen om het te beletten. In twee en vijftig dagen was de bouw van de muur begonnen en voltooid, en toch hebben wij reden te geloven dat zij op de sabbatdagen hebben gerust, vers 15. Velen werden voor dit werk gebruikt, en er was plaats voor hen, wat zij deden zij blijmoedig, en zij gaven acht op hun werk omdat zij het liefhadden. De dreigementen van hun vijanden, die bedoeld waren om hen te verzwakken, hebben hen waarschijnlijk aangevuurd om met het werk zoveel krachtiger voort te gaan, opdat het volbracht zou zijn eer de vijand kwam. Alzo is uit de eter spijs voortgekomen. Zie hoeveel werk in weinig tijd gedaan zou kunnen worden, indien wij het slechts met ijver en volharding doen. Toen de vijanden hoorden dat de muur voltooid was, vóór er, naar zij dachten, nog goed mee begonnen was, en er niet aan twijfelden of zij zouden de verdere bouw ervan kunnen verhinderen vervielen zij zeer in hun ogen 
+
 a. Zij schaamden zich over hun vertrouwen dat zij het werk konden doen ophouden, de teleurstelling maakte hen neerslachtig en moedeloos. Zij benijdden de voorspoed van de Joden, het verdroot hun de muren van Jeruzalem opgebouwd te zien, terwijl de koningen van Perzië hun misschien niet hadden toegestaan de steden van Samaria te versterken. Toen Kain zijn broeder Abel benijdde, "betrok zijn gelaat" Genesis 4:5.
+
 b. Zij wanhoopten er aan om hun ooit het kwaad te kunnen doen, dat zij tegen hen in de zin gehad hebben, hen ten onder te brengen, hen tot hun prooi te maken, en wèl mochten zij daaraan wanhopen, want aan hun verwonderlijker voorspoed merkten zij dat dit werk van God gedaan was. 
 Zelfs deze heidenen hadden besef genoeg:
+
 (1). Om de bijzondere voorzienigheid Gods te zien in de voorspoedige gang van de zaken voor de kerk, zij "zeiden onder de heidenen: de Heere heeft grote dingen voor deze gedaan." Het is Zijn doen, Psalm 126:2 God strijdt voor Israël en werkt met hen.
+
 (2). Om te geloven dat Gods werk volmaakt zal zijn, toen zij merkten dat het werk van God was, verwachtten zij niets anders dan dat het voort zou gaan en voorspoedig zou zijn.
+
 (3). Om tot de gevolgtrekking te komen dat zo het van God was, het doelloos zou zijn om het tegen te staan, daar het voorzeker de overhand zal hebben.
 
 2\. Nehémia had het verdriet om, in weerwil hiervan, sommigen van zijn eigen volk in verraderlijke briefwisseling te zien met Tobia, te zien dat zij zijn belangen dienden, en een grote smart en ontmoediging zal dit ongetwijfeld voor hem geweest zijn.
+
 a. Zelfs onder de edelen van Juda waren er, die zo weinig eergevoel hadden en zo weinig besef van het welzijn van hun land, dat zij briefwisseling onderhielden met Tobia, vers 17. Zij schreven hem met al de vrijheid en gemeenzaamheid van vrienden, en heetten zijn brieven aan hen welkom. Konden edelen zo iets laags doen? Edelen van Juda iets dat zó slecht was? Het schijnt wel dat voorname mannen niet altijd wijs, niet altijd eerlijk en oprecht zijn.
+
 b. Velen in Juda waren in nauw, maar geheim verbond met hem, om de belangen van zijn land te bevorderen, hoewel dit gewis de ondergang van hun eigen land tengevolge zou hebben. Zij hadden hem gezworen, niet als hun vorst maar als hun vriend en bondgenoot, omdat hij en zijn zoon dochters van Israël hadden gehuwd, vers 18. Zie het kwaad van huwelijken met vreemden, voor één heiden, die er door bekeerd werd, werden tien Joden er door verdorven. Toen zij met Tobia verwant waren werden zij al spoedig zijn gezworen bondgenoten. Een zondige liefde leidt tot een zondige verbintenis.
+
 c. Zij waren onbeschaamd genoeg om zelfs Nehémia in vriendschapsbetrekkingen met hem te willen brengen. "Zij verhaalden zijn goeddadigheden voor mijn aangezicht, stelden hem voor als een man met een verheven, edel gemoed, wel waardig om met mij bekend te zijn, een eerlijk man, in wie ik vertrouwen kon stellen." Wel is waar, er wordt ons gezegd van niemand kwaad te spreken, maar nooit is ons gezegd goed te spreken van slechte mensen, "die de wet verlaten, prijzen de goddelozen," Spreuken 28:4.
+
 d. Zij waren zo ontrouw dat zij Nehémia’s raadslagen aan hem verrieden, zij brachten zijn woorden uit tot hem, verdraaid en ze nog ongetwijfeld, en gaven er een onjuiste betekenis aan, hetgeen Tobia van stof voorzag voor brieven om hem vreesachtig te maken, en hem aldus van zijn werk weg te drijven, er hem in te ontmoedigen. Aldus waren al hun gedachten tegen hem ten kwade, maar God gedacht hem ten goede.
 
  

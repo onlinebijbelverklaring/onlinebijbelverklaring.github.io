@@ -25,8 +25,11 @@ Van welke stam Nehémia was blijkt nergens maar indien het waar is wat de schrij
 1\. Kon hij te beter geschikt en bekwaam gemaakt worden voor de dienst van zijn land op de post, die God voor hem bestemd had zoals Mozes er geschikter door werd om te regeren, dat hij aan Farao’s hof, en David dat hij aan Sauls hof was opgevoed.
 
 2\. Hij had beter gelegenheid om zijn land te dienen door zijn invloed op de koning en diens omgeving. Merk op: hij maakt geen haast om ons te zeggen tot hoe hoog ambt hij aan het hof bevorderd was, het is niet vóór het einde van het hoofdstuk, dat hij ons zegt dat hij de schenker van de koning was - een post van groot vertrouwen, zowel als van eer en groot gewin - toen hij het niet kon vermijden om er melding van te maken, vanwege het verhaal dat moest volgen, maar in het eerst zegt hij slechts: ik was te Susan in het paleis, waaruit wij kunnen leren nederig en bescheiden te zijn en traag om van onze eigen bevordering te spreken. Maar in de leidingen van Gods voorzienigheid met hem kunnen wij tot onze vertroosting opmerken:
+
 a. Dat, als God werk te doen heeft, Hij nooit om werktuigen verlegen is, om het te doen.
+
 b. Dat God voor hen, die Hij in Zijn dienst wil gebruiken, geschikte middelen zal vinden om hen er voor te bekwamen en hen er toe te roepen.
+
 c. Dat God Zijn overblijfsel heeft aan alle plaatsen. Wij lezen van Obadja in het huis van Achab, van heiligen in het huis van de keizer, en van een Godvruchtige Nehémia in het paleis te Susan.
 d. Dat God de hoven van vorsten tot kweekplaatsen en soms tot heiligdommen kan maken voor de vrienden en beschermers voor de belangen van de kerk. Nu hebben wij hier:
 
@@ -48,8 +51,11 @@ III. De grote smart, die dit bij Nehémia teweegbracht, vers 4.
 1\. Hij weende en bedreef rouw. Het was niet slechts op het ogenblik toen hij die tijding hoorde, dat hij in tranen uitbarstte, maar verscheidene dagen bleef zijn droefheid aanhouden. De rampen en droefenissen van de kerk moeten ons een oorzaak zijn van smart, al is het ook, dat wijzelf in welvaart en vrede leven.
 
 2\. Hij vastte en bad, niet in het openbaar, daar had hij de gelegenheid niet toe, maar voor het aangezicht van de God des hemels, die in het verborgene ziet en in het openbaar zal vergelden. Door dit vasten en bidden:
+
 a. Heiligde hij zijn smart, was hij bedroefd naar God, met het oog op God, omdat Zijn naam gesmaad werd in de smaad, die over zijn volk was geworpen wier zaak hij aldus aan Hem overgaf.
+
 b. Verrichtte hij zijn smart, ontlastte hij zijn gemoed door zijn klacht uit te storten voor God en haar aan Hem over te geven.
+
 c. Volgde hij de rechte methode om hulp te verkrijgen voor Zijn volk, en leiding voor zichzelf voor de wijze, waarop hij hen dienen kon. Laat hen, die goede plannen vormen voor de dienst van het algemeen, God medenemen van het begin af, en al hun bedoelingen en voornemens voor Hem uitspreken, dat is het middel om er voorspoedig in te zijn.
 
 ## Nehémia 1:5-11 
@@ -70,7 +76,9 @@ IV. De pleitgrond, die hij aanvoert, om genade voor zijn volk Israël te verkrij
 Dit haalt hij aan uit Deuteronomium 30:1-5, en bidt om vergunning om dit Gode te doen gedenken (hoewel de eeuwige Geest zo’n doen gedenken niet nodig heeft) als hetgeen waarnaar hij zijn begeerten regelt, en waarop hij zijn geloof en zijn hoop grondt in zijn bidden van dit gebed. Ik bid U, gedenk dit woord, want Gij hebt gezegd: "Maak Mij indachtig." Hij had erkend, vers 7, wij hebben niet gehouden de rechten, die Gij Uwen knecht Mozes geboden hebt, en toch bidt hij, vers 8, Heere, gedenk toch aan het woord, dat Gij Uwen knecht Mozes geboden hebt, want van het verbond wordt dikwijls gezegd, dat het geboden is. Indien God van Zijn beloften niet meer gedacht dan wij van Zijn geboden gedenken, wij waren verloren. Onze beste pleitgronden in het gebed zijn dus die, welke ontleend zijn aan Gods belofte, "het woord, op hetwelk Hij ons heeft doen hopen," Psalm 119:49.
 
 2\. Hij pleit op de betrekking, waarop zij vanouds tot God hebben gestaan, zij zijn Uwe knechten en Uw volk, vers 10, die Gij U hebt afgezonderd en in een verbond met U hebt opgenomen, zult Gij toelaten, dat Uw gezworen vijanden Uw gezworen knechten verdrukken en vertreden? Indien Gij niet wilt verschijnen voor Uw volk, voor wie zult Gij dan wèl verschijnen?" Zie Jesaja 63:19. Als een bewijs dat zij Gods knechten zijn schrijft hij hun deze hoedanigheid toe, vers 1. Zij hebben lust Uw naam te vrezen, zij zijn niet slechts naar Uw naam genoemd, maar hebben waarlijk eerbied voor Uw naam, thans aanbidden zij U, U alleen, naar Uw wil, en hebben ontzag voor al de ontdekkingen, die het U behaagt van Uzelf te doen, dit begeren zij," hetgeen aanduidt:
+
 a. Hun goede wil er voor, "Het is hun voortdurende zorg en hun streven om in de weg van hun plicht te worden gevonden, dit hebben zij op het oog, al is het ook dat zij nog in veel tekortkomen." 
+
 b. Hun welbehagen er in: "Zij verlustigen zich er in om Uwen naam te vrezen," zoals dit ook gelezen kan worden. "Zij doen niet slechts hun plicht, maar verlustigen er zich in om hem te doen." Diegenen zullen genadiglijk door God worden aangenomen, die waarlijk begeren Zijn naam te vrezen, want die begeerten zijn Zijn eigen werk.
 
 3\. Hij pleit op de grote dingen, die God tevoren voor hen gedaan heeft, vers 10. "Zij zijn toch Uw volk, dat Gij vanouds verlost hebt door Uw grote kracht, Uw kracht is nog dezelfde, zult Gij hen dan nu niet wederom verlossen, en Uw verlossing aldus voltooien? Laat hen niet door de vijand overweldigd worden, die een God van oneindige kracht aan hun zijde hebben." Eindelijk. Hij besluit met een bijzondere bede dat God hem voorspoedig zal maken in zijn onderneming, en hem gunst zal doen vinden bij de koning, deze man, noemt hij hem, want de grootste van de mensen zijn voor God slechts mensen, en zij moeten weten dat zij dit zijn Psalm 9:21, en anderen moeten weten dat zij dit zijn: "Wie zijt gij, dat gij vreest voor de mens? Barmhartigheid voor het aangezicht van deze man," dat is het waar hij om bidt, niet bedoelende de barmhartigheid van de koning maar barmhartigheid van God in zijn bede, zijn verzoek aan de koning. Gunst van mensen is liefelijk en troostrijk als wij haar kunnen zien voortkomen uit de barmhartigheid Gods.
