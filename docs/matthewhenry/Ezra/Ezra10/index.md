@@ -74,9 +74,13 @@ Ezra wist dat dit het enige middel was om dit kwaad weg te nemen, maar heeft mis
 Onze regel onder het Evangelie is: Quod fieri non debuit, factum valet - Hetgeen niet had behoren gedaan te worden, moet, als het gedaan is blijven. Indien "enige broeder een ongelovige vrouw heeft, en die tevreden is bij hem te wonen, dat hij ze niet verlate," 1 Corinthiers 7:12.
 
 4\. Hij geeft hun een goede methode aan, om deze reformatie tot stand te brengen, en toont hun niet slechts dat het gedaan moet worden, maar hoe het gedaan moet worden.
+
 a. Laat Ezra en allen, die tegenwoordig waren in deze vergadering, overeenkomen in een besluit, dat dit gedaan moet worden, laat er over gestemd worden en het zal nemine contradicente - eenstemmig aangenomen worden, opdat gezegd kan worden dat het gedaan werd naar de raad mijns heren, vers 3, de president van de vergadering, met de algemene instemming van hen, die beven voor het gebod van onze God, waardoor zij werden aangeduid, die tot hem vergaderd waren, vers 9. Verklaar het als het gevoelen van alle sobere, ernstige lieden onder ons, het kan niet anders of dit moet grote invloed uitoefenen op Israëlieten.
+
 b. Laat het gebod Gods, dat Ezra in zijn gebed herhaald heeft, het volk voorgelegd worden, en laat hen zien dat het gedaan wordt naar de wet, die geeft ons er volmacht toe, ja meer, zij gebiedt het ons, het is geen toevoegsel van ons aan de wet Gods maar de noodzakelijke uitvoering er van.
+
 c. Laat ons, terwijl wij in een goede gezindheid zijn, ons verbinden door een plechtige gelofte en verbond, dat wij het doen zullen, als wij de tegenwoordige indruk laten verflauwen dan blijft de zaak ongedaan. Laat ons ons verbinden om, niet alleen als wijzelf vreemde vrouwen hebben ze weg te doen, maar om, zo wijzelf ze niet hebben, anderen te verplichten om de hun weg te doen.
+
 d. Laat Ezra zelf de leiding van deze zaak in handen nemen, hij is door de lastbrief van de koning gemachtigd om te onderzoeken of de wet Gods in Juda en Jeruzalem behoorlijk wordt nagekomen, Hoofdstuk 7:14, en laat ons allen besluiten er hem in bij te staan, vers 4. Sta op, wees sterk en doe het. Wenen om deze zaak is goed, maar hervormen is beter. Zie wat God in een soortgelijk geval tot Jozua gezegd heeft, Jozua 7:10, 11.
 
 III. Tot welk een goed besluit zij op dit goede voorstel gekomen zijn, vers 5. Zij stemden er niet alleen in toe dat het gedaan zou worden, maar verbonden zich met een eed dat het gedaan zou worden naar dit woord. Wie zich in goeddoen vast verbinden, zullen er zich wèl bij bevinden.
