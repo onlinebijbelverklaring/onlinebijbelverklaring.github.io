@@ -55,6 +55,7 @@ Niet omdat zij enigerlei genegenheid voor hen koesterden, maar omdat de vrees va
 3\. Wat God voor hen gedaan heeft. Hij heeft hun schrik op al die volkeren doen vallen vers 2, zoals de verschrikking van Israël op de Kanaänieten is gevallen, Jozua 2:9, 5:1, zodat zij, hoewel zij stoutmoedigheid genoeg hadden om hen aan te vallen, toch geen moed genoeg hadden om de aanval voort te zetten. Toen zij de strijd zouden beginnen, ontzonk hun de moed, en geen van de dappere mannen hebben hun handen gevonden.
 
 4\. Welk een slachting zij toen onder hen hebben aangericht. Niemand bestond voor hen vers 2. Zij deden met hun haters naar hun welbehagen, vers 5. Zo verwonderlijk waren de Joden bekrachtigd en bezield en hun vijanden verzwakt en ontmoedigd, dat niemand van hen die zichzelf getekend hadden voor het verderf, ontkwam, zij sloegen op al hun vijanden met de slag van het zwaard. In het bijzonder:
+
 a. Op de dertiende dag van de maand Adar sloegen zij in de stad Susan vijfhonderd mannen, vers 6, en de tien zonen van Haman, vers 10. Als de Joden op het Purimfeest dit boek Esther lezen, dan houden zij zich verplicht om de namen van de tien zonen van Haman allen in een adem te lezen, zonder tusschenpoos, omdat, zeggen zij, allen tezamen gedood werden allen op hetzelfde ogenblik de geest gaven. Buxt. Synag Jud.c.24. De Chaldeeuwse Parafrase zegt dat, toen deze tien gedood werden, Zeres met zeventig anderen van zijn kinderen ontkomen is, en dat deze later van huis tot huis om brood gebedeld hebben.
 
 b. Op de veertienden dag hebben zij in Susan nog driehonderd mannen gedood, die op de vorige dag aan de slachting waren ontkomen, vers 15. Hiertoe verkreeg Esther verlof voor hen van de koning, ter meerdere verschrikking van hun vijanden en ter algehele verplettering van deze boosaardige partij. De koning had berichten ingewonnen omtrent het aantal van de verslagenen op de eerste dag, vers 11, en gaf er Esther kennis van, vers 12, haar vragende wat zij nog meer verlangde. "Niets anders", zegt zij, "dan verlof om nog zo’n dag werk te mogen doen".
@@ -65,8 +66,11 @@ c. De Joden op het land hielden zich aan hun orders en versloegen van hun vijand
 d. Er wordt nota van genomen, dat zij hun handen niet sloegen aan de roof, vers 10, 15-16. Het verlof van de koning had hen gemachtigd de buit van hun vijanden te roven, Hoofdstuk 8:11 en zij hadden nu wel een goede gelegenheid om er zich mee te verrijken. Indien Hamans partij de overhand had behouden, zij zouden ongetwijfeld wel gebruik hebben gemaakt van hun machtiging om hun buit te roven, Hoofdstuk 3:13. 
 
 Maar de Joden wilden dit niet doen aan hen:
+
 (1). Opdat zij ter ere van hun Godsdienst blijk zouden geven van een heilige, edelmoedige minachting van wereldse rijkdom, in navolging van hun vader Abraham, die het versmaadde om zich met de buit van Sodom te verrijken.
+
 (2). Om te doen blijken dat zij niets anders dan zelfbehoud op het oog hadden, hun invloed aan het hof gebruikten ter redding van hun leven, niet om hun bezittingen te vermeerderen.
+
 (3). Hun verlof machtigde hen om het geslacht van hun vijanden te verdelgen, zelfs de kleine kinderen en de vrouwen Hoofdstuk 8:11. Maar hun menselijk gevoel liet hun dit niet toe, hoewel het de bedoeling was geweest aldus aan hen te doen. Zij hebben niemand gedood dan hen, die zij met de wapens in de hand vonden, en daarom hebben zij ook de buit niet geroofd, maar lieten die voor de vrouwen en kleine kinderen, die zij hadden gespaard, om er hun levensonderhoud van te hebben, want anders zou het evengoed zijn geweest hen terstond te doden als hen te laten verhongeren, hun het leven te benemen als hun het levensonderhoud te ontnemen. Hierin hebben zij met een welwillendheid en mededogen gehandeld, wel waardig om nagevolgd te worden.
 
 5\. Welk een blijdschap zij smaakten in hun verlossing. De Joden op het land ontdeden zich van hun vijanden op de dertiende dag van de maand, en rustten op de veertiende dag, vers 17, en maakten hem tot een dag van de dankzegging, vers 19. De Joden te Susan, de koninklijke stad, gebruikten twee dagen voor de militaire strafvoltrekking, zodat zij rustten op de vijftiende dag, en die dag tot een dag van dankzegging maakten, vers 18. Beiden vierden hun feest op de eigen dag, nadat zij hun werk volbracht hadden en hun doel hadden bereikt. Als wij bijzondere zegeningen van God hebben verkregen, dan behoren wij er snel en vaardig dankzegging voor te doen terwijl de zegen en de weldadigheid ons nog vers in het geheugen liggen, en wij nog het sterkst onder de indruk ervan zijn.
@@ -88,25 +92,36 @@ Merk op: Zij hielden de dag niet toen zij streden, maar wel de dagen toen zij ru
 2\. Hoe het genoemd werd: het feest van Purim, vers 26, naar pur, een Perzisch woord dat lot betekent, omdat Haman door het lot beslist had dat dit de dag zou wezen voor de verdelging van de Joden, terwijl de Heere, wiens het beleid is van het lot, bepaald had dat het de tijd zou wezen van hun triomf. De naam van dit feest zal hen herinneren aan de soevereine heerschappij van de God Israëls, die de dwaze bijgelovigheden van de heidenen tot Zijn eigen doeleinden heeft doen dienen, en "die naar de nieuwe manen voorzeggen" overtroffen heeft in wijsheid, Jesaja 47:13, "de tekenen van de leugendichters vernietigende, en de waarzeggers dol makende," Jesaja 44:25.
 
 3\. Door wie het ingesteld en verordend werd. Het was geen Goddelijke inzetting, en daarom wordt het ook geen heilige dag genoemd, maar een menselijke bepaling, waardoor hij tot een vrolijker dag werd gemaakt, vers 19, 22.
+
 A. De Joden hebben het verordend, en namen op zich, vers 27, zij namen vrijwillig aan te doen wat zij begonnen hadden, vers 23. Zij verplichtten zich er toe met algemene instemming.
+
 B. Mordechaï en Esther bevestigden hun besluit, opdat het te meer bindend zou zijn voor het nageslacht, en hun door die grote, eerwaardige namen goed aanbevolen zou zijn. 
 
 Zij schreven:
+
 a. Met alle macht, vers 29, of gezag zoals het hun toekwam, Esther als koningin en Mordechaï als eerste staatsminister. Het is goed als zij, die macht hebben, machtigen tot hetgeen goed is.
+
 b. Met woorden van vrede en trouw. 
 Hoewel zij schreven met macht, schreven zij met tederheid en liefde, niet gebiedend geen last opleggende, maar in de taal, zoals het concilie van Jeruzalem haar gebruikte in zijn decreet, Handelingen 15:29 :"Indien gij zo en zo doet, zo zult gij wel doen, Vaarwel." Dat was de stijl van hun brieven of hun begroeting, hun woord van afscheid. "Vrede en trouw," of waarheid, "zij met ulieden." 
 
 4\. Door wie het gehouden moest worden: door al de Joden en door hun zaad, en door allen, die zich tot hen vervoegen zouden, vers 27. De waarneming van dit feest moest beide algemeen en persoonlijk wezen, de proselieten moeten het waarnemen ten teken van hun oprechte genegenheid voor het Joodse volk, en om te tonen dat zij zich met hun belangen verenigd hadden. Samenstemming in blijdschap en lofzegging behoort tot de gemeenschap van de heiligen.
 
 5\. Waarom het waargenomen moest worden: opdat de gedachtenis aan de grote dingen, die God voor Zijn kerk gedaan heeft, geen einde nemen zou hij hun zaad, vers 28. God doet geen wonderen voor een enkele dag, maar om in eeuwige gedachtenis gehouden te worden. "Wat God doet zal in eeuwigheid zijn," en moet daarom voor eeuwig in gedachtenis worden gehouden, Prediker 3:14. In deze zaak moeten zij gedenken:
+
 a. Aan Hamans slechte handelingen tegen de kerk tot zijn eeuwige schande, vers 24, omdat hij tegen de Joden gedacht had hen om te brengen. Laat dit in gedachte worden gehouden, opdat Gods volk zich nooit aan gerustheid overgeve zolang zij zulke boosaardige vijanden hebben, op wie zij een wakend oog moeten. houden, hun vijanden beogen niets minder dan hun verderf, laat hen dus op God betrouwen om hen te verlossen.
+
 b. Esthers goede diensten aan de kerk, tot haar onsterflijke eer. Toen Esther met gevaar van haar leven voor de koning kwam, heeft hij het edict vernietigd, vers 25. Ook dit moet herdacht worden, opdat, overal waar dit feest gehouden en deze geschiedenis ter verklaring ervan gelezen zou worden hetgeen zij deed verhaald zou worden ter gedachtenis aan haar. Goede daden, gedaan voor het Israël Gods, moeten herdacht worden ter aanmoediging van anderen, om desgelijks te doen. God zal ze niet vergeten, en daarom moeten wij ze ook niet vergeten.
+
 c. Hun eigen gebeden en de verhoring ervan, vers 31, de zaken van het vasten en hun geroep. Hoe meer wij in onze benauwdheid geroepen hebben, hoe meer gebeden om verlossing wij hebben opgezonden, des te meer zijn wij verplicht God te danken voor de verlossing. Roept Mij aan in de dag van de benauwdheid, en dan, offert Gode dank.
 
 6\. Hoe het gehouden moest worden. En laat ons daarvan zien:
+
 A. Wat hier geboden werd, hetgeen zeer goed was. Dat zij het zouden maken:
+
 a. Tot een dag van vrolijkheid, een dag van maaltijden en vreugde, vers 22. "Men maakt maaltijden om te lachen." Prediker 10:19. Als God ons reden geeft om ons te verblijden, waarom zouden wij onze vreugde dan niet te kennen geven? 
+
 b. Een dag van milddadigheid, van zending van delen aan elkaar, ten teken van hun opgeruimdheid en van hun wederzijdse achting, en van hun verbonden zijn aan elkaar door dit en andere algemene gevaren en verlossingen in innige hartelijke liefde.
+
 c. Een dag van barmhartigheid, van zending van gaven aan de armen, het is niet alleen aan onze bloedverwanten en rijke naburen, dat wij tekenen moeten zenden, maar aan "de armen en verminkten," Lukas 14:12-13. Zij, die barmhartigheid verkregen hebben, moeten ten teken van hun dankbaarheid barmhartigheid bewijzen, en de gelegenheid daartoe ontbreekt ons nooit, want de armen hebben wij altijd met ons. Dankzegging en het geven van aalmoezen moeten samengaan, opdat, als wij ons verheugen en God danken, het hart van de armen zich met ons verheuge en hun lenden ons zegenen.
 
 B. Wat daar aan toegevoegd werd, was nog veel beter. Op het feest lezen zij iedere dag de gehele geschiedenis in de synagogen en zenden driemaal een gebed op tot God. In het eerste loven zij God dat zij waardig geacht zijn om die dienst bij te wonen, in het tweede loven zij Hem voor de wonderbaarlijke bewaring van hun voorouders, in het derde loven zij Hem dat zij het nog eenmaal beleefd hebben dit feest ter gedachtenis er aan te vieren. Aldus bisschop Patrick.

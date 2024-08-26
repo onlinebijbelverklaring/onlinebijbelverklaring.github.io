@@ -65,7 +65,9 @@ III. Hierop werd de koning woedend. Hij, die heerschappij had over honderd zeven
 IV. Hoewel hij zeer toornig was, wilde hij in deze zaak toch niets doen vóór hij zijn geheime raad had gehoord. Gelijk hij zeven kamerheren had om zijn orders uit te voeren, die genoemd zijn, vers 10, zo had hij zeven raadsheren om zijn orders te leiden. Hoe meer macht iemand heeft, hoe meer behoefte hij heeft aan raad, teneinde van zijn macht geen misbruik te maken. Van deze raadsheren wordt gezegd, dat zij geleerde mannen waren, want zij verstonden de wet en het recht, dat zij wijze mannen waren, want zij verstonden de tijden, en dat de koning groot vertrouwen in hen stelde en hen eerde, want zij zagen het gezicht van de koning, en zaten vooraan in het koninkrijk, vers 13, 14. In de veelheid van zulke raadslieden is behoudenis. Nu wordt hier:
 
 1\. Aan deze kabinetsraad de vraag gesteld, vers 15. Wat men naar de wet met de koningin Vasthi doen zou Merk op:
+
 a. Hoewel het de koningin was die schuldig was, moet het recht toch zijn loop hebben.
+
 b. Hoewel de koning zeer toornig was, wilde hij toch niets doen dan hetgeen hem overeenkomstig de wet werd aangeraden.
 
 2\. Het voorstel van Memuchan, dat de koning zich van Vasthi wegens haar ongehoorzaamheid zou scheiden. Sommigen opperen het denkbeeld, dat hij die strengheid aanraadde en de anderen er mee instemden, omdat zij wisten dat dit de koning zal behagen, hem thans bevrediging zal geven voor zijn toorn, en later voor zijn lusten. Maar Josefus zegt dat hij, integendeel, een sterke genegenheid koesterde voor Vasthi, en haar wegens dit misdrijf niet weggezonden zou hebben, als hij het wettig voorbij had kunnen zien. En dan moeten wij veronderstellen dat Memuchan met zijn raad eerlijk het recht en het algemeen belang op het oog had.

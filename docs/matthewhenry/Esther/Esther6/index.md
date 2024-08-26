@@ -43,6 +43,7 @@ De grootste persoonlijke verdiensten en de gewichtigste diensten worden dikwijls
 ## Esther 6:4-11 
 
 Het is nu morgen, en de mensen beginnen uit hun huizen te komen.
+
 I. Haman is zó ongeduldig om Mordechaï gehangen te krijgen, dat hij zich vroeg naar het hof begeeft, om zodra de koning opgestaan was en voordat enigerlei andere zaak tot hem kwam, de order daartoe van hem te krijgen, vers 4, en hij houdt er zich van verzekerd dat hem die order op het eerste woord al gegeven zal worden. De koning zal hem in gewichtiger zaken dan deze ter wille zijn, en hij kon de koning zeggen dat hij zó zeker was van het rechtvaardige van zijn verzoek en des konings gunst jegens hem ten opzichte ervan, dat hij de galg reeds gereed heeft, een woord van de koning zal hem dan nu volkomen genoegen geven.
 
 II. De koning is zo ongeduldig om Mordechaï geëerd te zien, dat hij laat vragen wie er in het voorhof is, geschikt om er voor gebruikt te worden. Er wordt hem bericht dat Haman in het voorhof is, vers 5. Dat hij inkome, zegt de koning, hij is de geschiktste man om des konings gunsten te besturen en uit te delen en de koning wist niets van de twist, die hij met Mordechaï had. Haman wordt terstond binnengeleid, trots op de eer die hem werd aangedaan, door in het slaapvertrek van de koning te worden toegelaten voor hij nog op was, naar het schijnt, want als de koning orders heeft gegeven om Mordechaï te eren, dan zal hij rustiger worden in zijn gemoed en dan zal hij nog trachten te slapen. Nu denkt Haman de beste gelegenheid te hebben, die hij kon wensen, om de man, die hij haatte, ten val te brengen. Maar het hart van de koning is even vol als het zijne, en het betaamt dat hij het eerst spreken zal.
@@ -62,6 +63,7 @@ VI. Haman durft de order van de koning niet betwisten, ja hij durft niet eens to
 ## Esther 6:12-14 
 
 Wij kunnen hier opmerken:
+
 I. Hoe weinig Mordechaï door zijn bevordering opgeblazen was, hij keerde weerom tot de poort van de koning, vers 12. Hij keerde terug tot zijn plaats en de plichten ervan, en dat wel terstond, deed even trouw en ijverig zijn werk als tevoren. Eer is goed besteed aan hen, die er niet trots en traag door worden, en zich er door niet boven hun werk verheven achten.
 
 II. Hoe terneergeslagen Haman was door zijn teleurstelling. Hij kon het niet dragen, iemand, wie het ook zij, maar inzonderheid Mordechaï, te dienen, en dat nog wel op een ogenblik, toen hij hoopte hem te zien hangen, dat was genoeg om zo’n trots hart als hij had te doen breken. Hij werd voortgedreven naar zijn huis, treurig en met bedekt hoofd, als iemand, die zich gezonken ziet en, in een zekere zin, veroordeeld. Welk kwaad had het hem gedaan, om zich aldus tot Mordechaï neer te buigen? Was hij er in iets minder om? Was het niet wat hij zelf voorgesteld had, dat door een van ‘s konings vorsten en grootste heren gedaan zou worden? Waarom is hij dan toornig omdat hij het heeft moeten doen? Maar datgene zal het hart van een hoogmoedig man breken, wat van een nederig man niet eens de slaap zou storen.
@@ -71,7 +73,9 @@ III. Hoe hem uit dit voorval door zijn vrouw en zijn vrienden zijn oordeel voors
 1\. Dat Haman teleurgesteld zal worden in zijn onderneming tegen de Joden: "Gij zult niet vermogen dat volk uit te roeien, het is blijkbaar dat de hemel tegen u strijdt." 
 
 2\. Dat hij zelf ten verderve zal gaan. Gij zult gewis voor zijn aangezicht vallen. De strijd tussen Michael en de draak zal geen onbesliste veldslag zijn, nee, Haman moet voor Mordechaï’s aangezicht vallen. Zij gronden hun voorspellingen op twee dingen.
+
 a. Deze Mordechaï is van het. zaad van de Joden, amechtige Joden hebben hun vijanden hen soms genoemd, maar geduchte Joden hebben zij hen soms bevonden. Zij zijn een heilig zaad, een biddend zaad, in verbond met God, en een zaad, dat de Heere van het begin af gezegend heeft, en daarom moeten hun vijanden niet verwachten over hen te zullen triomferen.
+
 b. Haman was begonnen te vallen, en daarom was hij een verloren man. Men heeft opgemerkt van hofgunstelingen, dat zij, als zij eens met afkeurende, dreigende blik werden aangezien, even spoedig gevallen zijn als zij opgeklommen waren. Dit is waarvan de vijanden van de kerk, als God met hen begint, zal Hij een einde met hen maken. Gods werk is volkomen.
 
 IV. Hoe ter rechter tijd hij nu gehaald werd om aan de maaltijd te verschijnen, die Esther bereid had, vers 14. Hij dacht dat het op een gelegen tijd was, omdat hij hoopte dat zijn moed er door opgewekt, zijn afnemende eer er door gered zou worden. Maar het was ook werkelijk een gelegen tijd, omdat zijn moed en geestkracht door deze zware teleurstelling gebroken zijnde, hij zoveel gemakkelijker door Esthers aanklacht tegen hem neergeworpen kon worden. De wijsheid Gods wordt gezien in Zijn beschikken van de juiste tijd voor de middelen, die ter verlossing van Zijn kerk worden aangewend, zodat Zijn heerlijkheid er in wordt geopenbaard.
