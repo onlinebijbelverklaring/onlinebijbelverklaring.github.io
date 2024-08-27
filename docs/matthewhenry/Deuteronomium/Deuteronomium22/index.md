@@ -29,7 +29,9 @@
 29. Zo zal de man, die bij haar gelegen heeft, de vader van de jonge dochter vijftig zilverlingen geven, en zij zal hem ter vrouwe zijn, omdat hij haar vernederd heeft; hij zal ze niet mogen laten gaan al zijn dagen. 
 30. Een man zal zijns vaders vrouw niet nemen, en hij zal zijns vaders slippe niet ontdekken. 
 
+## Inleiding
 Dit hoofdstuk bevat wetten:  
+
 I. Ter bewaring van barmhartigheid en goede nabuurschap in de zorg voor verdwaald of gevallen vee, vers 1-4.  
 II. Ter bewaring van orde en onderscheiding, dat mannen en vrouwen elkaars klederen niet moeten dragen, vers 5, en andere nodeloze vermengingen vermeden moeten worden, vers 9-11.  
 III. Tot behoud van vogels, vers 6, 7.  
