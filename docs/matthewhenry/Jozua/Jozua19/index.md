@@ -80,9 +80,13 @@ Dit is het lot van Zebulon, die hoewel na Issaschar uit Lea geboren, toch door J
 ## Jozua 19:17-23 
 
 Het lot van Issaschar strekte zich uit van de Jordaan in het oosten tot aan de Grote Zee in het westen, ten zuiden paalde het aan Manasse, en ten noorden aan Zebulon. Het was een talrijke stam, Numeri 26:25. Thola, een van de richteren, was uit die stam, Richteren 10. Evenzo was Baësa, een van de koningen van Israël uit die stam, 1 Koningen 15:27. De gewichtigste plaatsen in die stam waren:
+
 1\. Jizreëla, waar Achabs paleis was, en dichtbij Naboths wijngaard. 
+
 2\. Sunem, waar de Godvruchtige Sunamietische woonde, die aan Elisa gastvrijheid heeft verleend. 
+
 3\. De beek Kison, aan werker oevers Sisera door Deborah en Barak werd verslagen. 
+
 4\. De bergen van Gilboa, waar Saul en Jonathan verslagen werden, en niet ver vandaar was Endor, waar Saul de waarzegster heeft geraadpleegd, 5. en Megiddo, waar Josia gedood werd, bij Hadad-Rimmon, 2 Koningen 23:29, Zacharia 12:11 
 
 ## Jozua 19:24-31 
@@ -102,7 +106,8 @@ Hoewel Dan de aanvoerder was van een van de vier afdelingen van het leger Israë
 ## Jozua 19:49-51
 
 In dit laatste vers wordt het verhaal van de verdeling des lands plechtig ten einde gebracht, hetgeen aanduidt dat het tot ieders genoegen en tevredenheid was geschied maar eerst hebben wij het bericht van het bijzondere erfdeel, dat aan Jozua werd toegewezen. 
-I. Hij was de laatste, die een erfdeel ontving, hoewel hij de oudste en voornaamste persoon was van geheel Israël, en, daar hij het opperbevel had gevoerd bij de verovering van Kanaän wel geëist zou kunnen hebben om het eerst voor zich en zijn geslacht een vestiging te ontvangen. Maar hij wilde doen blijken dat hij in alles wat hij deed het goede voor zijn volk op het oog had, maar niet zijn eigen bijzonder belang. Hij was tevreden om nog ongevestigd te blijven, totdat hij allen goed geplaatst zag, en hierin is hij een groot voorbeeld voor allen, die een openbaar ambt bekleden om het algemeen welzijn voor hun eigen wens of genoegen te stellen. Laat eerst het publiek verzorgd zijn. 
+
+1\. Hij was de laatste, die een erfdeel ontving, hoewel hij de oudste en voornaamste persoon was van geheel Israël, en, daar hij het opperbevel had gevoerd bij de verovering van Kanaän wel geëist zou kunnen hebben om het eerst voor zich en zijn geslacht een vestiging te ontvangen. Maar hij wilde doen blijken dat hij in alles wat hij deed het goede voor zijn volk op het oog had, maar niet zijn eigen bijzonder belang. Hij was tevreden om nog ongevestigd te blijven, totdat hij allen goed geplaatst zag, en hierin is hij een groot voorbeeld voor allen, die een openbaar ambt bekleden om het algemeen welzijn voor hun eigen wens of genoegen te stellen. Laat eerst het publiek verzorgd zijn. 
 
 2\. Hij ontving zijn lot naar de mond des Heeren. Waarschijnlijk heeft God, toen Hij door Mozes aan Kaleb zei welk erfdeel hij zou ontvangen, Jozua 14:9, dezelfde belofte gegeven aan Jozua, waardoor hem zijn erfdeel dubbel lieflijk werd, daar hij het niet, zoals de overigen, door Gods algemene voorzienigheid, maar door een bijzondere belofte had verkregen. 
 

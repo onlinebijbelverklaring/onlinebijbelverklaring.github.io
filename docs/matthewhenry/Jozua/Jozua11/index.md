@@ -26,12 +26,12 @@
 
 Dit hoofdstuk vervolgt en besluit de geschiedenis van de verovering van Kanaän. Van de ten onderbrenging van het zuidelijk gedeelte des lands hadden wij het verhaal in het vorige hoofdstuk, waarna wij kunnen veronderstellen, dat Jozua zijn leger enige tijd gaf om uit te rusten, nu hebben wij hier de geschiedenis van de oorlog in het noorden en de gelukkigen uitslag ervan. 
 
-I.	Het verbond van de noordelijke kronen tegen Israël, vers 1-5.   
-II.	De aanmoediging door God aan Jozua gegeven om de strijd met hen te beginnen. vers 6.  
-III.	Zijn overwinning over hen, vers 7-9.  
-IV.	De inneming van de steden, vers 10-15.  
-V.	De verdelging van de Enakieten, vers 21-22.  
-VI.	Het algemene besluit van de geschiedenis van deze oorlog, vers 16-20, 23.  
+I. Het verbond van de noordelijke kronen tegen Israël, vers 1-5.   
+II. De aanmoediging door God aan Jozua gegeven om de strijd met hen te beginnen. vers 6.  
+III. Zijn overwinning over hen, vers 7-9.  
+IV. De inneming van de steden, vers 10-15.  
+V. De verdelging van de Enakieten, vers 21-22.  
+VI. Het algemene besluit van de geschiedenis van deze oorlog, vers 16-20, 23.  
 
 ## Jozua 11:1-9 
 
@@ -51,19 +51,27 @@ Jozua was bekend om zijn kloekmoedigheid, zij was zijn bijzondere genadegave, en
 
 2\. Hij gebiedt hem hun paarden te verlammen en hun wagens te verbranden, niet alleen opdat Israël ze later niet gebruiken zal, maar ook om ze thans niet te vrezen, nu God bedoelt ze aldus in minachting te brengen. Laat Israël op hun wagens zien als op vermolmd hout, bestemd voor het vuur, en op hun krijgspaarden als verlamde dieren, nog nauwelijks als lastdieren te gebruiken. 
 Jozua heeft ongetwijfeld de bemoediging, die hij van God heeft ontvangen, meegedeeld aan het volk, dat wellicht enige vrees koesterde voor dit grote leger, in weerwil van de ervaring, die zij hadden van Gods macht aangewend tot hun behoeve. En de wijsheid en goedheid Gods kan opgemerkt worden: 
+
 a. In het verdwazen van de raad van de vijanden zodat niet al de koningen van Kanaän, die toch niet zo ver van elkaar verspreid waren of zij hadden zich tot een lichaam kunnen verenigen, zich reeds terstond tegen Israël verbonden, maar verdeeld bleven in een zuidelijken en een noordelijken bond, en aldus zoveel te minder geducht werden voor Israël. En 
+
 b. In het toebereiden van Zijn volk om de grotere krijgsmacht het hoofd te bieden, door de kleinere reeds verslagen te hebben. Eerst hebben zij tegen vijf koningen gestreden, en nu tegen veel meer. God maakt onze beproevingen evenredig aan onze kracht, en onze kracht aan onze beproevingen. 
 
 III. Jozua’s optrekken tegen deze verbonden legers, vers 7. Hij kwam snel over hen, verraste hen in hun kwartieren. Hij maakte deze haast:
+
 1\. Om hen te meer in verwarring te brengen, door hen aldus op te schrikken, toen zij weinig dachten dat hij zo nabij was. 
+
 2\. Ten einde de eer niet te missen van God te ontmoeten door te laat te komen, daar God die ontmoeting bepaald had bij het leger van de vijand, morgen omtrent deze tijd. Het betaamt ons om punctueel te zijn met God. 
 
 IV. Zijn welslagen, vers 8. Hij behaalde de eer en het voordeel van een volkomen overwinning. Hij sloeg hen en joeg hen na op hun vlucht. Sommigen vloden naar Sidon dat in het noordwesten lag anderen naar Mizpa, oostwaarts, en naar beide zijden zond Jozua troepen om hen te vervolgen. Zo gaf de Heere hen in de hand Israëls. Zij wilden niet zichzelf aan Israël overgeven, om tot proselieten en schatplichtigen gemaakt te worden en geofferd te worden aan Gods genade, Romeinen 15:16, en daarom heeft God hen in hun handen overgeleverd om tot offeranden gemaakt te worden van Zijn gerechtigheid, want God zal door ons of aan ons verheerlijkt worden. 
 
 V. Zijn gehoorzaamheid aan de orders, die hem gegeven zijn, door de paarden te verlammen en de wagens te verbranden, vers 9, hetgeen een voorbeeld was:
+
 1\. Van zijn onderworpenheid aan de Goddelijken wil, als zijnde onder bevel, moetende doen wat hem geboden wordt. 
+
 2\. Van zijn zelfverloochening, ingaande tegen zijn eigen zin en neiging, in gehoorzaamheid aan het gebod Gods. 
+
 3\. Van zijn vertrouwen in de macht van God, aangewend ten dienste van Israël, waardoor hij instaat was de paarden en wagens te minachten, waar anderen op vertrouwden, Psalm 20:8, 33:17. 
+
 4\. Van zijn zorg om in het volk eenzelfde vertrouwen in God in stand te houden, door hun datgene te ontnemen, waarop zij in verzoeking zouden zijn te veel vertrouwen te stellen. Dit was het afhouwen van een rechterhand. 
 
 ## Jozua 11:10-14 
@@ -73,7 +81,9 @@ Wij zien hier hoe van deze overwinning hetzelfde gebruik werd gemaakt als van di
 1\. Er wordt inzonderheid melding gemaakt van de verwoesting van Hazor, omdat in die stad en door haar koning deze vermetele aanslag tegen Israël beraamd was, vers 10, 11. De koning van Hazor schijnt aan de slag ontkomen te zijn, waarna hij wederkeerde naar zijn stad en dacht er veilig te zijn, daar Jozua de verstrooide benden vervolgde in een andere richting, maar het bleek, dat hetgeen hij dacht zijn veiligheid te zijn, een strik voor hem was, hij was er gevangen met het boze net, hij werd gedood, en zijn stad om zijnentwil verbrand. Toch bevinden wij dat de overblijfselen ervan waarop Israël niet genoegzaam acht sloeg, door de Kanaänieten herbouwd werden onder een anderen koning van dezelfde naam, Richteren 4:2. 
 
 2\. Van de overige steden van dat deel des lands wordt alleen in het algemeen gesproken, en gezegd dat zij allen in Jozua’s handen kwamen, maar dat hij ze niet verbrandde, zoals hij Hazor verbrand heeft, want Israël moest wonen "in grote en goede steden, die zij niet gebouwd hebben," Deuteronomium 6:10, en onder andere in deze. En hier zien wij Israël zich badende in bloed en schatten. 
-a. In het bloed hunner vijanden, zij sloegen alle ziel, vers 11, zij lieten niets overblijven, dat adem had, vers 14, opdat er niemand zou zijn om hen te besmetten met de gruwelen van Kanaän, en niemand om hen te verontrusten in het bezit er van. De kinderen werden gedood, opdat zij later geen aanspraak zouden maken op enig deel des lands uit hoofde hunner geboorte. 
+
+a. In het bloed hunner vijanden, zij sloegen alle ziel, vers 11, zij lieten niets overblijven, dat adem had, vers 14, opdat er niemand zou zijn om hen te besmetten met de gruwelen van Kanaän, en niemand om hen te verontrusten in het bezit er van. De kinderen werden gedood, opdat zij later geen aanspraak zouden maken op enig deel des lands uit hoofde hunner geboorte.
+ 
 b. In de schatten hunner vijanden, de roof en het vee roofden zij voor zich, vers 14. Gelijk zij verrijkt waren met de roof hunner verdrukkers, toen zij uit Egypte kwamen, teneinde er gedurende hun leerjaren in de woestijn van te kunnen leven, zo werden zij ook verrijkt met de roof hunner vijanden, teneinde er de onkosten hunner vestiging in Kanaän mee te bestrijden. Aldus is het vermogen des zondaars weggelegd voorden rechtvaardige. 
 
 ## Jozua 11:15-23 

@@ -43,7 +43,9 @@ Jozua’s diensten en daden waren blijkbaar groot, maar laat die van Mozes niet 
 
 ## Jozua 12:7-24 
 
-Wij hebben hier een kort overzicht van Jozua’s veroveringen. I. De grenzen van het door hem veroverde land, het lag tussen de Jordaan in het oosten en de Middellandse Zee ten westen, en strekte zich uit van Baäl-Gad nabij de Libanon in het noorden, tot Halak, of de kalen berg, nabij het land van Edom in het zeiden, vers 7. Die grenzen zijn uitvoeriger beschreven in Numeri 34:2 en verv. , de beschrijving hier is voldoende om te tonen dat God Zijn woord gestand heeft gedaan, en hun het bezit heeft gegeven van al het land, dat hun door Mozes beloofd was, zo zij het slechts hadden willen houden. 
+Wij hebben hier een kort overzicht van Jozua’s veroveringen. 
+
+I. De grenzen van het door hem veroverde land, het lag tussen de Jordaan in het oosten en de Middellandse Zee ten westen, en strekte zich uit van Baäl-Gad nabij de Libanon in het noorden, tot Halak, of de kalen berg, nabij het land van Edom in het zeiden, vers 7. Die grenzen zijn uitvoeriger beschreven in Numeri 34:2 en verv. , de beschrijving hier is voldoende om te tonen dat God Zijn woord gestand heeft gedaan, en hun het bezit heeft gegeven van al het land, dat hun door Mozes beloofd was, zo zij het slechts hadden willen houden. 
 
 II. De verschillende soorten van landstreken, die daar gevonden werden, en bijdroegen tot zijn schoonheid en vruchtbaarheid, vers 8. Er waren bergen, niet ruw, rotsachtig en onvruchtbaar, schrikwekkend voor de reiziger, en nutteloos voor de inwoner neen, het waren vruchtbare heuvelen, die uitnemende dingen voortbrachten, Deuteronomium 33:15, het oog van de beschouwer bekoorden, en de hand des eigenaars vulden. En dalen, niet mossig en moerassig, maar bedekt met koren, Psalm 65:14. Er waren vlakten, en bronnen om ze te bewateren, en zelfs in dat rijke land waren ook woestijnen en bossen, die niet zo dicht bevolkt waren als de andere delen van het land, maar waar toch steden en huizen waren, en die als tegenhangers dienden om het lieflijke en vruchtbare van de andere delen te beter te doen uitkomen. 
 
