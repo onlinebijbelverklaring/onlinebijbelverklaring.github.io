@@ -50,7 +50,9 @@ II. Welke volken zij moesten aanvallen en tenonder brengen. zij moesten beginnen
 
 ## Deuteronomium 2:1-7 
 
-I. Hier is een kort bericht van een langdurig verblijf van Israël in de woestijn. Wij togen om het gebergte Seir, vele dagen. Bijna acht en dertig jaren hebben zij in de woestijnen van Seir omgedwaald, waarschijnlijk zijn zij op sommige pleisterplaatsen jarenlang gebleven. Hiermede heeft God hen niet slechts gekastijd wegens hun murmureren en ongeloof, maar 1. Hen toebereid voor Kanaän, door hen te verootmoedigen vanwege de zonde, heeft Hij hen geleerd hun lusten te doden, God te volgen, en zich in Hem te vertroosten. Het is een werk van tijd om zielen geschikt te maken voor de hemel, en het moet geschieden door een lange reeks van oefeningen.
+I. Hier is een kort bericht van een langdurig verblijf van Israël in de woestijn. Wij togen om het gebergte Seir, vele dagen. Bijna acht en dertig jaren hebben zij in de woestijnen van Seir omgedwaald, waarschijnlijk zijn zij op sommige pleisterplaatsen jarenlang gebleven. Hiermede heeft God hen niet slechts gekastijd wegens hun murmureren en ongeloof, maar 
+
+1\. Hen toebereid voor Kanaän, door hen te verootmoedigen vanwege de zonde, heeft Hij hen geleerd hun lusten te doden, God te volgen, en zich in Hem te vertroosten. Het is een werk van tijd om zielen geschikt te maken voor de hemel, en het moet geschieden door een lange reeks van oefeningen.
 
 2\. De Kanaänieten bereid voor het verderf, al die tijd bleef de mate van hun ongerechtigheid zich vullen, en, hoewel zij zich die tijd ten nutte hadden kunnen maken om er zich in te bekeren, hebben zij hem misbruikt door hun hart te verharden. Nu het leger Israëls eenmaal teruggeslagen was, en daarna zo lang in de woestijn verward en schijnbaar verloren was, waren zij gerust en dachten dat hun van uit die hoek geen gevaar meer dreigde, waardoor de volgende aanval van Israël zoveel vreeslijker zou zijn.
 
@@ -59,12 +61,17 @@ II. Er worden hun orders gegeven om zich weer naar Kanaän te keren. Hoewel God 
 III. Een last hun gegeven om de Edomieten niet te bemoeilijken.
 
 1\. Zij moeten geen vijandelijkheden tegen hen plegen, vers 4, 5. Mengt u niet met hen.
+
 a. Zij moeten geen gebruik maken van het voordeel, dat zij over hen hadden door de schrik, die hen op Israëls nadering zou bevangen. "Zij zullen wel voor u vrezen, uw sterkte en aantal kennende, en de kracht van God, die tot uw behoeve aangewend zal worden, maar denkt niet dat gij, wijl hun vrees hen tot een gemakkelijke prooi voor u zou maken, op die prooi daarom moogt aanvallen, neen, gij zult u zeer wachten". Er is grote voorzichtigheid nodig en een krachtig beheersen van onze geest, om er ons van terug te houden diegenen te schaden, tegen wie wij in het voordeel zijn. Of wel, deze waarschuwing wordt gegeven aan de oversten, zij moeten niet alleen zelf zich niet mengen met de Edomieten maar ook aan niemand van hun krijgsvolk toestaan om zich met hen te mengen.
+
 b. Zij moeten de belediging niet wreken, die de Edomieten hun aangedaan hebben, toen zij weigerden hen door hun land te laten trekken Numeri 20:21. Zo heeft God vóór Hij Israël leidde om hun vijanden in Kanaän te verdelgen, hun geleerd vergiffenis te schenken aan hun vijanden in Edom.
+
 c. Zij moeten niet verwachten dat hun enig deel van hun land tot een bezitting gegeven zal worden, het gebergte Seïr was reeds aan de Edomieten gegeven, en zij moeten niet denken dat zij, onder voorgeven van Gods verbond en leiding, maar alles mochten nemen wat hun onder de hand kwam. Heerschappij is niet gegrond in genade. Gods Israël zal goed geplaatst worden, maar zij moeten niet verwachten alleen inwoners gemaakt te worden in het midden des lands, Jesaja 5:8.
 
 2\. Zij moeten handel met hen drijven als naburen, spijs en water van hen kopen, en wat zij gekocht hadden betalen, vers 6. Nooit moet de Godsdienst tot dekmantel gebruikt worden van onrechtvaardigheid. De reden, hiervoor gegeven, is: omdat God u gezegend heeft, en u totnutoe niets heeft ontbroken vers 7, en daarom:
+
 a. Behoeft gij niet te bedelen, veracht het, om iets aan de Edomieten te danken te hebben, als gij toch een algenoegzame God hebt om op te steunen. Zij hebben dank zij de zegen van God hetgeen waarmee zij het benodigde kunnen betalen, gebruikt dus goedsmoeds wat gij hebt, en teert niet op de Edomieten.
+
 b. Daarom moet gij niet stelen. Gij hebt de zorg ervaren van de Goddelijke voorzienigheid voor u, in vertrouwen daarop voor de toekomst en in het vaste geloof van haar genoegzaamheid moet gij geen indirecte middelen gebruiken om in uw behoeften te voorzien. Leeft door het geloof, en niet op uw zwaard".
 
 ## Deuteronomium 2:8-23 
@@ -79,9 +86,12 @@ I. Een bericht van Mozes omtrent de oorsprong van de volken, van wie hij hier mo
 
 3\. Zo hebben ook de Ammonieten bezit genomen van een land, dat vroeger bewoond werd door reuzen, genaamd Zamzummieten, listige of boze mannen, vers 20, 21, waarschijnlijk dezelfden, die in Genesis 14:5 Zuzieten genoemd worden. Hij verklaart dit door een voorbeeld, nog ouder dan die allen, de Kafthorieten (die verwant waren aan de Filistijnen Genesis 10:14) verdreven de Awieten uit het land en namen het in bezit, vers 23. De geleerde bisschop Patrick veronderstelt dat deze Awieten vandaar verdreven zijnde, zich gevestigd hebben in Assyrië, en dat zij hetzelfde volk zijn van die naam, waarvan wij lezen in 2 Koningen 17:31. 
 Al deze omwentelingen nu zijn vermeld:
+
 a. Om te tonen hoe spoedig na de zondvloed de wereld weer bevolkt was, zo wel bevolkt dat als een geslacht talrijk werd zij geen plaats konden vinden om er zich te vestigen, tenminste niet in dat gedeelte van de wereld, of zij moesten hen verdrijven, die alreeds gevestigd waren.
 b. Om te tonen dat de loop niet is van de snellen, noch de strijd van de helden. Reuzen werden verdreven door personen van gewone lengte, want waarschijnlijk waren deze reuzen, evenals die van vóór de zondvloed Genesis 6:4, berucht om hun goddeloosheid en verdrukking, waardoor de oordelen Gods over hen gekomen zijn, en tegen deze kon hun grote lengte hen niet beschermen of beschutten.
+
 c. Om te tonen welke onvaste, onzekere dingen wereldlijke bezittingen zijn en hoe dikwijls zij van eigenaars veranderen. Zo was het vanouds en zo zal het altijd blijven. Geslachten nemen af, en de bezittingen gaan van hen over op geslachten, die opbloeien en toenemen, zo weinig standvastig, zo weinig duurzaam zijn deze dingen! 
+
 d. Om de kinderen Israëls, die nu gingen bezit nemen van Kanaän, aan te moedigen onder de moeilijkheden, die hun daarbij te wachten stonden, en het ongeloof in het licht te stellen van hen, die bevreesd waren voor de kinderen Enaks, bij wie de reuzen, die hier gezegd worden overwonnen te zijn, vergeleken worden vers 11, 21. Als Gods voorzienigheid dit gedaan heeft voor de Moabieten en Ammonieten, dan zal Zijn belofte dit nog veel meer doen voor Israël, Zijn bijzonder volk.
 
 II. Israëls vorderingen naar Kanaän heen. Zij doortogen de weg van de woestijn van Moab vers 8, en toen trokken zij over de beek Zered vers 13, en daar neemt Mozes nota van de vervulling van het woord, dat God hen betreffende had gesproken, namelijk dat niemand van hen, die bij de berg Sinaï geteld waren, het land zullen zien, dat God beloofd had, Numeri 14:23. Nu zij hun aangezicht naar Kanaän hebben gericht, het land onder de ogen hebben blijkt het dat, overeenkomstig dat vonnis, geen enkele man van hen is overgebleven, maar dat allen gestorven zijn, vers 14. In de gewone loop van de voorzienigheid zal in een tijdperk van acht en dertig jaren meestal een nieuw geslacht ontstaan, en zullen van het oude slechts weinigen overgebleven zijn, maar hier was dit geslacht volkomen nieuw, en was er behalve Kaleb en Jozua niet één van overgebleven, want de hand des Heeren was tegen hen, vers 15. Diegenen moeten wel afnemen, totdat zij geheel verteerd zijn, tegen wie de hand des Heeren is. 

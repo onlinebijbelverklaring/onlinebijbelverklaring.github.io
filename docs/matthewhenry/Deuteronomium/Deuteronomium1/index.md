@@ -81,11 +81,15 @@ Mozes herinnert hen hier aan de gelukkige inrichting van hun regering, waaronder
 4\. Dat hij in deze zaak zeer gaarne het volk wilde believen, en hoewel het hem nooit om hun lof of toejuiching te doen was, wilde hij toch in een zaak van die aard niet handelen zonder hun goedkeuring. En zij hebben ingestemd met zijn voorstel, vers 14. Dit woord, dat gij gesproken hebt, is goed om te doen. Hij maakt hier melding van als verzwaring van de zonde van hun muiterij en ontevredenheid daarna, daar de regering, waarover zij ontevreden waren, er één was, die zij zelf gewild hadden. Mozes zou hun tevredenheid hebben gegeven, indien zij tevreden hadden willen zijn.
 
 5\. Dat hij bedoelde hen te stichten, zowel als hun voldoening te geven.
+
 a. Hij stelde mannen aan van een goed karakter, vers 15, wijze en ervaren mannen, mannen die getrouw zullen zijn aan hun opdracht en aan de belangen van het publiek.
+
 b. Hij geeft hun een goede opdracht, vers 16, 17. Zij, die tot eer bevorderd worden, moeten weten dat hun arbeid is opgedragen, en dat zij er rekenschap van zullen hebben te geven.
 
 (1). Hij beveelt hun naarstig en geduldig te zijn: hoort de verschillen. Hoort beide zijden, hoort ze ten volle, hoort ze met zorg en nauwkeurigheid, want de natuur heeft ons voorzien van twee oren, en hij, die antwoord geeft eer hij zal gehoord hebben, dat is hem dwaasheid en schande. De tong van de geleerden heeft het oor nodig van hem die leert.
+
 (2). Rechtvaardigen onpartijdig te zijn, richt rechtvaardig. Er moet recht gesproken worden naar de omstandigheden van de zaak, zonder dat daarbij de hoedanigheid van de partijen in aanmerking komt. Aan de inboorlingen moet niet toegestaan worden de vreemdelingen te verdrukken, evenmin als aan de vreemdelingen om de inboorlingen te beledigen of te schaden. Aan de groten moet niet toegelaten worden de kleinen te verdrukken, evenmin als aan de kleinen om de groten te beroven of te honen. In het gericht moet het aangezicht niet gekend worden, onomgekocht, onbevooroordeeld, naar. billijkheid en rechtvaardigheid moet recht gesproken worden.
+
 (3). Vastberaden en kloekmoedig te zijn, "gij zult niet vrezen voor iemands aangezicht. Laat u door geen vrees of ontzag bewegen om een kwade zaak te doen, hetzij door het geschreeuw van de menigte, of door de dreigementen van hen die macht hebben". En hij gaf hun een goede reden om aan dit bevel kracht bij te zetten: want het gericht is Godes. Gij zijt Gods plaatsbekleders, gij handelt voor Hem, en daarom moet gij handelen zoals Hij handelt, gij zijt Zijn vertegenwoordigers, maar als gij onrechtvaardig oordeelt, dan stelt gij Hem verkeerd voor. Van Hem is het gericht, en daarom zal Hij u beschermen als gij recht doet, maar u gewis ter verantwoording roepen als gij onrecht doet". Eindelijk. Hij vergunde hun alle moeilijke zaken tot hem te brengen, en hij zal altijd bereid wezen te horen en te oordelen, en beide rechters en volk gerust te doen zijn. Zalig zijt gij, o Israël, in zo’n vorst als Mozes geweest is. 
 
 ## Deuteronomium 1:19-46 
@@ -95,6 +99,7 @@ Mozes herhaalt hier uitvoerig de geschiedenis van de noodlottige keer in hun zak
 I. Hij herinnert hen aan hun tocht van Horeb naar Kades-Barnea, vers 19, door die grote en vreselijke woestijn. Hier neemt hij nota van:
 
 1\. Om hen de grote goedheid van God jegens hen te doen beseffen, door hen in zo’n grote woestijn te leiden, en te beschermen tegen het kwaad, waarvan zij in zo vreselijke woestijn omringd waren. De herinnering aan onze gevaren moet ons dankbaar maken voor onze uitreddingen.
+
 2\. Om de dwaasheid te doen uitkomen van hen, die in hun ontevredenheid naar Egypte hadden willen terugkeren door de woestijn, hoewel zij de leiding Gods hadden verbeurd en geen reden hadden om haar voor die terugtocht te verwachten.
 
 II. Hij toont hun hoe ver zij toen reeds op weg waren naar Kanaän, vers 20, 21. Met blijdschap had hij hun gezegd: het land is voor uw aangezicht, trekt op, bezit het erfelijk. Hij laat hun zien hoe dicht zij er aan toe waren, om gelukkig gevestigd te zijn, toen zij zelf een grendel voor hun deur hebben geschoven, opdat zij zouden zien hoe uiterst zondig hun zonde was. Het zal het eeuwige verderf van de geveinsden verzwaren, dat zij niet ver van het koninkrijk Gods waren, en toch achtergebleven zijn, Markus 12:34.
@@ -109,15 +114,21 @@ VI. Hij legt hun de zonde ten laste, waaraan zij zich bij die gelegenheid schuld
 
 1\. Ongehoorzaamheid en weerspannigheid tegen Gods wet: Gij wilde niet optrekken, maar gij waart de mond des Heeren weerspannig, vers 26. Het verwerpen van Gods gunst is in werkelijkheid een rebelleren tegen Zijn gezag.
 
-2\. Hatelijke verdenkingen van Gods goedheid. Zij opperden het laaghartig denkbeeld: Omdat de Heere ons haat, heeft Hij ons uit Egypteland uitgevoerd, vers 27. Wat kon meer ongerijmd, meer onwaar en meer smadelijk zijn voor God? 3. Op de bodem van dit alles was een ongelovig hart, vers 32. Gij geloofde niet in de Heere, uw God. Al uw ongehoorzaamheid aan Gods wetten en uw mistrouwen van Zijn macht en goedheid komen voort uit het niet geloven van Zijn woord. Wèl staat het slecht met ons geschapen, als de God van de eeuwige waarheid niet geloofd kan worden. VII. Hij spreekt van het vonnis, dat wegens die zonde over hen geveld werd, en waarvan zij de voltrekking hadden gezien.
+2\. Hatelijke verdenkingen van Gods goedheid. Zij opperden het laaghartig denkbeeld: Omdat de Heere ons haat, heeft Hij ons uit Egypteland uitgevoerd, vers 27. Wat kon meer ongerijmd, meer onwaar en meer smadelijk zijn voor God? 3. Op de bodem van dit alles was een ongelovig hart, vers 32. Gij geloofde niet in de Heere, uw God. Al uw ongehoorzaamheid aan Gods wetten en uw mistrouwen van Zijn macht en goedheid komen voort uit het niet geloven van Zijn woord. Wèl staat het slecht met ons geschapen, als de God van de eeuwige waarheid niet geloofd kan worden. 
+
+VII. Hij spreekt van het vonnis, dat wegens die zonde over hen geveld werd, en waarvan zij de voltrekking hadden gezien.
 
 1\. Alleen waren zij veroordeeld om in de woestijn te sterven, en niemand van hun mocht in Kanaän komen, behalve Kaleb en Jozua, vers 34, 36. Zolang moeten zij omdwalen in de woestijn, dat de meesten van hen naar de loop van de natuur zullen sterven, en de jongsten van hen werden afgesneden. Aldus hebben zij niet kunnen ingaan vanwege hun ongeloof. Het was niet de overtreding van de geboden van de wet, die hen buiten Kanaän sloot, neen, zelfs niet het gouden kalf, maar hun ongeloof aan die belofte, welke een type was van de Evangeliegenade, om aan te duiden, dat geen zonde ons ten verderve zal brengen dan de zonde van ongeloof, die een zonde is tegen het geneesmiddel.
 
 2\. Mozes zelf is later om Gods ongenoegen gevallen, wegens een haastig woord, waartoe zij hem door hun terging geprikkeld hadden, vers 37, Ook vertoornde zich de Heere op mij om uwentwil. Omdat geheel het oude geslacht moet heengaan, moet Mozes zelf niet achterblijven. Hun ongeloof heeft de dood in het leger gebracht, en daar binnengetreden zijnde valt zelfs Mozes onder de last, die hem is opgedragen.
 
 3\. Toch is hier barmhartigheid gemengd met het oordeel.
+
 a. Mozes mag hen niet in Kanaän brengen, maar Jozua zal dit doen, vers 38. Sterk hem, want anders zou hij de moed niet hebben om een regering op zich te nemen, onder welks gewicht hij Mozes zelf ziet vallen, maar laat hem er van verzekerd wezen, dat hij hetgeen, waartoe hij geroepen is, tot stand zal brengen. Hij zal het Israël doen erven. Evenzo: wat van de wet onmogelijk was, dewijl zij door het vlees krachteloos was, dat heeft Jezus, onze Jozua, gedaan door een betere hoop teweeg te brengen.
-b. Hoewel dit geslacht niet in Kanaän zal komen, zal toch het volgende geslacht er in komen, vers 39. Gelijk zij ter wille van hun vaderen waren uitverkoren, zo zouden hun kinderen rechtvaardiglijk om hunnentwil verworpen zijn kunnen worden. Maar de barmhartigheid roemt tegen het oordeel. VIII. Hij herinnert hen aan hun dwaze en vruchteloze poging om dit vonnis herroepen te krijgen.
+
+b. Hoewel dit geslacht niet in Kanaän zal komen, zal toch het volgende geslacht er in komen, vers 39. Gelijk zij ter wille van hun vaderen waren uitverkoren, zo zouden hun kinderen rechtvaardiglijk om hunnentwil verworpen zijn kunnen worden. Maar de barmhartigheid roemt tegen het oordeel. 
+
+VIII. Hij herinnert hen aan hun dwaze en vruchteloze poging om dit vonnis herroepen te krijgen.
 
 1\. Zij beproefden het door hierin beterschap te tonen, zij hadden geweigerd tegen de Kanaänieten op te trekken, en nu wilden zij in der haast optrekken, en gordden hiertoe hun wapenrusting aan, vers 41. Zo zullen, als de deur gesloten en de dag van de genade voorbij is, er gevonden worden, die buiten staan en kloppen. Maar hetgeen de schijn had van een verbeterde gezindheid, bleek slechts nog meer rebellie te zijn. God had door Mozes de poging verboden, vers 42, maar zij handelden trots en togen op naar het gebergte, vers 43, nu handelende in minachting van de bedreiging, zoals zij tevoren gehandeld hadden in minachting van de belofte, alsof zij geheel beheerst werden door een geest van tegenspraak, en dienovereenkomstig was dan ook het gevolg, vers 44, zij werden vervolgd en verpletterd, en door deze nederlaag, nadat zij God door hun murmureren en hun weerspannigheid er toe gebracht hadden hen te verlaten, werd hun te verstaan gegeven welke voorspoed zij hadden kunnen hebben, als zij in Zijn liefde waren gebleven.
 

@@ -41,7 +41,7 @@ In het bijzonder:
 
 ## Deuteronomium 9:1-6 
 
-De oproep tot aandacht: Hoor, Israël, vers 1, duidt aan, dat dit een nieuwe rede is, uitgesproken enige tijd na de vorige, waarschijnlijk op de volgende sabbatdag.
+De oproep tot aandacht: Hoor, Israël, vers 1, duidt aan, dat dit een nieuwe rede is, uitgesproken enige tijd na de vorige, waarschijnlijk op de volgende sabbatdag. 
 
 I. Hij stelt hen de geduchte krachtenmacht voor van de vijanden, met wie zij nu te doen zullen hebben, vers 1. De natiën, die zij moeten verdrijven, waren machtiger dan zij, geen ruwe, tuchteloze benden, zoals de inboorlingen van Amerika, die gemakkelijk ten onder werden gebracht. En als zij hen gingen belegeren, dan zouden zij hun steden wèl versterkt vinden, volgens de toenmalige kunst van fortificatie, gingen zij hen slag leveren in het open veld, zij zouden bevinden dat het volk groot en sterk was, waarvan het gerucht ging, dat niemand tegen hen bestand was, vers 2. Deze voorstelling komt tamelijk wel overeen met die van de boze verspieders, Numeri 13:28, 33, maar door hen met een geheel andere bedoeling gemaakt, namelijk om hen van God weg te drijven en hun hoop op Hem te ontmoedigen, daar geen macht minder dan van Hem, die almachtig is, hen kon beveiligen en wèl doen slagen.
 
