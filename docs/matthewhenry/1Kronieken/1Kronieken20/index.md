@@ -21,6 +21,7 @@ Gelijk nu het verhalen van de zonde waarin David gevallen is, een voorbeeld is v
 ## 1 Kronieken 20:4-8 
 
 De Filistijnen waren bijna ten onder gebracht, Hoofdstuk 18:1, maar gelijk in de verdelging van de Kanaänieten door Jozua de Enakieten het laatst ten onder werden gebracht, Jozua 11:21, zo werden ook in de oorlog tegen de Filistijnen de reuzen van Gath het laatst onderworpen. In de strijd tussen genade en bederf zijn er sommige zonden, die, evenals deze reuzen, zeer lang stand houden, en niet zonder grote moeite en een langdurige worsteling overmeesterd kunnen worden, maar het oordeel zal ten laatste uitgebracht worden tot overwinning. Merk op: 
+
 1\. Nooit lezen wij van reuzen onder de Israëlieten, zoals wij van reuzen lezen onder de Filistijnen, de reuzen van Gath, maar geen reuzen van Jeruzalem. De groei van Gods planten is in nuttigheid, niet in omvang. Zij, die begeren ellen tot hun lengte toe te doen, bedenken niet dat dit hen slechts zoveel te meer log en lomp zou maken. In de weegschaal van het heiligdom weegt David veel zwaarder dan Goliath.
 
 2\. Hoewel Davids knechten mannen waren van gewone statuur, waren zij de reuzen van Gath toch te sterk in elke strijd, omdat zij God aan hun zijde hadden, die er behagen in schept de hoge ogen van de mensen te vernederen en de reuzen, die op de aarde zijn te beteugelen of te verdelgen, zoals Hij het vanouds gedaan heeft door de zondvloed hoewel zij mannen van naam waren. 

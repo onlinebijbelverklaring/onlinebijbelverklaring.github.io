@@ -31,14 +31,21 @@ II. Zijn afzonderlijk antwoord, dat hem mondeling in een nachtgezicht werd gegev
 ## 2 Kronieken 7:1-11 
 
 I. Hier is het genaderijke antwoord, dat God terstond op Salomo’s gebed heeft gegeven. Het vuur daalde van de hemel en verteerde het brandoffer, vers 1. Op die wijze heeft God Zijn goedkeuring te kennen gegeven aan Mozes, Leviticus 9:24, aan Gideon, Richteren 6:21, aan David, 1 Koningen 21:26, aan Elia, 1 Koningen 18:38, en in het algemeen is de Hebreeuwse uitdrukking voor het aannemen van het brandoffer, het tot as maken, Psalm 20:4. Het vuur kwam hier neer, niet na het slachten van de offers, maar na het bidden van het gebed. Dit vuur gaf te kennen dat God: 
+
 1\. Heerlijk is in zichzelf, want onze God is een verterend vuur, schrikkelijk is zelfs in Zijn heilige plaatsen. Dit vuur, voorkomende (zoals waarschijnlijk is) uit de dikke duisternis, werd er te ontzagwekkender door, zoals op de berg Sinaï, Exodus 24:16, 17. De zondaren in Sion hadden reden om bevreesd te zijn op dat gezicht, en te zeggen: "Wie is er onder ons, die bij een verterend vuur wonen kan?" Jesaja 33:14. En toch: 
 
-2\. Genadig is voor Israël, want dit vuur, dat hen rechtvaardig had kunnen verteren, viel op het offer, dat in hun plaats geofferd werd, en verteerde dit, waarmee God hun te kennen gaf dat Hij hun offeranden aannam, en dat Zijn toorn van hen was afgewend. Laat ons dit toepassen: a. Op het lijden van Christus, toen het de Heere behaagde Hem te verbrijzelen en Hij Hem ziek heeft gemaakt, waarin Hij fijne liefde heeft getoond voor de mensen, daar Hij van onze aller ongerechtigheid op Hem heeft doen aanlopen. Zijn dood was ons leven, en Hij is zonde en een vloek gemaakt, opdat wij gerechtigheid en een zegen zouden beërven. Dat offer werd verteerd, opdat wij zouden ontkomen. Hier ben Ik, laat deze heengaan.
+2\. Genadig is voor Israël, want dit vuur, dat hen rechtvaardig had kunnen verteren, viel op het offer, dat in hun plaats geofferd werd, en verteerde dit, waarmee God hun te kennen gaf dat Hij hun offeranden aannam, en dat Zijn toorn van hen was afgewend. Laat ons dit toepassen: 
+
+a. Op het lijden van Christus, toen het de Heere behaagde Hem te verbrijzelen en Hij Hem ziek heeft gemaakt, waarin Hij fijne liefde heeft getoond voor de mensen, daar Hij van onze aller ongerechtigheid op Hem heeft doen aanlopen. Zijn dood was ons leven, en Hij is zonde en een vloek gemaakt, opdat wij gerechtigheid en een zegen zouden beërven. Dat offer werd verteerd, opdat wij zouden ontkomen. Hier ben Ik, laat deze heengaan.
+
 b. Op de heiligmaking des Geestes, die neerkomt als vuur, onze lusten en ons bederf uitbrandende, deze dieren, die geofferd moeten worden of wij zijn verloren, en in onze ziel een heilig vuur ontsteekt van Godvruchtige begeerten en neigingen, dat altijd brandende gehouden moet worden op het altaar van ons hart. Het zekerste bewijs van Gods aanneming van onze gebeden is de nederdaling in ons van dat vuur: Was ons hart niet brandende in ons? Lukas 24:32. Als een verder bewijs dat God Salomo’s gebed aannam, bleef de heerlijkheid des Heeren het huis nog vervullen. Het hart, dat aldus vervuld wordt met heilig ontzag en eerbied voor de Goddelijke heerlijkheid, omdat Hij zich geopenbaard heeft in Zijn grootheid (die niet minder Zijn heerlijkheid is) wordt hierdoor erkend als een levenden tempel.
 
 II. De dankerkentenis aan God voor dit genadig teken van Zijn gunst.
+
 1\. Het volk aanbad en loofde de Heere, vers 3. Toen zij aldus het vuur Gods van de hemel zagen nederdalen, zijn zij niet verschrikt weggevlucht, maar bleven staan in de voorhoven des Heeren en namen er aanleiding uit: 
+
 a. Om de heerlijkheid des Heeren met eerbied te aanbidden, zij bukten met hun aangezichten ter aarde op de vloer, aldus uitdrukking gevende aan hun ontzag voor de Goddelijke majesteit, hun blijmoedige onderworpenheid aan het Goddelijk gezag, en het besef dat zij hadden van hun eigen onwaardigheid om in Gods tegenwoordigheid te komen, en dat zij niet instaat waren om te bestaan voor de sterkte Zijns toorns.
+
 b. Om dankbaar de goedheid Gods te erkennen, zelfs toen het vuur des Heeren nederdaalde, prezen zij Hem, zeggende: dat Hij goed is, dat Zijn weldadigheid is tot in eeuwigheid. Dat is een lied, hetwelk nooit ontijdig is, en voor hetwelk ons hart en onze tong altijd gestemd moeten wezen. Hoe het ook ge, God is goed. Als Hij zich aan zondaren openbaart als een verterend vuur, kan Zijn volk zich in Hem verblijden als hun licht. Ja meer, zij hadden reden te zeggen dat hierin God goed was, het zijn de goedertierenheden des Heeren dat wij niet verteerd zijn, maar het offer in onze plaats, waarvoor wij verplicht zijn zeer dankbaar te wezen.
 
 2\. De koning en al het volk offerden slachtofferen in menigte, vers 4, 5. Daarmee hebben zij dit heilige vuur gevoed en het welkom geheten op het altaar. Zij hadden tevoren reeds offeranden geofferd, maar nu voegden zij er nog velen aan toe. De tekenen van Gods gunst jegens ons moeten ons hart verruimen in Zijn dienst, en er ons al meer en meer overvloedig in maken. Het voorbeeld des konings heeft het volk opgewekt. Goed werk zal waarschijnlijk goed vorderen als de leidslieden van een volk er in voorgaan. De offeranden waren zo talrijk, dat het altaar ze niet allen kon bevatten, maar veeleer dan dat er sommigen teruggezonden zouden worden (wij kunnen onderstellen dat al het bloed er van op het altaar gesprengd was) werden het vlees van de brandoffers en het vet van de dankoffers verbrand in het middelste voorhof, vers 7, dat Salomo of tot deze dienst geheiligd had, of dat er door geheiligd werd. In een geval van noodzakelijkheid kon de vloer een altaar zijn.
@@ -56,15 +63,21 @@ Dat God Salomo’s gebed aannam werd bewezen door het vuur van de hemel. Maar ee
 1\. Hij beloofde dit huis te erkennen als een offerhuis voor Israël en een bedehuis voor alle volkeren, Jesaja 56:7, vers 12 -16. Mijn naam zal daar zij tot in eeuwigheid, dat is: "daar zal Ik Mij bekendmaken en daar zal Ik aangeroepen worden." 
 
 2\. Hij beloofde de gebeden Zijns volks te zullen verhoren, die te eniger tijd aan die plaats tot Hem opgezonden zullen worden, vers 13-15.
+
 a. Er worden hier nationale rampen en oordelen ondersteld, vers 13, honger en pestilentie. Met de sprinkhanen, die het land verteren of verslinden, kunnen vijanden bedoeld zijn, even gulzig als sprinkhanen, die alles verwoesten.
+
 b. Nationale bekering gebed en reformatie worden vereist, vers 14. God verwacht dat Zijn volk, dat naar Zijn naam genoemd is, indien zij Zijn naam hebben onteerd door ongerechtigheid, hem zullen eren door de straf hunner ongerechtigheid aan te nemen. Zij moeten zich vernederen onder Zijn hand, moeten bidden om de wegneming van het oordeel, moeten het aangezicht en de gunst van God zoeken, en toch zal dit alles niet baten tenzij zij zich afkeren van hun bozen weg, en terugkeren tot God die zij hadden verlaten en tegen wie zie hadden gerebelleerd.
+
 c. Dan wordt nationale genade beloofd, beloofd dat God hun zonde zal vergeven, die het oordeel over hen gebracht heeft, beloofd dat Hij dan hun land zal genezen en al hun leed zal wegnemen. Vergevende genade bereidt de weg voor genezende genade, Psalm 103:3, Matth. 9:2.
 
 3\. Hij beloofde Salomo’s koninkrijk te bestendigen op voorwaarde dat hij zal volharden in zijn plicht, vers 17, 18. Indien hij hoopte op het voorrecht van Gods verbond met David dan moet hij Davids voorbeeld volgen. Maar hij stelt hem de dood voor, zowel als het leven, de vloek, zowel als de zegen.
+
 A. Hij onderstelt de mogelijkheid dat zij hoewel zij deze tempel ter ere Gods hadden gebouwd, toch ter zijde afgeleid kunnen worden, om andere goden te dienen, vers 19. Hij kende hun neiging tot die zonde.
+
 B. Hij dreigt het als zeker, dat, zo zij dit doen, het verderf van kerk en staat er het onvermijdelijk gevolg van zijn zal.
 
 a. Het zal het verderf wezen van hun staat, vers 20. "Hoewel zij diep wortel hebben geschoten in dit goede land en er gedurende langen tijd in gevestigd waren, zal Hij hen er toch uitrukken, de gehele natie ervan uitroeien, hen uitrukken, zoals de mensen onkruid uitrukken uit hun tuin en het op de mesthoop werpen." 
+
 b. Het zal het verderf wezen van hun kerk. Dit heiligdom zal geen toevlucht, geen vrijplaats voor hen zijn om hen te beschermen tegen de oordelen Gods, zoals zij zich inbeeldden toen zij zeiden: Des Heeren tempel zijn wij, Jeremia 7:4. "Dit huis, dat verheven zal geweest zijn, niet alleen vanwege de pracht, waarmee het gebouwd is, maar vanwege het doel, waarvoor het bestemd was, zal een ontzetting wezen, het zal wonderbaarlijk omlaag gedaald zijn, Klaagliederen 1:9, tot verbazing van al de naburen." 
 
  

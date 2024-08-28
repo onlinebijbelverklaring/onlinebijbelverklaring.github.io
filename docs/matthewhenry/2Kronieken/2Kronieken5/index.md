@@ -38,6 +38,7 @@ Of wel: naar een betere overzetting, zij waren daar tot op deze dag, de dag van 
 Salomo en de oudsten van Israël hadden gedaan wat zij konden, om aan de plechtigheid van het inbrengen van de ark luister bij te zetten, maar God heeft door Zijn welbehagen te tonen in hetgeen zij gedaan hebben, er de grootste eer aan bewezen. De wolk van de heerlijkheid, die het huis vervulde, versierde het meer dan al het goud, waarmee het overtogen was, of de kostelijke stenen, die er ter verfraaiing aan werden aangebracht en toch was dat geen heerlijkheid in vergelijking met de heerlijkheid van de Evangeliebedeling, 2 Corinthiers 3:8-10. 
 
 Merk op: 
+
 I. Hoe God bezit nam van de tempel, Hij vervulde hem met een wolk, vers 13.
 
 1\. Aldus gaf Hij Zijn aanneming te kennen van Zijn tempel, om hetzelfde voor Hem te wezen wat de tabernakel van Mozes geweest is, en verzekerde Hij hun, dat Hij er dezelfde in zijn zou, want het was door een wolk, dat Hij Zijn openbare intrede deed in de tabernakel, Exodus 40:34.
@@ -49,14 +50,17 @@ I. Hoe God bezit nam van de tempel, Hij vervulde hem met een wolk, vers 13.
 4\. Aldus wilde Hij het duistere aanduiden van die bedeling, waardoor zij niet sterk konden zien op het einde van hetgeen teniet gedaan wordt, 2Co 3:13.
 
 II. Wanneer Hij hem in bezit nam.
+
 1\. Toen de priesters uit het heilige uitgingen, vers 11. Dat is de manier om bezit te geven. Allen moeten uitgaan, opdat de rechtmatige eigenaar kan inkomen. Wensen wij dat God in ons hart zal wonen? Dan moeten wij er Hem plaats laten, alle andere dingen moeten wijken. Hier wordt ons gezegd dat bij die gelegenheid het gehele geslacht van de priesters dienst deed en niet een bepaalde afdeling van hen, al de priesters, die gevonden werden, hadden zich geheiligd, vers 11, omdat er werk was voor allen, toen zo’n menigte van offers geofferd moest worden, en omdat het betaamde dat zij allen ooggetuigen zouden zijn van deze plechtigheid en er de indrukken van zouden ontvangen.
 
 2\. Toen de zangers en speellieden God loofden, toen was het dat een wolk het huis vervulde. Dit is zeer opmerkelijk, het was niet toen zij offeranden offerden, maar toen zij de lof van God zongen, dat God hun dit teken gaf van Zijn gunst, want de offeranden des lofs zijn de Heere aangenamer dan die van een os of van een gehoornde var, Psalm 69:31, 32. Alle zangers en bespelers van muziekinstrumenten deden dienst, die van ieder van de drie geslachten, en om het concert te vervolledigen hebben zich honderd en twintig priesters met hun trompetten bij hen gevoegd, allen staande aan de oostzijde van het altaar, aan die zijde van het voorhof, dat het verst naar de zijde des volks was gelegen, vers 12. En toen dit deel van de dienst begon, is de heerlijkheid des Heeren verschenen. 
 
 Merk op: 
+
 a. Het was toen zij eenparig waren, toen zij als een man waren om dit geklank voort te brengen. Toen de apostelen eendrachtelijk bijeen waren is de Heilige Geest op hen nedergedaald, Handelingen 2:1. Waar eenheid is, daar gebiedt de Heere de zegen.
+
 b. Het was toen zij levendig en opgewekt waren, de stem verhieven om de Heere te prijzen. Als wij vurig van geest zijn in ons dienen van God, dan is het dat wij Hem welbehaaglijk dienen.
-c. Het was toen zij in hun lofzang de eeuwige genade en goedertierenheid Gods verheerlijkten. (lelijk er geen gezegde meer dikwijls herhaald is in de Schrift dan dit: Zijn goedertierenheid is tot in eeuwigheid (zes en twintig maal in een Psalm. Psalm 136, en ook dikwijls elders), zo is er ook geen, dat meer duidelijk erkend is van de hemel, want het was geen lied van hartstochtelijke geestvervoering, dat de priesters zongen, toen de heerlijkheid Gods verscheen, maar dit eenvoudig lied: Hij is goed, Zijn goedertierenheid is in eeuwigheid. Die moet die woorden lieflijk voor ons maken. Gods goedheid is Zijn heerlijkheid, en Hij heeft er behagen in als wij Hem de eer erven geven.
+c. Het was toen zij in hun lofzang de eeuwige genade en goedertierenheid Gods verheerlijkten. Er is geen gezegde meer dikwijls herhaald is in de Schrift dan dit: Zijn goedertierenheid is tot in eeuwigheid (zes en twintig maal in een Psalm. Psalm 136, en ook dikwijls elders), zo is er ook geen, dat meer duidelijk erkend is van de hemel, want het was geen lied van hartstochtelijke geestvervoering, dat de priesters zongen, toen de heerlijkheid Gods verscheen, maar dit eenvoudig lied: Hij is goed, Zijn goedertierenheid is in eeuwigheid. Die moet die woorden lieflijk voor ons maken. Gods goedheid is Zijn heerlijkheid, en Hij heeft er behagen in als wij Hem de eer erven geven.
 
 III. Wat er de uitwerking van was. De priesters konden vanwege de wolk niet staan om te dienen, vers 14, wat daar hieruit bleek dat de wet priesters stelde die zwakheid hadden duidelijk te kennen gaf zoals bisschop Patrick terecht opmerkt, dat het Levitische priesterschap zal ophouden en niet langer staan zal om te dienen, als de Messias zal gekomen zijn, in wie de volheid van de Godheid lichamelijk wonen zal. In Hem heeft de heerlijkheid Gods onder ons gewoond, maar bedekt met een wolk. Het Woord is vlees geworden, en "wie zal de dag van Zijn toekomst verdragen, en wie zal bestaan als Hij verschijnt, en als het vuur eens goudsmids tot Zijn tempel komt?" Maleachi 3:1, 2. 
 

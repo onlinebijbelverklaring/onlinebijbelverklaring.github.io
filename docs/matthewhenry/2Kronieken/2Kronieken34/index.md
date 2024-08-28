@@ -45,6 +45,7 @@ V. De openbare lezing van de wet voor het volk, en hun vernieuwing van hun verbo
 ## 2 Kronieken 34:1-7 
 
 Betreffende Josia wordt ons gezegd: 
+
 1\. Dat hij aan de regering kwam toen hij nog zeer jong was, maar zijn kindsheid heeft hem niet uitgesloten van zijn recht op de kroon en dat hij een en dertig jaren heeft geregeerd vers 1, een aanmerkelijke tijd. Ik vrees echter dat het met de zaken in het begin van zijn regering tamelijk gelijk was als in de tijd van zijn vader, omdat hij, nog een kind zijnde, er het bestuur van aan anderen moest overlaten, en dat het niet voor zijn twaalfde jaar was, dat hij de reformatie begon, vers 3. Hij kon niet, zoals Hizkia, terstond het werk ter hand nemen.
 
 2\. Dat hij goed regeerde, zich Gode behaaglijk maakte, in Davids voetstappen trad, niet afweek ter rechter noch ter linkerhand, want er zijn dwalingen aan beide zijden.

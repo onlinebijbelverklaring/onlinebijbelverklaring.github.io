@@ -38,7 +38,8 @@
 
 ## Inleiding
 
-Wij hebben hier:  
+Wij hebben hier: 
+
 I. Het grote gevaar en de benauwdheid, waarin Jósafath en zijn rijk gekomen zijn door de inval van een buitenlandse vijand, vers 1-2.  
 II. De Godvruchtige maatregel, die hij neemt voor hun veiligheid door vasten en gebed en door God te zoeken, vers 3-13.  
 III. De verzekering, die God hun onmiddellijk gaf door een profeet van de overwinning, vers 14-17.  
@@ -64,6 +65,7 @@ II. De toebereidselen, die Jósafath maakte tegen de aanvallers. Er wordt niet g
 De plaats waar zij samenkwamen was het huis des HEEREN, voor het nieuwe voorhof, dat misschien onlangs aan de vorige voorhoven was toegevoegd, en dat, naar sommigen denken, het voorhof van de vrouwen werd genoemd. Aldus kwamen zij binnen het bereik van die genaderijke belofte, door God gedaan in verhoring van Salomo’s gebed, Hoofdstuk 7:15 : "Nu zullen Mijn ogen open zijn en Mijn oren opmerkende op het gebed van deze plaats". Jósafath zelf was de mond van de gemeente tot God, en heeft dit werk niet aan de priesters of Levieten overgelaten. Hoewel het de koningen verboden was reukwerk te branden, was het hun toch wel toegestaan te bidden en te prediken, zoals Salomo, en hier Jósafath. 
 
 Het gebed, dat Jósafath bij die gelegenheid heeft gebeden is hier meegedeeld of tenminste een deel er van, en het is een voortreffelijk gebed.
+
 A. Hij erkent de soevereine heerschappij van de Goddelijke voorzienigheid, hij geeft Gode de eer, en neemt er voor zich de vertroosting van vers 6. "Zijt Gij niet die God in de hemel? Ongetwijfeld zijt Gij het, maar geen van de goden van de heidenen is het, doe dit dan blijken. Is niet Uwe heerschappij oppermachtig over de koningen zelf, en over alle koninkrijken, zelfs over die van de heidenen, die U niet kennen? Bedwing dan deze heidenen, stel perken aan hun stoute, dreigende beledigingen. Is er niet in Uwe hand kracht en sterkte, zodat niemand zich tegen U stellen kan? Heere oefen haar dan uit ten onze behoeve. Verheerlijk Uwe almacht." 
 
 B. Hij legt de hand op hun verbondsbetrekking tot God en hun deel in Hem. Gij, die God zijt in de hemel, zijt de God van onze vaderen, vers 6, en onze God, vers 7. Wien zouden wij zoeken, op wie zouden wij vertrouwen om hulp en verlichting te krijgen dan op de God, die wij verkoren en gediend hebben? 
@@ -73,7 +75,9 @@ C. Hij wijst op het recht, dat zij hadden op het goede land in welks bezit zij n
 D. Hij maakt melding van het heiligdom, de tempel, die zij hadden gebouwd voor Gods naam, vers 8, niet alsof zij daarmee iets van Gods hand verdienden, want zij hebben Hem gegeven van het Zijne, maar het was zo’n teken van Gods gunstrijke tegenwoordigheid onder hen, dat zij zich hadden voorgesteld dat God hen zal horen en helpen, als zij in hun benauwdheid voor dit huis staan en tot Hem roepen, vers 8, 9. "Heere, toen het gebouwd werd, was het bestemd voor de aanmoediging van ons geloof in een tijd, zoals deze is. Hier is Uw naam, hier zijn wij, Heere, help ons tot heerlijkheid van Uwen naam." 
 
 E. Hij wijst op de ondankbaarheid en onrechtvaardigheid van zijn vijanden. Wij zijn de zodanigen, dat het U tot heerlijkheid zal zijn om voor ons te verschijnen, zij zijn de zodanigen, dat het U tot heerlijkheid zijn zal om tegen hen te verschijnen, want: 
+
 (1). Zij vergelden ons zeer slecht onze oude vriendelijkheid jegens hen. "Gij hebt Israël niet toegelaten hen aan te vallen of te beangstigen, Deuteronomium 2:5, 9, 19. Mengt u niet met de Edomieten, beangstigt Moab niet, mengt u niet met de kinderen Ammons, beangstigt hen niet, neen, al zouden zij u ook beledigen, maar zie, nu vallen zij ons aan. Wij kunnen ons met vertroosting op God beroepen tegen hen, die ons kwaad voor goed vergelden.
+
 (2). "Zij maken inbreuk op onze aloude rechten. Zij komen om ons uit onze bezitting te verdrijven, ons land voor henzelf te nemen. O onze God, zult Gij geen recht tegen hen oefenen? vers 12. Zult Gij geen vonnis over hen vellen en het aan hen volvoeren? Gods gerechtigheid is de toevlucht van hen, wie onrecht wordt aangedaan.
 
 F Hij belijdt zijn algehele afhankelijkheid van God voor redding en uitkomst, hoewel hij een groot en goed geoefend leger op de been had, zegt hij toch: In ons is geen kracht tegen deze grote menigte, die tegen ons komt, geen zonder U, geen, waarvan wij iets kunnen verwachten zonder Uw bijzondere tegenwoordigheid en zegen, geen om op te roemen, geen om op te vertrouwen, maar onze ogen zijn op U, een oog van erkenning en nederige onderworpenheid, een oog van geloof en algehele afhankelijkheid, een oog van begeerte en hartgrondig gebed, een oog van hoop en geduldige verwachting. Op U, o God, vertrouwen wij, onze ziel wacht op Uw heil. 
@@ -92,7 +96,9 @@ Wij hebben hier Gods genadige verhoring van Jósafaths gebed, en het was een spo
 Laat de Christen-krijgsknecht slechts uittrekken tegen zijn geestelijke vijanden, en de God des vredes zal hen weldra onder zijn voeten vertreden, en hem meer dan overwinnaar doen zijn.
 
 5\. Jósafath en zijn volk ontvingen die verzekeringen met geloof, eerbied en dankbaarheid.
+
 a. Zij bogen hun hoofd, eerst Jósafath en toen al het volk, zij vielen neer voor het aangezicht des Heeren, aanbiddende de Heere met heilig ontzag en vreze Gods, dit teken ontvangende van Zijn gunst, zeggende met gelovig vertrouwen: naar Uw woord zij het ons.
+
 b. Zij hieven hun stem op om de Heere te loven, vers 19. Een werkzaam geloof kan God danken voor een belofte, al is zij ook nog niet vervuld, wetende dat Gods verbintenis zo goed is als gereed geld. "God heeft gesproken in Zijn heiligdom, dies zal ik van vreugde opspringen", Psalm 60:8. 
 
 ## 2 Kronieken 20:20-30 
@@ -111,6 +117,7 @@ Toen zij het werk van de lofzegging nog pas begonnen, heeft God het werk hunner 
 III. Nooit werd buit zo blijmoedig verdeeld want Jósafaths leger had niets anders te doen, al het overige werd voor hen gedaan. Toen zij dit grote leger in het oog kregen, zagen zij geen levende mensen om mee testrijder, zij waren allen dood, hun lijken lagen als mest op de aarde uitgespreid, vers 24. Zie hoe rijk God is in barmhartigheid over hen die Hem aanroepen in waarheid, en hoe dikwijls Hij meer doet dan waar Zijn volk Hem om bidt, hun verwachting overtreft. Jósafath en zijn volk baden er voor bewaard te blijven om door de vijand te worden beroofd, en God heeft dit niet slechte gedaan, maar hen verrijkt met de roof hunner vijanden. De buit op het slagveld genomen was zeer groot en zeer rijk, zij vonden edelgesteenten op de dode lichamen, die er hen toch niet tegen konden behoeden om weerzinwekkende lijken te zijn, zij roofden de buit drie dagen want die was veel, zij namen voor zich weg totdat zij niet meer dragen konden, vers 25. Nu bleek het wat Gods bedoeling was met dit grote leger tegen Juda te doen komen, het was om hen te verootmoedigen en te beproeven en hun ten laatste wel te doen. Het scheen in het eerst een stoornis in hun reformatie, maar het bleek de beloning ervan te zijn.
 
 IV. Nooit werd een overwinning met plechtiger en ruimer dankzegging gevierd.
+
 1\. Zij hielden een dag van lofzegging in het leger, eer zij hun strijdmacht van het slagveld terugtrokken. Ongetwijfeld werden reeds terstond veel dankzeggingen tot God opgezonden, maar op de vierde dag verzamelden zij zich in een dal, waar zij God loofden met zoveel vurigheid en ijver, dat hetgeen zij op die dag deden een naam heeft gegeven aan die plaats: het dal van Berachah, dat is: van zegen, vers 26. De gedachtenis aan dit wonder werd hierdoor bestendigd ter bemoediging van de opvolgende geslachten, opdat ook zij op God zouden vertrouwen.
 
 2\. Toch achtten zij niet dat dit genoeg was, maar in plechtige optocht gingen zij, met Jósafath aan het hoofd, naar Jeruzalem, opdat het land, waar zij door heentrokken, zich met hen zou verenigen in hun lof, en zou dankzeggen voor de zegen, daar waar zij hem door gebed hadden verkregen, namelijk in het huis des Heeren, vers 27, 28. Het leven van God moet niet maar het werk van een dag zijn, als wij zegen, genade en goedertierenheid hebben verkregen, moet onze lofzegging er voor dikwijls herhaald worden, zoals onze gebeden, toen wij die zegen zochten. Elken dag moeten wij God loven zolang wij leven, onze tijd doorbrengende in dat werk, waarmee wij hopen de eeuwigheid door te brengen. Openbare zegeningen roepen tot openbare dankerkentenis in de voorhoven van het huis des Heeren, Psalm 116:19.
@@ -126,7 +133,9 @@ Wij naderen nu tot het einde van de geschiedenis van Jósafaths regering. Zij di
 2\. Jósafath zelf behield vriendschap en genegenheid voor het huis van Achab, omdat hij zijn zoon aan een dochter van die familie had uitgehuwelijkt, hoewel hij er onomwonden voor bestraft was geworden en het hem eens bijna het leven heeft gekost. Hij zag en wist dat Ahazia, de zoon van Achab, goddeloos handelde in zijn doen, en dus kon hij niet verwachten voorspoedig te zullen zijn, toch heeft hij zich met hem verenigd, niet in oorlog, zoals met zijn vader, maar in koophandel, werd zijn deelgenoot in een Oostindische vloot met bestemming naar Ofir, vers 35-36. 
 Er wordt nadruk gelegd op de tijd: na dezen, nadat God zulke grote dingen voor hem gedaan had, hem zonder enigerlei ergerlijke en verderfelijke verbintenissen, niet alleen de overwinning had gegeven, maar ook rijkdom, en dan toch nadezen zich met een goddeloze koning te gaan verbinden, was zeer ondankbaar. Zal hij, nadat God hem zo’n verlossing had gegeven, nu wederkeren om Gods geboden te vernietigen en zich te verzwageren met het volk van deze gruwelen? Wat kon hij dan anders verwachten dan dat God tegen hem zou toornen? Ezra 9:13, 14. 
 Toch zendt Hij hem een boodschap, om hem zijn dwaling te doen inzien en hem tot berouw en bekering te brengen: 
+
 a. Door een profeet die de vernietiging van zijn plan voorzeide vers 37.
+
 b. Door een storm, die de schepen in de haven vernielde, eer zij nog waren uit gezeild, waardoor hij vermaand en gewaarschuwd werd om zijn verbintenis met Ahazia te verbreken, en het schijnt dat hij de waarschuwing ter harte nam, want toen Ahazia hem later drong om zich met hem te verenigen, wilde hij niet, 1 Koningen 22:49, 50. Zie hoe verderfelijk het is om zich vriendschappelijk te vergezelschappen met boosdoeners, het is moeilijk om er zich weer los van te maken. Men kan er zich veel beter voor bewaren om in een strik gevangen te worden, dan iets doen om uit de strik te ontkomen, als men er eenmaal in is. 
 
  

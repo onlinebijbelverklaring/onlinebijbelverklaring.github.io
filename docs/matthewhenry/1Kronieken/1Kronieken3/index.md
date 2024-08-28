@@ -26,6 +26,7 @@
 ## Inleiding
 
 Van al de geslachten Israëls was er geen zo doorluchtig als het geslacht van David. Dat is het geslacht, welk in vers 15 van het vorige hoofdstuk genoemd is. Hier hebben wij een volledig bericht ervan.  
+
 I. Davids zonen, vers 1-9.   
 II. Zijn opvolgers Op de troon zolang het koninkrijk instand bleef, vers 10-16.  
 III. De overblijvenden van zijn geslacht in en na de ballingschap, vers 17-24. Uit dit geslacht is, voorzoveel het vlees aangaat, Christus voortgekomen.   

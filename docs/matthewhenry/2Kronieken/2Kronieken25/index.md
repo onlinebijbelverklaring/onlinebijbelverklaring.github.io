@@ -41,13 +41,17 @@ VI. En eindelijk, zijn dagen roemloos eindigende, vers 26-28.
 ## 2 Kronieken 25:1-13 
 
 Wij hebben hier:
+
 I. Het algemene karakter van Amázia, hij deed dat recht was in de ogen des HEEREN, aanbad de ware God, hield de tempeldienst in stand en ondersteunde de Godsdienst in zijn rijk, maar hij deed het niet met een volkomen hart, vers 2, dat is: hijzelf was geen man van ernstige Godsvrucht en had geen ijver voor de Godsdienstoefeningen. Hij was er geen vijand van, maar een koel, onverschillig vriend. Dat is het karakter van maar al te velen in deze Laodicese tijd, zij doen wat goed is, maar niet met het hart, niet met een volkomen hart.
 
 II. Een noodzakelijke daad van gerechtigheid, die hij volvoerde aan de verraders, die zijn vader hadden vermoord, hij doodde hen, vers 3. Hoewel wij moeten onderstellen dat zij bedoeld hebben de dood des profeten op de koning te wreken, zoals in Hoofdstuk 24:25 te kennen wordt gegeven, kon dit hun goddeloze daad toch niet rechtvaardigen, want zij waren de wrekers niet, maar hebben hovaardig God het werk uit de handen genomen. En zo heeft Amázia gedaan wat hem betaamde, door hen tot verantwoording te roepen er voor, maar daarbij hield hij zich binnen de regel van de wet die verbood de kinderen ter dood te brengen voor de zonde van de ouders, vers 4.
 
 III. Zijn krijgstocht tegen de Edomieten, die enige tijd geleden van onder de heerschappij van Juda waren afgevallen, waaraan hij bedoelde hen wederom te onderwerpen. Merk op: 
+
 1\. De grote toebereidselen die hij maakte voor deze krijgstocht.
+
 a. Hij monsterde zijn eigen krijgsmacht en rangschikte zijn troepen vers 5, en hij bevond dat hij in geheel Juda en Benjamin slechts drie honderd duizend man op de been kon brengen, die geschikt waren voor de krijg, terwijl er in Jósafaths tijd, vijftig of zestig Jaren tevoren, viermaal zoveel waren, de zonde verzwakt en vermindert een volk en ontmoedigt het.
+
 b. Hij huurde hulptroepen uit het rijk van Israël, vers 6. Bevindende dat zijn eigen rijk tekort kwam in manschappen trachtte hij door geld het tekort aan te vullen, en zo nam hij dan honderd duizend Israëlieten in dienst. Indien hij een van zijn profeten geraadpleegd had voordat hij dat deed, of slechts bedacht had hoe weinig voordelig een verbond met Israël voor zijn voorouders is geweest, dan zou hij niet nodig gehad hebben wat hij gedaan had weer ongedaan te maken. Maar roekeloosheid geeft oorzaak tot berouw.
 
 2\. Het bevel, dat God hem zond door een profeet, om de krijgsmacht van Israël uit zijn dienst te ontslaan, vers 7, 8. Hij wilde dat hij niemand te hulp zou roepen, want het had de schijn alsof hij God wantrouwde, als hij zich slechts verzekerde van Zijn hulp en tegenwoordigheid, dan was zijn eigen leger voldoende, maar hen inzonderheid moet hij niet te hulp roepen, want de HEERE is niet met alle kinderen Efraïms, omdat zij niet met Hem zijn, maar de kalveren aanbidden. Dat was een goede reden, waarom hij geen gebruik van hen moest maken, hij kon niet op hen rekenen om hem werkelijk van dienst te zijn. Welk goed kon hij verwachten van hen, met wie God niet is, op wier ondernemingen Zijn zegen niet rust? Het is lieflijk en aangenaam diegenen te gebruiken, van wie wij reden hebben te hopen dat zij invloed hebben in de hemel, maar het is gevaarlijk zich te vergezelschappen met hen, van wie de HEERE geweken is. De profeet verzekerde hem dat, zo hij volhardde in zijn besluit om deze afgodische, afvallige Israëlieten mee te nemen in de hoop zich hierdoor te versterken voor de strijd, het op zijn gevaar zou zijn, zij zouden een zware, onnutte last voor zijn leger blijken te zijn, het verraden en te gronde doen gaan, "God zal u doen vallen voor de vijand, en deze Israëlieten zullen het verderf zijn van uw zaak, want God is machtig u zonder hen te helpen, en u neer te werpen al hebt gij hen bij u." 
@@ -69,8 +73,11 @@ Voorzeker! Gods weg is in de zee! Had de profeet niet gezegd dat God niet met de
 2\. De bestraffing, die God hem voor deze zonde door een profeet heeft gezonden. De toorn des HEEREN was tegen hem ontstoken en wel zeer rechtvaardig, maar eer Hij hem aan het verderf overgaf zond Hij een profeet tot hem om hem van zonde te overtuigen, tot bekering te brengen, en aldus zijn verderf te voorkomen. De profeet heeft zeer eerlijk en zeer zacht met hem geredeneerd: Waarom hebt gij de gunst gezocht van de goden, die hun volk niet uit uw hand hebben kunnen redden? vers 15. Indien de mensen slechts wilden bedenken hoe onmachtig om hen te helpen al die dingen zijn, tot welke zij de toevlucht nemen, als zij God verlaten, zij zouden zulke vijanden niet zijn van zichzelf.
 
 3\. De bestraffing, die hij de bestraffer gaf vers 16. Hij kon niets te berde brengen tot verontschuldiging van zijn eigen dwaasheid, de bestraffing was al te rechtmatig om er iets tegen in te brengen, maar hij maakte zich driftig tegen de bestraffer.
+
 a. Hij hoonde hem als een onbeschaamder indringer, die zich bemoeide met wat hem niet aanging. Heeft men u tot des konings raadgever gesteld? Kon dan niemand een verstandig woord met hem spreken, zonder dat hem het schamper verwijt toegeduwd werd, dat hij zich de plaats van een geheimraad wilde aanmatigen? Maar als profeet was hij door de Koning van de koningen tot des konings raadgever gesteld, die de koning niet alleen verplicht was te horen, maar om raad te vragen en naar zijn raad te handelen.
+
 b. Hij legde hem het zwijgen op, gebood hem op te houden, geen woord meer tot hem te zeggen. "Hij zei tot de ziener: zie niet", Jesaja 30:10. De mensen zouden wel gaarne hun profeten "er onder houden", zoals wij zeggen, zodat zij spreken wanneer en wat zij wensen zullen en niet anders.
+
 c. Hij dreigde hem. Waarom zouden zij u slaan? Het is op uw gevaar, zo gij nog een enkel woords zegt aangaande deze zaak." Hij schijnt hem te herinneren aan het lot van Zacharia onder de vorige regering, die ter dood gebracht werd om zijn vrijpostigheid jegens de koning, en hij zegt hem zich aan diens lot te spiegelen. Aldus rechtvaardigt hij het doden van die profeet door deze te bedreigen, en zo maakt hij zich dan ook schuldig aan het bloed van beide. Hoewel de profeet, die hem had bevolen de hulptroepen van Israël terug te zenden, zich tegen zijn staatkunde had verzet en hem honderd talenten zilver had doen verliezen vond hij toch gehoor bij hem, naar zijn raad werd geluisterd en gehandeld, vers 10. 
 Maar tegen deze profeet, die hem afried de goden van de Edomieten te aanbidden, ging hij met onverklaarbare woede tekeer, die aan de betovering van de afgoderij toegeschreven moet worden. Hij liet zich gemakkelijk bewegen om van zijn talenten zilvers afstand te doen, maar volstrekt niet om van zijn zilveren goden te scheiden.
 
@@ -81,9 +88,10 @@ Ik merk dat God besloten heeft u te verderven, het is een duidelijk teken, dat g
 ## 2 Kronieken 25:17-28
 
 Deze ontaarde vorst wordt vernederd door zijn nabuur en vermoord door zijn eigen onderdanen.
+
 I. Nooit werd een hoogmoedige vorst dieper vernederd dan Amazia door Joas, de koning van Israël.
 
-1\. Dit gedeelte van het verhaal (dat in 2 Kon. 14: 8, e.v. even volledig verteld werd als hier) - de dwaze uitdaging die Amazia aan Joas zond (vs. 17), zijn hooghartig en minachtend antwoord daarop (vs. 18), met de vriendelijke raad dat het beter voor hem was om thuis te blijven (vs. 19), zijn moedwillig volharden in zijn uitdaging (vs. 20, 21), de nederlaag die hem werd toegebracht (vs. 22), en de ramp die hij daardoor over zichzelf en zijn stad bracht (vs. 23, 24), - dit alles bewaarheidt twee spreuken van Salomo: 
+1\. Dit gedeelte van het verhaal (dat in 2 Kon. 14:8, e.v. even volledig verteld werd als hier) - de dwaze uitdaging die Amazia aan Joas zond (vs. 17), zijn hooghartig en minachtend antwoord daarop (vs. 18), met de vriendelijke raad dat het beter voor hem was om thuis te blijven (vs. 19), zijn moedwillig volharden in zijn uitdaging (vs. 20, 21), de nederlaag die hem werd toegebracht (vs. 22), en de ramp die hij daardoor over zichzelf en zijn stad bracht (vs. 23, 24), - dit alles bewaarheidt twee spreuken van Salomo: 
 
 (1) Dat de hoogmoed van de mens hem zal vernederen, Spr. 29: 23. 
 

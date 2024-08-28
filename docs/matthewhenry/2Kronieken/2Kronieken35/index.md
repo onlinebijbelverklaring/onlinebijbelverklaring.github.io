@@ -29,6 +29,7 @@
 ## Inleiding
 
 Wij moeten nu Josia vergezellen  
+
 I. Naar de tempel, waar wij zijn Godsdienstige zorg zien voor de waarneming van de inzetting van het pascha overeenkomstig de wet, vers 1-19.  
 II. Naar het oorlogsveld, waar wij zijn roekeloosheid zien door krijg te voeren tegen de koning van Egypte, en hoe duur die hem te staan is gekomen, vers 20-23.  
 III. Naar het graf waar wij hem bitterlijk beweend zien, vers 24-27.  
@@ -44,7 +45,10 @@ I. De koning vermaande en bestuurde de priesters en Levieten, wekte hen op en mo
 
 2\. Hij beval dat de ark op haar plaats gesteld zou worden die, naar het schijnt, verplaatst was, hetzij door de slechte koningen, om plaats te maken voor hun afgoden in het heilige van de heiligen, of door Hizkia, om plaats te maken voor de werklieden, die de tempel herstelden. Hoe dit zij, Josia zegt tot de Levieten: Zet de heilige ark in het huis, vers 3, en draagt haar niet van plaats tot plaats zoals zij in de laatste tijd misschien gedaan hadden, zich verontschuldigende met het gebruik voordat de tempel gebouwd was. Nu de priesters ontheven waren van die last van de ark, moeten zij zoveel ijveriger zijn in andere diensten, tot hun ambt behorende.
 
-3\. Hij gebood hun God te dienen en Zijn volk Israël, vers 3. Leraren moeten op zichzelf zien als dienaren, beide van Christus en om Zijnentwil van Zijn gemeente, 2 Corinthiers 4:5. Zij moeten zorgzaam zijn, zich moeite geven, en zich zoveel mogelijk ten koste geven: a. Voor de eer en heerlijkheid van God en om de belangen van Zijn koninkrijk te bevorderen onder de mensen. Paulus, "een dienstknecht Gods," Titus 1:1.
+3\. Hij gebood hun God te dienen en Zijn volk Israël, vers 3. Leraren moeten op zichzelf zien als dienaren, beide van Christus en om Zijnentwil van Zijn gemeente, 2 Corinthiers 4:5. Zij moeten zorgzaam zijn, zich moeite geven, en zich zoveel mogelijk ten koste geven: 
+
+a. Voor de eer en heerlijkheid van God en om de belangen van Zijn koninkrijk te bevorderen onder de mensen. Paulus, "een dienstknecht Gods," Titus 1:1.
+
 b. Tot welzijn en voordeel van Zijn volk, niet als heerschappij voerende over hun geloof, maar als dienaren van hun heiligheid en blijdschap, en er zal geen moeilijkheid zijn om, in de kracht Gods, deze twee meesters eerlijk te dienen.
 
 4\. Hij gebood hun zich te heiligen en hun broederen te bereiden, vers 6. Het werk van de leraren moet tehuis beginnen, in de eerste plaats moeten zij zichzelf heiligen, zich reinigen van zonde zich afzonderen van de wereld en zich toewijden aan God, maar het moet daar niet eindigen, zij moeten doen wat zij kunnen om hun broederen te bereiden door hen te vermanen, te onderwijzen, te bestraffen, op te wekken en te vertroosten. De bereiding van het hart is voorzeker van de Heere, maar de leraren moeten werktuigen zijn in Zijn hand.
@@ -79,6 +83,7 @@ Indien hij misschien niet kon geloven dat de koning van Egypte een bevel van God
 II. Het volk was slecht en goddeloos, maar zij zijn er toch voor te prijzen, dat zij de dood van Josia zo betreurd hebben. Dat Jeremia hem beweende, verwondert mij niet, hij was de wenende profeet, en hij voorzag duidelijk het verderf des lands, dat op de dood van deze goede koning volgen zou. Maar het is vreemd te zien dat geheel Juda en Jeruzalem, dat dit stompzinnige ongevoelige volk rouw over hem bedreef, vers 24, dat zij bedachten om hun rouw nog te verhogen en er plechtigheid aan bij te zetten door zangers en zangeressen klaagliederen over hem te doen aanheffen. Zij maakten het tot een inzetting in Israël, dat deze klaagzangen van buiten geleerd en door allerlei mensen gezongen zouden worden. Zij hebben er ook voor gezorgd om de herinnering er aan te bestendigen, want deze elegieën werden opgenomen in de verzameling van klaagliederen van de staat, zij zijn geschreven in de klaagliederen. 
 
 Hieruit blijkt: 
+
 1\. Dat zij eerbied hadden voor hun goede vorst, er dat, hoewel zij niet van harte instemden met zijn goede plannen, zij toch niet anders konden dan hem grotelijks te eren. Vrome nuttige mensen worden geopenbaard in de gewetens zelfs van hen, die zich niet willen laten influenceren door hun voorbeeld, en velen, die zelf zich niet willen onderwerpen aan de regelen van ernstige Godsvrucht, kunnen toch niet anders dan hun goed woord en hun achting geven aan hen, die dit wel doen. Misschien hebben diegenen getreurd om Josia, toen hij dood was, die God niet voor hem hebben gedankt toen hij nog leefde. De Israëlieten hebben gemurmureerd tegen Mozes en Aaron terwijl zij bij hen waren, en soms spraken zie er van hen te stenigen, maar toch hebben zij vele dagen rouw over hen bedreven toen zij gestorven waren. Dikwijls wordt ons geleerd zegeningen te waarderen door ze te verliezen, die wij lang niet genoeg op prijs hebben gesteld toen wij ze hadden.
 
 2\. Dat zij, nu hij was heengegaan, wel enig besef hadden van hun gevaar. Waarschijnlijk heeft Jeremia hun ook gezegd dat hij weggenomen was voor de dag des kwaads, dat over hen stond te komen, en in zover geloofden zij wat hij zei, dat zij hem betreurden, die hun beschermer is geweest. Velen zullen gemakkelijker bewogen worden om te wenen over de rampen, die over hen komen, dan om het geschikte middel, een algemene, grondige hervorming, of bekering, te gebruiken, om ze te voorkomen, zij zullen tranen storten over hun leed en verdriet, maar zich niet laten bewegen om afstand te doen van hun zonden. Maar droefheid naar God werkt een onberouwelijke bekering tot zaligheid. 

@@ -42,8 +42,10 @@ IV. Maakt hij een nieuwe rekening van hen, van twintig jaren oud, en bepaalt hun
 
 ## 1 Kronieken 23:1-23 
 
-Hier hebben wij:  
+Hier hebben wij:
+
 I. Het erfrecht van de kroon vastgesteld naar het Goddelijk bestel, vers 1. David maakte Salomo koning, niet om tegelijk met hem te regeren, of om onder hem te regeren, maar alleen om na hem te regeren. Dit deed hij: 
+
 1\. Toen hij oud en zat van dagen was. Hij was pas zeventig jaren oud toen hij stierf, en toch was hij zat van dagen, ‘satur dierum’ -zat van te leven in deze wereld. Toen hij bemerkte dat hij heenging, toonde hij zijn sterk verlangen naar de voorspoed des rijke, als hij heengegaan zal zijn, en verheugde hij zich in het vooruitzicht op een gelukkige vestiging beide van de kerk en van de staat.
 
 2\. Hij deed het in een plechtige vergadering van al de vorsten Israëls, wat Adonia’s poging om inbreuk te maken op Salomo’s recht en dit terzijde te stellen, in weerwil van deze openbare erkenning en vaststelling ervan, zoveel te meer onbeschaamd, goddeloos en bespottelijk maakte. Dat de belangen van de kroon en die van de kerk elkaar steunen en bevestigen is een grote zegen voor een volk en een grote voldoening voor hen, die de wereld gaan verlaten.
@@ -53,17 +55,23 @@ II. De Levieten werden geteld naar de regel in Mozes’ tijd, van dertig jaren o
 III. De Levieten op hun verschillende posten gesteld, vers 4, 5, opdat iedere hand gebruikt zou worden, (want van alle mensen maakt een luie of ledige Leviet wel het slechtste figuur) en opdat ieder deel van het werk zorgvuldig gedaan zou worden.
 
 1\. Het was voor de eer van God, dat zo groot een getal van dienaren de dienst van Zijn huis waarnamen. Veel van de staatsie en luister van aanzienlijke personen is gelegen in de grootte of talrijkheid van hun gevolg. Toen God huishield in Israël, zie welk een groot huishouden Hij had, en allen waren wèl gevoed en wel onderwezen. Maar wat waren dezen, in vergelijking met hen, die Zijn troon hier boven omringen en van de ontelbare schare van engelen? 
+
 2\. Het was Israëls voorrecht en geluk, dat er zo’n groot corps van mannen in hun midden was, die door hun ambt verplicht waren de Godsdienst onder hen te bevorderen en in stand te houden. Als de eredienst Gods in verval geraakt in Israël, dan kan men niet zeggen dat het uit gebrek was van een genoegzame voorziening om haar te steunen, neen, dan was het omdat zij die dit doen moesten zorgeloos, onverschillig en ontrouw waren. 
 
 De Levieten werd een viervoudig werk opgedragen.
+
 a. Sommigen-en hun getal was het grootst-moesten "het werk van het huis des Heeren aandrijven", vers 4. Vier en twintig duizend, bijna twee derden, waren tot die dienst aangewezen: de priesters te helpen in het slachten van de offers, die te wassen, in stukken te snijden, te verbranden, de spijsoffers en drankoffers te bereiden, het vuil uit te dragen al de vaten en gereedschappen van de tempel rein te houden, alles op zijn plaats te stellen en te houden, opdat de dienst geregeld en nauwkeurig kon voortgaan. Van deze dienden duizend per week, en zo gingen zij in vier en twintig beurten aan het werk. Misschien werden sommigen van deze terwijl de tempel gebouwd werd, gebruikt om dat werk aan te drijven, de bouwers behulpzaam te zijn of hen tenminste op te wekken en aan te sporen, goede orde onder hen te houden en de welvoeglijkheid, die aan tempelwerk betaamde.
+
 b. Anderen waren ambtlieden en rechters, niet voor de zaken van de tempel en in geschillen die daar ontstonden (want wij kunnen onderstellen dat daar de priesters het bestuur en opzicht hadden), maar in het land, zij waren magistraten, om de wetten Gods te doen uitvoeren, moeilijkheden op te lossen en geschillen te beslechten. Van deze waren er zes duizend in de onderscheiden delen des rijke, om de vorsten en oudsten van iederen stam bij te staan in de bedeling des rechts.
+
 c. Anderen waren portiers, om de toegangen van het huis Gods te bewaren, hen te onderzoeken die toegang begeerden, en hen, die zich met geweld wilden indringen, te weerstaan. Zij waren de lijfwacht van de tempel, en waren waarschijnlijk dienovereenkomstig gewapend.
+
 d. Anderen waren zangers en bespelers van muziekinstrumenten, wier werk bestond in het onderhouder van dat deel van de eredienst. Dit was een nieuw ingesteld ambt.
 
 IV. De Levieten gemonsterd en gerangschikt naar hun onderscheiden geslachten, opdat er te beter rekening van hen gehouden kon worden, en opdat zij, die hun plicht veronachtzaamden, zoveel gemakkelijker ontdekt konden worden door de monsterrol af te lezen en hen te verplichten om te antwoorden, als hun namen afgeroepen werden, hetgeen iedere familie voor zichzelve doen kon. Als zij, die van eenzelfde gezin waren, tezamen dienden, dan zou dit hen opwekken om elkaar lief te hebben en te helpen. Toen Christus Zijn discipelen twee aan twee uitzond, voegde Hij hen samen, die broeders waren. Hier worden twee gezinnen samen gevoegd, omdat zij niet veel kinderen hadden, vers 11. Zij, die afzonderlijk zwak en gering zijn, kunnen samen gevoegd zijnde van betekenis worden. Wat het opmerkelijkste is in het bericht omtrent de geslachten van de Levieten is, dat de nakomelingen van Mozes, die grote man, op gelijke voet zijn gesteld met de andere Levieten, geen waardigheden of voorrechten hadden terwijl de nakomelingen van Aaron bevorderd waren tot het priesterambt om "de allerheiligste dingen te heiligen", vers 13. Wèl wordt van Mozes’ kleinzoon, Rehabja, gezegd dat zijn kinderen ten hoogste vermeerderden, vers 17. Toen God aan Mozes voorstelde om hem zo hij zijn voorbede voor Israël wilde nalaten tot een groot volk te maken, heeft hij dit edelmoedig geweigerd, en nu wordt ter beloning daarvan zijn geslacht grotelijks vermeerderd, zodat het door getalssterkte vergoedt wat het in aanzien in de stam van Levi tekort komt. 
 
 Nu is: 
+
 1\. De gelijkstelling van Mozes’ geslacht met de overigen is een blijk van zijn zelfverloochening. Hij had zoveel invloed bij God en de mensen dat, zo hij zijn eigen geslacht tot rijkdom en macht had willen brengen, hij het gemakkelijk had kunnen doen, maar hij heeft zichzelf niet gezocht, zoals ook daaruit blijkt dat hij zijn kinderen geen tekenen van onderscheiding heeft nagelaten, hetgeen een teken was dat hij de Geest van God had, en niet de geest van de wereld.
 
 2\. De verheffing van Aarons geslacht boven de overigen was een beloning voor zijn zelfverloochening. Toen Mozes, zijn jongere broeder, tot een god gezet was over Farao, en hij slechts zijn profeet of woordvoerder was, om zijn orders op te volgen, te doen wat hem gezegd was, heeft Aaron dit noodt betwist, zich niet laten voorstaan op zijn meerderheid in jaren, maar stelde zich gewillig op de minderen post, die God hem had aangewezen, onderwierp zich aan Mozes, noemde hem bij een gelegenheid mijn "heer", en omdat hij zich aldus voor zijn eigen persoon aan zijn jongere broeder onderwierp, in gehoorzaamheid aan de wil van God, heeft God hem aldus verhoogd in zijn nageslacht, zelfs boven dat van Mozes zelf. Zij, die bereid zijn zich te buigen, zijn op de besten weg zich te verheffen. De nederigheid gaat voor de eer. 

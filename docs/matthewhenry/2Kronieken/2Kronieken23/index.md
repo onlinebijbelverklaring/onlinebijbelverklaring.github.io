@@ -56,8 +56,11 @@ Hier zien wij:
 4\. Baäl vernield, vers 17. Zij zouden nog de helft van hun werk niet gedaan hebben, indien zij alleen maar de overweldigster van het recht des konings hadden gedood, en niet de overweldiger van Gods recht hadden vernietigd, indien zij de eer van de troon hadden gehandhaafd en niet die van het altaar. De grootste grief tegen Athalia’s regering was dat zij de Baälsdienst had ingevoerd en die had gesteund, daarom moet die in de eerste plaats worden teniet gedaan. Weg met Baäls huizen, zijn altaren, zijn beelden! Weg met die allen, en laat het bloed van zijn priester met zijn offeranden gemengd worden, want God heeft geboden dat verleiders tot afgoderij ter dood gebracht zullen worden, Deuteronomium 13:5, 6.
 
 5\. De tempeldienst hersteld, vers 18, 19. Deze was onder de laatste regeringen veronachtzaamd, daar het de priesters en het volk of aan macht of aan ijver ontbrak om hem instand te houden, toen zij koningen hadden die er afkerig van waren. Maar Jojada bestelde de ambten in het huis des Heeren, regelde ze naar behoren en stelde er de bevoegde personen voor aan, want in de laatste tijd was dit alles in wanorde gebracht.
+
 a. Hij bestelde de priesters naar hun afdelingen ter behoorlijke waarneming van de dienst van de offeranden overeenkomstig de wet van Mozes.
+
 b. De zangers naar de hun, overeenkomstig de instelling van David. De offers schenen met blijdschap en gezang geofferd te worden, en wèl mocht dit. Wij "roemen in God, als wij de verzoening verkregen hebben", Romeinen 5:11.
+
 c. De poortiers werden op hun onderscheiden plaatsen gesteld, vers 19, zoals David het verordineerd had, en hun ambt en werk was zorg te dragen dat personen, die op enigerlei wijze ceremonieel onrein waren, van de voorhoven des tempels geweerd werden.
 
 6\. Het burgerlijk bestuur hersteld, vers 20. Zij brachten de koning in statiger optocht naar zijn paleis, en zetten hem op de troon des koninkrijks, om wetten te geven, recht te spreken, hetzij in eigen persoon, of door Jojada, zijn voogd. Aldus werd die gelukkige omwenteling volbracht de meerderheid des volks verblijdde er zich in de overige hielden zich stil en boden geen tegenstand, vers 21. Als de Zone Davids op de troon is in de ziel, dan is alles rustig en worden fonteinen van blijdschap geopend. 

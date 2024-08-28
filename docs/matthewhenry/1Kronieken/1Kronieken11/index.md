@@ -49,6 +49,7 @@
 ## Inleiding
 
 In dit hoofdstuk wordt herhaald:  
+
 I. Davids verheffing op de troon terstond na de dood van Saul en wel met algemene instemming, vers 1-3.  
 II. Dat hij de burcht Sion op de Jebusieten heeft veroverd vers 4-9.  
 III. Een opgave van zijn helden en rijksgroten, vers 10-47.  
@@ -56,10 +57,13 @@ III. Een opgave van zijn helden en rijksgroten, vers 10-47.
 ## 1 Kronieken 11:1-9 
 
 David wordt hier in het bezit gesteld: 
+
 1\. Van de troon van Israël nadat hij zeven jaren te Hebron alleen over Juda had geregeerd. Uit aanmerking van zijn betrekking tot hen, vers 1, van zijn vorige goede diensten, vers 2 en inzonderheid van de Goddelijke aanwijzing zalfden zij hem tot hun koning. Hij kwam met hen overeen dat hij hen zou beschermen, en dat zij hem trouw en gehoorzaamheid zouden bewijzen, vers 3. Gods raad zal bestaan, wèlke moeilijkheden er ook in de weg voor gelegd zijn. Als God gezegd heeft: David zal regeren, dan is het ijdel om zich daartegen te stellen. Als de mensen gedurende lange tijd zichzelf in het licht hebben gestaan, zich lang met valse ijdelheden onderhouden hebben, dan is het te hopen dat zij eindelijk begrijpen zullen wat tot hun vrede dient en tot hun weldadigheid zullen terugkeren. Er is tussen vorst en volk een oorspronkelijke overeenkomst, die van beide zijden trouw en nauwkeurig moet waargenomen worden. Indien ooit een vorst op onbeperkt despotische macht aanspraak had kunnen maken, dan zou David het gekund hebben, en hem zou zo’n macht even veilig zijn toevertrouwd kunnen worden als aan wie het ook zij, en toch maakte hij een verbond met het volk, en deed de koningseed om naar de wet te regeren.
 
 2\. Van de burcht van Sion, die tot aan Davids tijd in de macht was van de Jebusieten. Hetzij dat David er bijzonder het oog op had, als een plaats, geschikt om er een koninklijke stad van te maken of dat hij een bijzondere belofte van God had, hoe het zij, een van zijn eerste krijgsdaden was zich meester te maken van die sterkte, en toen hij haar genomen had, noemde hij haar de stad Davids, vers 6. Hiernaar verwijst Psalm 2:6. Ik toch heb Mijn Koning gezalfd over Sion, de berg Mijner heiligheid. Zie hier hetgeen tot vastberadenheid aanspoort in grote ondernemingen: 
+
 a. Tegenstand. Toen de Jebusieten David trotseerden, zeggende: Gij zult hier niet inkomen, besloot hij de sterkte te bemachtigen, wat het hem ook mocht kosten.
+
 b. Vooruitzicht op bevordering. Toen David beloofde de betrekking van krijgsoverste te zullen geven aan hem, die de aanval op de burcht van Sion wilde aanvoeren werd Joab er toe aangevuurd, toen beklom Joab die het eerst, daarom werd hij tot een hoofd. Men heeft gezegd: "Neem eer en bevordering weg uit het oog van de krijgsman en gij ontneemt hem de prikkel om zich door grote daden te onderscheiden. 
 
 ## 1 Kronieken 11:10-47 
@@ -67,8 +71,11 @@ b. Vooruitzicht op bevordering. Toen David beloofde de betrekking van krijgsover
 Wij hebben hier een bericht van Davids helden, de grote mannen van zijn tijd, die hem dienden en door hem verhoogd werden. De eerste editie van deze lijst hadden wij in 2 Samuël 23:8 en verv. Deze is er ongeveer aan gelijk, behalve dat zij, die hier genoemd zijn van vers 42 tot het einde, er bijgevoegd zijn. 
 
 Let op:  
+
 1\. Het verband, dat er is tussen deze lijst en hetgeen van David gezegd wordt in vers 9.
+
 a. David ging gedurig voort, en werd groot, en deze zijn zijn helden. Veel van de kracht en eer van grote mannen is ontleend aan hun dienaren en is van hen afhankelijk, hetgeen pracht en macht wel ietwat vermindert in de ogen van hen, die wijs zijn. David is groot, omdat hij van grote mennen omringd is, neem deze weg, en hij is waar hij geweest is.
+
 b. Hij werd groot, "want de Heere van de heirscharen was met hem", en "deze nu waren de hoofden van de helden", die David had God was met hem, en werkte voor hem, maar door mensen en middelen, en het gebruik van tweede of ondergeschikte oorzaken. Hieruit bleek dat God met hem was, dat Hij het hart van hen, die instaat waren zijn belangen te dienen, neigde om tot hem over te gaan. Gelijk wanneer God voor ons is, niemand tegen ons kan zijn, zo zullen als God voor ons is, ook allen voor ons zijn die wij nodig hebben. Maar toch schreef David zijn voorspoed en zijn toeneming niet toe aan het heir dat hij had, aan de helden, die hem omringden, maar aan "de Heere der heirscharen", niet aan de machtige mannen, die bij hem waren, maar aan de almachtige God, wiens tegenwoordigheid bij ons alles in alles is.
 
 2\. Het opschrift van deze lijst, vers 10. "Dit zijn de mannen, die zich met hem versterkten". Door hem te versterken, versterkten zij zichzelf en hun eigen belangen, want zijn bevordering was hun bevordering. Wij zullen zelf winnen bij wat wij in onze plaats doen tot steun en bevordering van het koninkrijk van de zone Davids. Door dit te versterken, versterken wij onszelf. De zin kan ook gelezen worden: Zij "hielden zich sterk aan hem en aan geheel Israël". Als God werk te doen heeft, dan zal Hij geen gebrek hebben aan geschikte werktuigen om het er mee te doen. Als het werk is, waarvoor helden vereist worden, dan zullen helden of gevonden worden of gemaakt worden, om het ten uitvoer te brengen, "naar het woord des Heeren".
@@ -76,9 +83,13 @@ b. Hij werd groot, "want de Heere van de heirscharen was met hem", en "deze nu w
 3\. Hetgeen al deze mannen achtbaar maakte was de goede dienst, die zij hun koning en hun land bewezen, zij hielpen om David koning te maken, vers 10. Een goed werk! Zij sloegen de Filistijnen en andere openbare vijanden, en waren het middel om Israël te verlossen. Het middel om groot te zijn is goed te doen. Zij hebben die eer verkregen door zware arbeid en met gevaar van hun leven. De waardigheden van Christus’ koninkrijk zijn bereid voor hen die "de goede strijd des geloofs strijden", die arbeiden en lijden, en alles, ja zelfs het leven willen wagen voor Christus en een goed geweten. Het is door geduldig volharden in goeddoen, dat wij heerlijkheid en eer en onverderfelijkheid moeten zoeken, en zij, die gebouw zijn aan de Zone Davids. zullen hun namen met veel meer eer geregistreerd zien dan zij, die in het gedenkschrift van de roem staan opgetekend.
 
 4\. Onder al de grote daden van Davids helden wordt niets groots vermeld van David zelf, behalve zijn uitgieten van het water voor de Heere, waarnaar hij verlangd had, vers 18, 19. In deze daad van David treden vier zeer edele hoedanigheden in het licht, die, voor zoveel ik weet, haar even groot maken als de grote krijgsverrichtingen van deze helden.
+
 a. Berouw en leedwezen over zijn eigen zwakheld. Het is in werkelijkheid zeer eervol voor een man om, als hij iets onbedachtzaams gezegd of gedaan heeft, het te herroepen en te trachten het ongedaan te maken door berouw er over, gelijk het de schande voor een man is om, als hij iets verkeerds gezegd of gedaan heeft, er bij te blijven.
+
 b. Zelfverloochening in deze lust. Hij verlangde naar water uit Bethlehems bornput, maar toen hij het had, wilde hij het niet drinken, omdat hij zich niet wilde toegeven in een dwazen luim. Hij, die zo’n heerschappij heeft over zijn eigen geest, is beter dan een sterke, dan een held. Het is des mans eer, dat hij zich kan beheersen, maar daarbij zal hij tegen zichzelf in moeten gaan.
+
 c. Godsvrucht. Dat water, hetwelk hij te goed, te kostelijk achtte om door hemzelf gedronken te worden, goot hij, als een drankoffer, uit voor de Heere. Als wij iets beters hebben dan een ander, laat God er mee geëerd worden, die de beste is en het beste behoort te ontvangen.
+
 d. Welwillendheid voor zijn dienaren. Het maakte hem uiterst beschaamd, dat drie kloeke mannen hun leven hebben gewaagd om water voor hem te halen. In zijn schatting is dit water in bloed verkeerd. Het is de eer van hoge personen om niet verkwistend te zijn met het bloed van hen, die zij in hun dienst gebruiken, maar bij alle bevelen, die zij hun geven, hun eigen ziel te stellen in de plaats van hun ziel.
 
 5\. In de grote daden van deze helden moet de macht van God erkend worden. Hoe kon een man driehonderd verslaan, en een ander hetzelfde getal, vers 11, 20, en een ander twee sterke leeuwen of mannen sterk als leeuwen en weer een ander een Egyptische reus, vers 23, indien God niet op buitengewone wijze met hen was, overeenkomstig de belofte aan Jozua, 23:10 :"Een enig man onder u zal er duizend jagen, want het is de Heere, uw God zelf, die voor u strijdt".

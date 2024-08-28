@@ -54,15 +54,23 @@ Het Nieuwe Testament houdt het zingen van Psalmen in stand, maar heeft geen kerk
 Alle dingen nu gereed zijnde voor het overbrengen van de ark naar de stad Davids en voor haar ontvangst aldaar, hebben wij nu hier een bericht van de plechtigheid, waarmee zij van het huis van Obed-Edom gehaald en naar de stad Davids gebracht werd.
 
 1\. God hielp de Levieten om haar te dragen. De ark was geen zeer zware last, zodat zij die haar droegen, geen buitengewone hulp daarbij nodig hadden. Maar: 
+
 a. Het is goed om nota te nemen van de bijstand van de Goddelijke voorzienigheid, zelfs in die dingen, die binnen het bereik zijn van onze natuurlijke krachten, indien God ons niet hielp, wij zouden geen voet kunnen verzetten.
+
 b. Wij moeten inzonderheid voor onze oefeningen van de Godsvrucht hulp van boven ontvangen. Zie Handelingen 26:22. Al onze bekwaamheid voor heilige plichten is uit God.
+
 c. Bij de herinnering aan de scheur aan Uza konden de Levieten wel gesidderd hebben, toen zij de ark opnamen, maar God hielp hen, dat is Hij moedigde hen er toe aan, bracht hun vrees tot zwijgen en versterkte hun geloof.
+
 d. God hielp hen om het te doen op betamelijke wijze en zonder enigerlei vergissing te begaan. Als wij Godsdienstige plichten volbrengen, en er aan ontkomen dat er een scheur aan ons gemaakt wordt, en wij er het leven afbrengen, dan moeten wij erkennen dat het God was, die ons hielp, want indien wij aan onszelf waren overgelaten, wij zouden ons aan het een of ander noodlottig wangedrag hebben schuldig gemaakt. Gods dienstknechten, die de vaten des Heeren dragen, hebben zeer bijzonder Gods hulp nodig bij hun bediening, opdat God in hen verheerlijkt en Zijn kerk door hen gesticht worde. En zo God de Levieten helpt, dan heeft het volk er het voordeel van.
 
 2\. Toen zij de tekenen bespeurden van Gods tegenwoordigheid, offerden zij offeranden om Hem te loven, vers 26. Ook om dit te doen hielp Hij hen. Zij offerden deze varren en rammen misschien bij wijze van verzoening te doen over hun vorige vergissing, opdat die nu niet tegen hen gedacht zou worden, zowel als bij wijze van dankzegging voor de ontvangen hulp.
 
-3\. Er waren grote uitingen van vreugde, de heilige muziek speelde, David huppelde de zangers zongen en het volk juichte, vers 27, 28. Dit hadden wij tevoren in 2 Samuël 6:14, 15. Leer hieruit: a. Dat wij een goede Meester dienen, die er zich in verlustigt dat Zijn dienstknechten zingen bij hun werk.
+3\. Er waren grote uitingen van vreugde, de heilige muziek speelde, David huppelde de zangers zongen en het volk juichte, vers 27, 28. Dit hadden wij tevoren in 2 Samuël 6:14, 15. Leer hieruit: 
+
+a. Dat wij een goede Meester dienen, die er zich in verlustigt dat Zijn dienstknechten zingen bij hun werk.
+
 b. Dat tijden van openbare reformatie zijn, en behoren te zijn, tijden van openbare verheuging. Diegenen zijn de ark niet waardig, die er niet blijde mee zijn.
+
 c. Dat het voor de voornaamste en aanzienlijkste mensen geen verkleining is om zich vurig en ijverig te betonen in handelingen van de Godsvrucht. Michal verachtte David, vers 29 maar het feit, dat zij hem verachtte, maakte hem niet verachtelijk. Hij zelf sloeg er geen acht op, en degenen, die verstandig en Godvruchtig waren -en waarom zouden wij van anderen dan de zodanigen achting begeren? hebben er hem niet te minder om geacht. 
 
  

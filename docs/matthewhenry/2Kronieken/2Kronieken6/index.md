@@ -76,6 +76,7 @@ I. Nu en dan zijn hier sommige leerstellige waarheden gegeven. Zoals: 1. Dat de 
 5\. Dat er geen zondeloze volmaaktheid gevonden wordt in dit leven, vers 36, geen mens is er, die niet zondigt, ja meer, daar is geen mens, die goed doet en niet zondigt, zoals hij, in overeenstemming met hetgeen hij hier zegt, schrijft in Prediker 7:20.
 
 II. Hier worden enige gevallen ondersteld, waarvan nota genomen moet worden.
+
 1\. Hij onderstelt, dat er geschillen ontstaan tussen mens en mens, en dat beide partijen er in toestemmen om een beroep te doen op God, en dat de persoon, wiens getuigenis de zaak beslissen moet, een eed opgelegd wordt, vers 22. Van oudsher werd een Godsdienstige eerbied gekoesterd voor de eed, en het mag ondersteld worden, dat dit zo blijven zal, zolang er nog geweten en verstand onder de mensen overgebleven zijn.
 
 2\. Hij onderstelt dat, hoewel Israël thans volkomen vrede en rust geniet, er toch tijden van beroering en onrust voor het volk komen kunnen. Hij dacht niet dat de berg van hun voorspoed zo vastgezet was, dat hij niet bewogen kon worden, ja meer, hij verwachtte dat hij bewogen zal worden door de zonde.
@@ -97,10 +98,15 @@ III. Hier zijn zeer gepaste gebeden.
 5\. Dat God de vreemdelingen welkom zal heten in zijn huis en hun gebeden zal verhoren, vers 33, want zo er ten opzichte van plicht enerlei wet is voor de vreemdeling en voor de inboorling, Leviticus 24:22, waarom dan ook niet ten opzichte van de voorrechten? 6. Dat God bij alle gelegenheden de zaak van Zijn volk Israël zal voorstaan en handhaven tegenover allen, die hen tegenstaan vers 35 : voer hun recht uit, en weer in vers 39. Indien zij het Israël Gods zijn, dan is hun zaak Gods zaak die Hij zal omhelzen. Eindelijk. Hij besluit zijn gebed met enige uitdrukkingen, die hij van zijn Godvruchtigen vader had geleerd en aan een van zijn Psalmen heeft ontleend. Wij hadden die niet in 1 Koningen maar hier hebben wij ze in vers 41, 42. Het gehele woord Gods is nuttig om ons te leiden in ons bidden, en hoe kunnen wij ons in betere taal bij God uitdrukken, dan in de taal van Zijn eigen Geest? Maar deze woorden zijn in bijzonderen zin nuttig, om Salomo in zijn gebed te leiden, omdat zij betrekking hebben op het werk, dat hij nu deed. Wij hebben ze in Psalm 132:8-10. 
 
 Hij bidt in vers 41 : 
+
 A. Dat God bezit zal nemen van de tempel en er bezit van zal houden, dat Hij hem tot Zijn rust zal maken. Gij en de ark, wat zal de ark doen zonder de God van de ark? Inzettingen zonder de God van de inzettingen? 
+
 B. Dat Hij de dienaren van de tempel tot een openbaren zegen zal maken: laat de priesters met heil bekleed worden, dat is: behoud hen niet slechts, maar maak hen tot werktuigen om anderen te behouden door de offeranden van de gerechtigheid te offeren.
+
 C. Dat de tempeldienst in overvloedige mate tot blijdschap en voldoening zal strekken van al het volk des Heeren, laat Uw gunstgenoten over het goede blijde zijn, dat is: over het goede van Uw huis, Psalm 65:5. Laat allen die evenals de kamerling, hier komen om te aanbidden, hun weg reizen met blijdschap. 
 
 Hij pleit op twee dingen, vers 42.
+
 a. Op zijn eigen betrekking tot God: "Wend het aangezicht Uws gezalfden niet af. Heere, Gij hebt mij koning gemaakt, zult Gij mij dan niet erkennen?" 
+
 b. Op Gods verbond met zijn vader: gedenk van de weldadigheden Davids Uws knechts. Davids vroomheid voor Gods, zo verstaan sommigen het, en zo is soms de betekenis van het woord, zijn vrome zorg voor de ark, en belangstelling er in. Zie Psalm 132:1, 2 en verder. Of wel, de beloften van God aan David, die weldadigheden voor hem waren, zijn steun en troost in al zijn benauwdheden. Wij kunnen evenals Salomo hier, pleiten met het oog op Christus. Wij verdienen dat God ons aangezicht afwendt, dat Hij ons en onze gebeden afwijst, maar wij komen in de naam van de Heere Jezus, Uw Gezalfde, Uw Messias, zoals het woord is, Uw Christus, zoals de LXX het hebben. Hem hoort Gij altijd, Zijn aangezicht zult Gij nooit afwenden. Wij hebben geen gerechtigheid van onszelf om op te pleiten, maar Heere, gedenk de weldadigheden Davids, Uws knechts. Christus is Gods knecht, Jesaja 42:1, en wordt David genoemd, Hosea 3:5. Heere, gedenk van Zijn weldadigheden, en neem, vanwege dezen, ons aan. Gedenk van Zijn tedere zorg voor de eer Zijns Vaders en het heil van de mensen, en wat Hij om dat beginsel gedaan en geleden heeft. Gedenk van de beloften van het eeuwig verbond, dat uit vrije genade in Christus met ons gemaakt is, en die genoemd worden de gewisse weldadigheden Davids, Jesaja 55:3, Handelingen 13:34. Dit moet al onze begeerte zijn, al onze hoop, al ons gebed, en geheel onze pleitgrond, want het is geheel ons heil. 

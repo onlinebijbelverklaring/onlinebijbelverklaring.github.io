@@ -29,22 +29,30 @@ III. Hurams vriendelijk antwoord en bereidwillig toestaan van dat verzoek, vers 
 
 Salomo’s wijsheid was hem gegeven, niet bloot tot bespiegeling en voor zijn eigen vermaak (hoewel dit inderdaad een vorstelijk vermaak is) en ook niet bloos voor onderhoudende gesprekken met zijn vrienden, maar om haar in praktijk te brengen, en zo begeeft hij zich dan terstond aan het werk. 
 Merk op:  
+
 I. Hoe hij bij zichzelf het besluit neemt tot deze zaak, vers 1. Hij dacht te bouwen, in de eerste plaats: een huis voor de Naam des HEEREN. Het is voegzaam dat Hij, die de eerste is, het eerst bediend wordt, eerst een tempel en dan een paleis, een huis, niet zozeer voor zichzelf en voor zijn gerief en zijn staatsie, als wel voor het koninkrijk, voor de eer ervan onder zijn naburen en tot betamelijke ontvangst van het volk, als zij zich tot hun vorst wilden wenden, zodat hij in beide het openbare welzijn op het oog had. Diegenen zijn de wijste mannen, die zich het meeste te koste geven voor de eer en de naam des Heeren en het welzijn van de gemeenten, wij zijn niet voor onszelf geboren, maar voor God en ons land.
 
 II. Zijn gezantschap naar Huram, koning van Tyrus, om zijn hulp te verzoeken in de volvoering van zijn plannen. De inhoud van zijn boodschap aan hem is hier tamelijk gelijk aan die van 1 Koningen 5:2 en verder. Maar hier is zij uitvoeriger.
 
 1\. De redenen, waarom hij zich tot Huram wendt, zijn hier uitvoeriger opgegeven, zowel ter inlichting van Huram als om hem tot inwilliging te bewegen.
-a. Hij pleit op zijns vaders belangstelling in Huram en de vriendschap, die hij van hem had ontvangen, vers 3. Gelijk als gij met mijn vader David gedaan hebt, zo doe ook met mij. Gelijk wij vriendelijkheid moeten bewijzen aan zo kunnen wij ook vriendelijkheid verwachten van de vrienden onzes vaders, en wij behoren gemeenschap met hen te onderhouden.
-b. Hij geeft een voorstelling van zijn plan om de tempel te bouwen, hij bestemde hem tot een plaats van Godsverering, vers 4, opdat al de offeranden, die God had voorgeschreven voor de eer van Zijn naam daar geofferd zouden worden. Het huis werd gebouwd om Gode gewijd te zijn en gebruikt te worden in Zijn dienst, dat moeten wij in al ons doen op het oog hebben, alles wat wij hebben en doen moet aan de ere Gods gewijd zijn. Hij noemt tot inlichting van Huram verschillende bijzondere diensten, die er verricht moesten worden. De verborgenheden van de waren Godsdienst hadden geen geheimhouding nodig, zoals de bijgelovige plechtigheden van de heidenen.
-c. Hij poogt Huram zeer grote en hoge gedachten in te boezemen van de God Israëls, door uitdrukking te geven aan de ontzaglijke eerbied, die hij koesterde voor Zijn heiligen Naam. Onze God is groter dan alle goden, dan alle afgoden, alle vorsten. 
+
+A. Hij pleit op zijns vaders belangstelling in Huram en de vriendschap, die hij van hem had ontvangen, vers 3. Gelijk als gij met mijn vader David gedaan hebt, zo doe ook met mij. Gelijk wij vriendelijkheid moeten bewijzen aan zo kunnen wij ook vriendelijkheid verwachten van de vrienden onzes vaders, en wij behoren gemeenschap met hen te onderhouden.
+
+B. Hij geeft een voorstelling van zijn plan om de tempel te bouwen, hij bestemde hem tot een plaats van Godsverering, vers 4, opdat al de offeranden, die God had voorgeschreven voor de eer van Zijn naam daar geofferd zouden worden. Het huis werd gebouwd om Gode gewijd te zijn en gebruikt te worden in Zijn dienst, dat moeten wij in al ons doen op het oog hebben, alles wat wij hebben en doen moet aan de ere Gods gewijd zijn. Hij noemt tot inlichting van Huram verschillende bijzondere diensten, die er verricht moesten worden. De verborgenheden van de waren Godsdienst hadden geen geheimhouding nodig, zoals de bijgelovige plechtigheden van de heidenen.
+
+C. Hij poogt Huram zeer grote en hoge gedachten in te boezemen van de God Israëls, door uitdrukking te geven aan de ontzaglijke eerbied, die hij koesterde voor Zijn heiligen Naam. Onze God is groter dan alle goden, dan alle afgoden, alle vorsten. 
 Afgoden zijn niets, vorsten zijn gering, en beide zijn onder bestuur en bedwang van de God Israëls, en daarom: 
 
 a. Moet het huis groot zijn, niet in evenredigheid van de grootheid van die God, aan wie het gewijd zal zijn (want tussen het eindige en oneindige kan geen evenredigheid bestaan), maar in enige evenredigheid tot de grote waardering van en eerbied die wij hebben voor die God.
+
 b. "Maar al is het ook nog zo groot, het kan toch geen woning zijn voor de grote God, Iaat Huram niet denken dat de God Israëls, zoals de goden van de heidenen, woont in tempelen met handen gemaakt, Handelingen 17:24, neen, de hemel van de hemelen kan Hem niet bevatten. Het huis is slechts bedoeld tot gerief van de priesters en de aanbidders, opdat zij een geschikte, voegzame plaats hebben om offers voor Hem te branden.
+
 c. Hoewel hij een machtig vorst was, zag hij op zichzelf als de eer onwaardig om in dit grote werk gebruikt te worden. Wie ben ik, dat ik voor Hem een huis zou bouwen. Het behoort tot de wijsheid, waarmee wij moeten wandelen bij degenen die buiten zijn, om zorgvuldig te waken tegen alle misverstand, dat door iets wat wij zeggen of doen zou kunnen ontstaan ten opzichte van God, en dat doet Salomo hier in zijn onderhandeling met Huram.
 
 2\. Het verzoek, dat hij hem doet, is hier meer gespecificeerd.
+
 a. Hij verlangt dat Huram hem een wijzen man om te werken zal zenden, vers 7. Hij had wijze mannen bij zich in Jeruzalem en Juda, waarin David voorzien had, 1 Kronieken 22:15. Laat hen niet denken dat er ook onder de Joden geen bekwame werklieden waren, maar zend mij een man om hen te besturen. "Er zijn vernuftige mennen te Jeruzalem, maar niet zulke bekwame graveurs als te Tyrus, en daar tempelwerk het beste in zijn soort moet zijn, zo laat mij de beste werklieden hebben, die te krijgen zijn.
+
 b. Met goede materialen, vers 8, cederhout en ander hout in menigte, vers 8, 9, want het huis zal groot en wonderlijk zijn, dat is: zeer statig en prachtig, geen kosten moeten er voor gespaard worden, geen kunst er aan ontbreken.
 
 3\. Hier is Salomo’s verbintenis om de werklieden te onderhouden, vers 10, hun zo en zoveel tarwe en gerst, zo en zoveel wijn en olie te geven. Hij heeft zijn werklieden niet met water en brood gevoed, maar met overvloed en met van alles het beste. Zij, die arbeiders gebruiken, moeten zorg dragen niet alleen dat zij goed betaald worden, maar ook wel voorzien van hetgeen goed en gezond voor hen is. Laat de rijke meesters voor hun arme werklieden doen wat zij wensen dat hun gedaan zou worden, als zij in hun plaats waren. 

@@ -51,26 +51,33 @@ IV. Hij toont eerst zijn eigen recht op de kroon, en dan Salomo’s recht er op,
 4\. Salomo was een van de jongere zonen van David, en toch heeft God hem verkoren om op de troon te zitten, omdat hij van allen de persoon was, die waarschijnlijk de tempel zou bouwen, de verstandigste was, en de beste gezindheid had.
 
 V. Hij legt hun Gods genaderijke voornemens bloot betreffende Salomo, vers 6, 7. Ik heb hem Mij uitverkoren tot een zoon. Aldus maakt hij het raadsbesluit bekend, dat de Heere had gezegd tot Salomo, als een type van Christus, "Gij zijt Mijn Zoon," Psalm 2:7, de zoon Mijner liefde, want hij werd Jedidjah genoemd, omdat de Heere hem liefhad en Christus is Zijn geliefde Zoon. Van hem, ais type en afschaduwing van Hem, die komen zou, heeft God gezegd: 
+
 1\. Hij zal Mijn huis bouwen. Christus is beide de grondlegger en het fondament van de Evangelietempel.
 
 2\. Ik zal zijn koninkrijk bevestigen tot in eeuwigheid. Deze belofte moet haar vervulling hebben in het koninkrijk van de Messias, dat in Zijn handen zal blijven tot aan het einde des tijde, Jesaja 9:6, Lukas 1:33, en dan aan God de Vader overgegeven zal worden. Wat Salomo betreft: deze belofte van de bevestiging zijns koninkrijks is hier voorwaardelijk gegeven: indien hij sterk wezen zal om Mijn geboden en Mijn rechten te doen, gelijk te dezen dage. Salomo was nu zeer volgzaam en goed. "Indien hij dit blijft, dan zal zijn koninkrijk in stand blijven, maar anders niet." Als wij standvastig zijn in onze plicht, dan maar anders niet, kunnen wij de voortduring verwachten van Gods gunst. Laat hen, die wèl onderwezen zijn en goed beginnen, hiervan nota nemen-indien zij standvastig zijn in het goede, zijn zij gelukkig, volharding draagt de kroon, of schoon zij er niet door gewonnen wordt. 
 
 VI. Hij vermaant hen God en hun plicht getrouw aan te kleven, vers 8. Merk op: 
+
 1\. Waartoe hij hen vermaant: Houdt en zoekt al de geboden des HEEREN, uw Gods. De Heere was hun God, Zijn geboden moeten hun richtsnoer zijn, zij moeten ze allen waarnemen en nauwgezet houden, en te die einde moeten zij ze zoeken, dat is: zij moeten weetgierig zijn omtrent hun plicht, de Schriften onderzoeken raad aannemen, de wet zoeken in de mond van hen, wier lippen deze wetenschap bewaren, en God bidden hen te onderwijzen en te leiden. Zonder grote zorg zullen Gods geboden niet gehouden worden.
 
 2\. Het plechtige er van. Hij vermaant hen voor de ogen van geheel Israël, dat er kennis van zal bekomen, en voor de oren Gods: God is getuige en Zijn gemeente is getuige dat hun goede raad gegeven is en dat zij behoorlijk gewaarschuwd zijn, indien zij de raad niet aannemen, dan is dit hun schuld, en dan zullen God en de mensen tegen hen getuigen. Zie in Timotheüs 5:21, 2 Timotheüs 4:1 T. Zij die de Godsdienst belijden, moeten, als zij de gunst van God en een goede reputatie onder de mensen willen hebben, getrouw zijn aan hun belijdenis.
 
 3\. De beweegreden om deze last te volvoeren: het was het middel om gelukkig te zijn, zelf het vreedzame bezit te hebben van dit goede land en er het erfdeel van te bewaren voor hun kinderen.
 
-VII. Hij besluit met een vermaning, een last aan Salomo zelf, vers 9, 10. Het is zijn grootste wens dat hij een Godsdienstig man zal zijn. Hij zal een groot man wezen, maar hij moet de Godsdienst niet beneden zich achten, hij zal een wijs man zijn, en dit zal zijn wijsheid wezen. Merk op:  
+VII. Hij besluit met een vermaning, een last aan Salomo zelf, vers 9, 10. Het is zijn grootste wens dat hij een Godsdienstig man zal zijn. Hij zal een groot man wezen, maar hij moet de Godsdienst niet beneden zich achten, hij zal een wijs man zijn, en dit zal zijn wijsheid wezen. Merk op: 
+
 1\. De last, die hij hem geeft. Hij moet op God zien als de God zijns vaders, die zich aan God had gewijd, en hem voor God had opgevoed. Hij was geboren in Gods huis, en daarom gehouden en verplicht de Zijne te wezen, opgevoed in Zijn huis, en daarom tot dankbaarheid verplicht. Verlaat uw vriend en de vriend uws vaders niet. Hij moet God kennen en dienen, wij kunnen God niet recht dienen als wij Hem niet kennen, en tevergeefs kennen wij Hem, zo wij Hem niet dienen, dienen met hart en ziel. Wij maken niets van de Godsdienst als wij er geen acht op slaan er geen werk van maken met het hart, God niet dienen met een volkomen, dat is een oprecht hart want oprechtheid is onze Evangelie- volmaaktheid, en met een gewillige ziel, uit een beginsel van liefde, en als een gewillig volk, blijmoedig en met genot.
 
 2\. De argumenten om aan deze vermaning kracht bij te zetten. Twee argumenten als algemene beweeggronden.
+
 a. Dat de geheimen van onze ziel blootliggen voor God, Hij doorgrondt alle harten, zelfs het hart van koningen, die voor de mensen ondoorgrondelijk zijn Spreuken 25:3. Wij moeten oprecht zijn omdat God het ziet als wij bedrieglijk handelen en er niet in bedrogen kan worden, wij moeten onze gedachten bezighouden met en gebruiken in de dienst van God, omdat Hij er al de overleggingen, goede en kwade, van kent.
+
 b. Dat wij, al naar wij God dienen of niet dienen, in deze wereld en voor eeuwig gelukkig of rampzalig zullen zijn. Als wij Hem naarstiglijk zoeken, zal Hij van ons gevonden worden, Hebreeën 11:6. Als wij Hem verlaten, Zijn dienst verlaten, ons afkeren van Hem te volgen, dan zal Hij ons voor altijd verstoten, en dat is genoeg om ons rampzalig te maken. God verlaat niemand, voordat hij Hem verlaten heeft. Hier is een bijzonder argument voor Salomo, vers 10. "De Heere heeft u verkoren, dat gij een huis ten heiligdom bouwt, zo zoek en die dan God, opdat dit werk uit een goed beginsel gedaan worde, op de rechte wijze, en opdat het Gode welbehaaglijk zal zijn." 
 
 3\. Het middel dat hiertoe voorgeschreven wordt, en dat ons allen wordt voorgeschreven.
+
 a. Omzichtigheid. Zie nu toe, hoed u voor alles wat gelijkt op of leidt naar hetgeen kwaad is.
+
 b. Moed. Wees sterk, en doe het. Wij kunnen ons werk niet doen, zoals wij het behoren te doen, tenzij wij vastberaden zijn en kracht zoeken in de Goddelijk genade. 
 
 ## 1 Kronieken 28:11-21 
@@ -85,6 +92,7 @@ Bisschop Patrick veronderstelt dat daar, onder andere dingen, de tabernakel door
 
 3\. Een aanwijzing vanwaar hij hulp moet verwachten in deze grote onderneming. "Vrees geen tegenstand, wees niet bevreesd voor de onkosten, de zorg en moeite, die er voor nodig zijn, vrees niet voor mislukking, zoals in het geval van Uza, vrees niet voor de schande van de dwazen bouwer, die begon te bouwen, maar niet kon voleindigen. 
 Wees niet verslagen: 
+
 a. God zal u helpen, en tot Hem moet gij in de eerste plaats opzien, vers 20, de Heere God, mijn God, die ik verkoren en gediend heb, die al die tijd met mij geweest is, mij voorspoedig heeft gemaakt, en aan wie ik u naar mijn eigen ervaring van Zijn macht en goedheid aanbeveel, zal met u zijn om u te besturen, te bekrachtigen en voorspoedig te maken, Hij zal u niet begeven en u niet verlaten." Wij kunnen er zeker van wezen dat God, die onze vaderen gekend en doorgeholpen heeft in de dienst van hun dag, ons, indien wij Hem getrouw zijn, evenzo zal helpen en met ons zal wezen, ons nooit zal verlaten zolang Hij nog werk in ons en voor ons te doen heeft. Dezelfde aanmoediging, die aan Jozua, Jozua 1:5, en hier aan Salomo is gegeven, wordt gegeven aan alle gelovigen, Hij zal u niet begeven en u niet verlaten. God verlaat de mensen niet, voordat zij Hem verlaten hebben.
 
 b. "Goede mensen zullen u helpen, vers 21. De priesters en Levieten zullen u van raad dienen, en gij kunt met hen beraadslagen. Gij hebt goede werklieden, die zowel gewillig als bekwaam zijn," en dat zijn twee zeer goede eigenschappen in een werkman, inzonderheid in hen, die aan de tempel werken. Eindelijk. "De vorsten en het volk zullen wel verre van het werk tegen te staan of het te vertragen, geheel tot uw dienst zijn, ieder op zijn plaats gereed en bereid zijn om het te bevorderen." Een goed werk zal waarschijnlijk goeden voortgang hebben als allen, die er belang bij hebben, er met hart en ziel in zijn, niemand het in het geheim belemmert, maar allen het van harte voorthelpen. 

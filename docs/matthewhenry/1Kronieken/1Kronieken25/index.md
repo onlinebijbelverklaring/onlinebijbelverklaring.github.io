@@ -40,6 +40,7 @@ II. De orde, waarin zij moesten dienen, werd bepaald door het lot, vers 8-31.
 ## 1 Kronieken 25:1-7 
 
 Merk op:  
+
 I. Het zingen van de lof Gods wordt hier "profeteren" genoemd, vers 1-3. Niet dat al degenen, die tot deze dienst gebruikt werden, geëerd zijn geworden met de gezichten Gods of toekomstige gebeurtenissen konden voorzeggen. Van Heman wordt wel gezegd dat hij "des konings ziener was in de woorden Gods", vers 5, maar de Psalmen, die zij zongen, waren gedicht door profeten, en velen er van waren profetisch, en de stichting van de kerk was er in bedoeld, zowel als de eer van God. In Samuëls tijd, gaf men aan het zingen van de lof van God de naam van "profeteren", 1 Samuël 10:5, 19:20, en misschien wordt dat ook bedoeld met wat Paulus "profeteren" noemt, 1 Corinthiers 11:4, 14:24.
 
 II. Dit wordt hier een dienst genoemd, en de personen, die er voor gebruikt werden, worden werklieden genoemd, vers 1, "mannen, bekwaam tot het werk van hun dienst". Niet dat het niet de grootste vrijheid en het hoogste genot is om gebruikt te worden in het loven van God, wat is de hemel anders dan dat? Maar het geeft te kennen dat wij er ons werk van moeten maken, alles wat binnen in ons is er toe moeten opwekken, en dat het in onze tegenwoordige staat van zwakheid en bederf niet zonder moeite en strijd naar behoren gedaan zal worden. Wij moeten moeite doen om ons hart tot dit werk te brengen, en het er bij te houden, ons er toe te begeven met alles wat in ons is.
@@ -66,30 +67,32 @@ Vier en twintig personen werden aan het begin van dit hoofdstuk genoemd als zone
 1\. Het lot werd met onpartijdigheid geworpen. Zij werden in vier en twintig groepen van ieder twaalf, verdeeld in twee rijen, twaalf groepen in een rij, en zo wierpen zij de loten over de wacht tegen elkaar, hen allen op gelijke voet plaatsende, klein en groot, leermeester en leerling. Het ging dus niet naar rang van ouderdom, noch naar hun rang, noch naar de graad van bedrevenheid, die zij in de muziekscholen hadden verkregen, maar het werd overgelaten aan Gods beschikking, vers 8. Klein en groot, leermeesters en leerlingen, zijn gelijk voor God, die niet handelt naar onze regelen van onderscheiding en voorrang. Zie Mattheüs 20:23.
 
 2\. God beschikte het naar het Hem behaagde, waarschijnlijk de persoonlijke verdiensten van de mannen in aanmerking nemende, die van veel meer belang zijn dan rang van ouderdom of eerstgeboorte. Laat ons hen vergelijken bij de vorige lijst, en wij zullen bevinden dat: 
-a. Jozef de tweede zoon was van Asaf.
-b. Gedalja de oudste zoon was van Jeduthun.
-c. Zakkur de oudste zoon was van Asaf.
-d. Jizri de tweede zoon was van Jeduthun.
-e. Nethanja de derde zoon was van Asaf.
-f. Bukkia de oudste zoon was van Heman. 
-g Jesarela de jongste zoon was van Asaf.
-h. Jesaja de derde zoon was van Jeduthun.
-i. Mattanja de tweede zoon was van Heman. 
-j. Simei de jongste zoon was van Jeduthun. 
-k. Azareeil de derde zoon was van Heman. 
-l. Hasabja de vierde zoon was Jeduthun. 
-m. Subael de vierde zoon was van Heman. 
-n. Mattithja de vijfde zoon was van Jeduthun. 
-o. Jeremoth de vijfde zoon was van Heman. 
-p. Hananja de zesde. 
-q. Josbehasa de elfde. 
-r. Hanani de zevende. 
-s. Mallothi de twaalfde. 
-t. Eliatha de achtste. 
-u. Hothir de dertiende.
-v. Giddalti de negende. 
-w. Mahazioth de veertiende 
-x. Romamthi-Ezer de tiende was van Heman. 
+
+a. Jozef de tweede zoon was van Asaf.  
+b. Gedalja de oudste zoon was van Jeduthun.  
+c. Zakkur de oudste zoon was van Asaf.  
+d. Jizri de tweede zoon was van Jeduthun.  
+e. Nethanja de derde zoon was van Asaf.  
+f. Bukkia de oudste zoon was van Heman.   
+g Jesarela de jongste zoon was van Asaf.  
+h. Jesaja de derde zoon was van Jeduthun.  
+i. Mattanja de tweede zoon was van Heman.   
+j. Simei de jongste zoon was van Jeduthun.   
+k. Azareeil de derde zoon was van Heman.   
+l. Hasabja de vierde zoon was Jeduthun.   
+m. Subael de vierde zoon was van Heman.   
+n. Mattithja de vijfde zoon was van Jeduthun.   
+o. Jeremoth de vijfde zoon was van Heman.   
+p. Hananja de zesde.   
+q. Josbehasa de elfde.  
+r. Hanani de zevende.  
+s. Mallothi de twaalfde.  
+t. Eliatha de achtste.  
+u. Hothir de dertiende.  
+v. Giddalti de negende.  
+w. Mahazioth de veertiende.   
+x. Romamthi-Ezer de tiende was van Heman.  
+
 Zie hoe God sommigen deed toenemen, en de jongeren voor de ouderen stelde.
 
 3\. Ieder van deze had het getal twaalf in zijn koor, zij worden hun zonen en hun broederen genoemd, omdat zij hen beschouwden als zonen en met hen samenwerkten als broederen. Waarschijnlijk hebben twaalf, sommigen voor de stem en anderen voor de muziekinstrumenten het concert uitgemaakt. Laat ons leren een van ziel en een van mond God te verheerlijken en dat zal het beste en schoonste concert wezen. 

@@ -58,6 +58,7 @@ IV. Hij vaardigde een order uit, eerst aan de inwoners van Jeruzalem, vers 4, (o
 V. Hierop bracht het volk zeer geredelijk hun tienden in, er was niets andere nodig dan hen er toe op te roepen, en daarom, zodra het bevel was uitgegaan, werden de eerstelingen van de vruchten en de tienden van de heilige dingen terstond ingebracht, vers 5, 6. Wat de priesters nodig hadden voor zichzelf en hun gezin, gebruikten zij, en wat er dan nog overbleef legden zij op in hopen, vers 6 Gedurende de hele oogsttijd vermeerderden zij die hopen, naarmate de vruchten des velds binnengebracht werden, want God moest daarvan hebben wat Hem toekwam. Toen de oogst geëindigd was, voleindigden zij hun hopen, vers 7. 
 
 Nu hebben wij hier: 
+
 1\. Het rapport, dat aan Hizkia gegeven werd betreffende deze hopen. Hij ondervroeg de priesteren en Levieten aangaande die hopen, waarom zij niet gebruikt hadden wat ingebracht werd, maar het aldus hadden opgegaard, vers 9. Waarop geantwoord werd dat zij al wat zij nodig hadden hebben gebruikt tot onderhoud van henzelf en hun gezin en voor hun wintervoorraad, maar dat dit alles nu nog over was, vers 10. Zij hebben deze hopen niet opgegaard uit gierigheid, maar om te tonen welke overvloedige voorziening God voor hen gemaakt had door Zijn wet, zo het slechts ingezameld en ingebracht werd, en dat zij, die nauwgezet aan God het Zijne geven uit hun bezittingen, een zegen brengen op alles wat zij hebben. Van dat men deze heffing begonnen heeft tot het huis des Heeren te brengen, is er te eten geweest en verzadigd te worden, ja over te houden tot overvloed toe, want de Heere heeft Zijn volk gezegend. Zie hiervoor Haggaï 2:19, 20. "Beproeft Mij", zegt God, "indien gij Mij anders niet vertrouwen wilt, of er op uw inbrengen van de tienden in het schathuis, geen zegen op u afgegoten zal worden," Maleachi 3:10, 11, Ezechiël 44:30.
 
 2\. De dankbare erkenning van de koning en de vorsten ervan. Zij zegenden, dat is zij dankten, de Heere voor Zijn goede voorzienigheid, die hun iets te brengen gaf, en voor Zijn goede genade, die hun een hart gaf om het te brengen. En zij zegenden ook het volk, dat is, zij prezen hen voor wel doen nu, zonder hen hun vroegere veronachtzaming te verwijten. Het is opmerkelijk dat zij, na de lieflijkheid van Gods inzettingen gemaakt te hebben in het aangename, troostrijke pascha, dat zij gehouden hebben, nu zo vrijgevig waren om de tempeldienst te onderhouden. Zij, die het voorrecht hebben van een geregelder Evangeliedienst zullen niet morren tegen de onkosten ervan. 
@@ -65,22 +66,33 @@ Nu hebben wij hier:
 ## 2 Kronieken 31:11-21 
 
 Wij hebben hier: 
+
 I. Twee bijzondere voorbeelden van Hizkia’s zorg voor de kerkelijke zaken om, nu hij ze in goede orde gebracht heeft, ze ook in goede orde te houden. De tienden en andere heilige zaken ingebracht zijnde: 
+
 1\. Beval hij dat zij zorgvuldig bewaard zouden worden, en niet op deze hopen zouden blijven liggen, blootgesteld om bedorven of ook weggenomen of verkwist te worden. Hij gebood dat er kameren bereid zouden worden in sommige voorhoven van de tempel om tot voorraadkamers te dienen, vers 11, en daarin werden de offeranden gebracht en weggesloten, vers 12, 13. Er werden bewaarders over aangesteld, die er het opzicht over hadden, om te zorgen dat zij door geen mot of roest zouden verdorven en door geen dieven weggenomen zouden worden. Deze wijsheid om in dagen van overvloed het overgeblevene op te leggen, kunnen wij leren van de mier, die in de zomer haar spijs bereidt. Het in voorraad opleggen van hetgeen ingebracht werd was een aanmoediging voor het volk om hun bijdragen te betalen. Datgene, hetwelk goed bestuurd en beheerd wordt, zal door het publiek gaarne opgebracht worden.
 
 2\. Dat zij getrouwelijk te koste gelegd moesten worden aan hetgeen, waarvoor zij bestemd waren. De schatten van de kerk moeten niet langer opgelegd worden dan tot het ogenblik wanneer het nodig is ze te gebruiken, zelfs het roest getuigt tegen hen, die dat doen. Er werden beambten aangesteld, mannen van erkende wijsheid en trouw (ongetwijfeld), om het hefoffer des Heeren en het allerheiligste uit te delen onder de priesters, vers 14, en te zorgen dat ieder een behoorlijk onderhoud had voor zich en zijn gezin. De wet heeft genoegzaam voor allen voorzien, indien sommigen dus te weinig hadden, dan moest het wezen omdat anderen te veel hadden. Om dergelijke ongelijkheid te voorkomen, moesten deze beambten in het beschikken over de inkomsten van de tempel naar een zekeren regel van evenredigheid te werk gaan. Er wordt hier van de priesters gezegd, vers 18, dat zij zich in hun ambt in heiligheid geheiligd hadden, het woord betekent eigenlijk, dat zij zich in geloof geheiligd hadden, dat is (naar bisschop Patrick het verklaart): zij begaven zich tot hun dienst in het huis van God, niet twijfelende of zij zouden van al het nodige voorzien worden, omdat zij nu God dienden in dit vertrouwen, werd er voor gezorgd, dat zij in hun hoop niet beschaamd zouden worden. Zij die zich in geloof Gode en Zijn dienst heiligen vertrouwende dat Hij het hun aan niets, dat goed is, zal laten ontbreken, zullen waarlijk gevoed worden, Psalm 37:3. 
 
 Uit de offeranden des Heeren werden delen gegeven: 
+
 a. Aan de priesters in de steden vers 15, die thuis bleven, terwijl hun broederen naar Jeruzalem gingen, en daar goed deden door de goede kennis des Heeren te leren, de predikende priesters werden evengoed onderhouden als de offerende priesters, zij, die bij het gereedschap bleven, evengoed als zij, die de krijg voerden.
+
 b. Aan allen, die in het huis des Heeren gingen, al de manspersonen van drie jaren oud en daarboven, want de kinderen van het mannelijk geslacht schijnen zelfs op die zeer jeugdige leeftijd met hun ouders in de tempel te zijn toegelaten en deelden met hen in die uitdeling, vers 16.
+
 c. Zelfs de Levieten van twintig jaar en daarboven ontvingen hun deel, vers 17.
+
 d. De vrouwen en kinderen van de priesters en Levieten hadden een goed onderhoud uit deze offeranden, vers 18. Voor het onderhoud van de leraren moet acht geslagen worden op hun gezinnen, opdat niet slechts zij, maar ook de hunnen, het brood huns bescheiden deels hebben. In sommige landen, waar de leraren hun traktement van de staat ontvangen, wordt dit bij de geboorte van ieder kind vermeerderd.
+
 e. De priesters op het land, die op de velden van de voorsteden hunner steden woonden, werden niet voorbijgezien in deze uitdeling, vers 19. Ook zij ontvingen hun deel, die in de dorpen woonden, hoewel men kon onderstellen dat deze goedkoper konden leven.
 
 II. Een algemene aanduiding van de hoedanigheid van Hizkia’s diensten ter ondersteuning van de Godsdienst, vers 20, 21.
+
 1\. Zijn vrome ijver strekte zich uit tot alle delen van zijn rijk: alzo deed Jehizkia in geheel Juda, alle delen van zijn land, en niet slechts die delen, die het dichtst bij hem lagen, deelden in de goede vruchten van zijn regering.
+
 2\. Hij bedoelde oprecht God te behagen in alles wat hij deed, hij deed dat goed en recht en waarachtig was voor het aangezicht des Heeren, zijns Gods, al zijn zorg was datgene te doen wat God welbehaaglijk was, wat recht was (dat is: wat naar de natuurlijke billijkheid was), en waarachtig (dat is: in overeenstemming met de Goddelijke openbaring en zijn verbond met God), voor het aangezicht des Heeren, om te doen naar die wet, welke heilig, rechtvaardig en goed is.
+
 3\. Wat hij begon, zette hij door met kracht en ijver, hij deed het met zijn gehele hart.
+
 4\. Al zijn goede voornemens werden ten uitvoer gebracht. In hetgeen hij deed in de dienst van het huis Gods en in de regering zijns rijks was hij voorspoedig. Wat in oprechte bedoeling voor de eer Gods ondernomen wordt zal ten laatste welslagen tot onze eigen eer en vertroosting. 
 
 

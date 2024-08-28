@@ -18,7 +18,8 @@
 
 ## Inleiding
 
-In dit hoofdstuk zien wij:  
+In dit hoofdstuk zien wij: 
+
 I. Davids koninkrijk bevestigd, vers 1, 2.  
 II. Zijn gezin opgebouwd, vers 3-7.  
 III. Zijn vijanden, de Filistijnen, verslagen in twee veldtochten, vers 8-17. Dit is hier herhaald van 2 Samuël 5:11 en verv.  
@@ -26,6 +27,7 @@ III. Zijn vijanden, de Filistijnen, verslagen in twee veldtochten, vers 8-17. Di
 ## 1 Kronieken 14:1-7 
 
 Wij kunnen hier opmerken: 
+
 1\. Dat niemand zo’n genoegzaamheid heeft in zichzelf of hij heeft toch zijn buren nodig, en hij heeft reden om dankbaar te zijn voor hun hulp. David had een zeer groot koninkrijk, Hiram een zeer klein koninkrijk, maar David kan zich geen huis bouwen naar zijn genoegen of Hiram moet hem van werklieden en materialen voorzien, vers 1, hetgeen een reden is, waarom wij niemand moeten verachten maar, naar wij er gelegenheid toe hebben, aan allen dienst moeten betonen.
 
 2\. Het is voor een wijs man een grote voldoening om gevestigd te zijn, en voor een Godvruchtig man Gods bijzondere voorzienigheid te zien in zijn vestiging. Het volk had David koning gemaakt, maar hij kon niet gerust of gelukkig zijn voor hij bemerkte dat de Heere hem tot koning bevestigd had over Israël, vers 2.
