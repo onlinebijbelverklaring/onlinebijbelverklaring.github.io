@@ -32,6 +32,7 @@ IV. Hij misbruikte en verduisterde de meubelen van de tempel, vers 17, 18. En zo
 ## 2 Koningen 16:1-4 
 
 Wij hebben hier een algemene schets van de regering van Achaz, weinig en kwaad waren zijn dagen, weinig, want hij stierf op zes en dertigjarige leeftijd, kwaad, want hier wordt ons gezegd: 
+
 1\. Dat hij niet deed dat recht was, zoals David, vers 2, dat is: hij had de belangstellende zorg en genegenheid niet voor de voor God ingestelde eredienst, waar David zo vermaard om was. Hij had geen liefde voor de tempel, legde zich niet toe op zijn plicht jegens God, en gaf geen acht op Zijn wet. Hierin was hij ongelijk aan David. Het was hem tot eer, dat hij van het huis en geslacht Davids was, en hij had het aan Gods verbond met David te danken dat hij nu op de troon was, hetgeen zijn goddeloosheid verzwaarde, dat hij een schande was voor die eervoller naam en dat geslacht, en zo werd het in werkelijkheid een schande voor hemzelf,  - Degeranti genus opprobrium - Een goede afkomst is een schande voor hem, die er van ontaardt - en dat hij hoewel de weldaad van Davids Godsvrucht genietende, toch niet in de voetstappen ervan trad.
 
 2\. Dat hij wandelde in de weg van de koningen Israëls, vers 3, die allen de kalveren aanbaden. Hij was niet aan hen verwant zoals Joram en Ahazia aan het huis van Achab verwant waren, maar ex mero motu - zonder enigerlei aansporing - wandelde hij in hun weg. De koningen van Israël voerden politiek en redenen van staat aan voor hun afgoderij, maar Achaz bezat zo’n voorwendsel niet, in hem was het zo onredelijk en zo onstaatkundig mogelijk. Zij waren zijn vijanden, en hadden met hun afgoderij bewezen vijanden te zijn van zichzelf, en toch wandelde hij in hun weg.
@@ -45,11 +46,13 @@ Wij hebben hier een algemene schets van de regering van Achaz, weinig en kwaad w
 ## 2 Koningen 16:5-9 
 
 Hier is: 
+
 1\. De aanslag van zijn verbonden naburen, de koningen van Syrië en Israël, tegen hem. Zij dachten zich meester te maken van Jeruzalem, en er iemand van hen tot koning aan te stellen, Jesaja 7:6. Daarin zijn zij niet geslaagd, maar de koning van Syrië heroverde Elath, een belangrijke haven aan de Rode Zee, die Amazia van de Syriërs had genomen, Hoofdstuk 14:22. Wat kunnen zij behouden, die hun Godsdienst hebben verloren? Laat hen verwachten van nu voortaan aan de verliezende hand te zijn.
 
 2\. Zijn plan om van hen bevrijd te worden. God hebbende verlaten, had hij moed noch kracht om zijn vijanden het hoofd te bieden, ook kon hij niet met vrijmoedigheid God om hulp vragen, maar hij maakte zijn hof aan de koning van Assyrië, en verkreeg van hem dat hij hem te hulp kwam. Zij, wier hart hen veroordeelt, zullen in de dag van de benauwdheid overal heengaan, maar niet tot God. Was het omdat er geen God in Israël was, dat hij tot de Assyriërs zond om hulp? Was de Rots van de eeuwen uit Zijn plaats bewogen, dat hij op deze gebroken rietstaf steunde? De zonde zelf was haar eigen straf. Weliswaar, hij heeft zijn doel bereikt: de koning van Assyrië hoorde naar hem, om zijn eigen belangen te dienen viel hij Damascus aan, waardoor hij een krachtige afleiding gaf aan de koning van Syrië, vers 9, en hem noodzaakte zijn aanslag tegen Achaz op te geven, voerde de Syriërs gevankelijk weg naar Kir, zoals Amos duidelijk voorzegd had, Hoofdstuk 1:5, maar alles in aanmerking genomen, heeft hij er toch een slechte koop mee gedaan, want om zijn doel te bereiken: 
 
 A. Heeft hij zichzelf geknecht, vers 7. Ik ben uw knecht en uw zoon, dat is: "Zo gij mij slechts deze dienst wilt bewijzen, zal ik u eren en gehoorzamen als een meester, of een vader." Indien hij zich aldus voor God had verootmoedigd en om Zijn gunst had gesmeekt, hij zou op gemakkelijker voorwaarden verlossing hebben verkregen, hij zou zijn geld hebben kunnen behouden en slechts afstand behoeven te doen van zijn zonden, maar als de verloren zoon het huis van zijn vader verlaat, wordt hij spoedig een slaaf van de hardste van de meesters, Lukas 15:15.
+
 B. Hij heeft zich verarmd, want hij nam het zilver en goud uit de schat van de tempel en van het rijk, en zond het aan de koning van Assyrië, vers 8. Kerk en staat moeten uitgezogen worden om deze zijn nieuwe beschermheer en voogd tevreden te stellen. Ik weet niet welk recht hij had om aldus over de publieke fondsen te beschikken, maar gewoonlijk zullen zij, die zich in verlegenheid en benauwdheid hebben gebracht door de ene zonde, er zich uit zien te redden door een andere, en zij, die zichzelf van God vervreemd hebben, zullen geen bezwaar maken om Zijn rechten te vervreemden. 
 
 ## 2 Koningen 16:10-16 
@@ -73,8 +76,11 @@ Schijnbaar verheft en verheerlijkt de Roomse kerk de sacramenten van Christus, m
 ## 2 Koningen 16:17-20 
 
 1\. Hier zien wij Achaz de tempel schenden, niet het gebouw, maar de meubelen ervan.
+
 a. Hij sneed de lijsten af van de stellingen, waarop de wasvaten gesteld waren, 1 Koningen 7:28, 29, en nam het gegoten bassin van de runderen af, vers 17. De priesters gebruikten haar voor wassingen, hij scheen dus een bijzondere wrok tegen hen te hebben. Het is een van de grootste nadelen, die men aan de Godsdienst kan toebrengen, als men de reiniging belet van de priesters, dienstknechten van de Heere.
+
 b. Hij nam het deksel van de sabbat weg, dat opgericht was, hetzij ter ere van de sabbat, of ten gerieve van de priesters, als zij op de sabbat in groter aantal dienst deden dan op andere dagen. Wat dit deksel ook geweest zij, met de wegneming er van scheen hij minachting voor de sabbat bedoeld te hebben, aldus de deur wijd open stellend voor alle goddeloosheid.
+
 c. De ingang van de koning, die ten gerieve van de koninklijke familie naar het huis des Heeren voerde, (misschien wel de opgang, die Salomo gemaakt had en die door de koningin van Scheba zozeer werd bewonderd, 1 Koningen 10:5) keerde hij naar een andere zijde, om te tonen dat hij niet voornemens was het huis des Heeren ooit weer te bezoeken. Dit deed hij om de koning van Assyrië genoegen te doen, die hem misschien een tegenbezoek had gebracht en iets aan te merken had op die ingang, als een ongerief en een ontsiering van zijn paleis. Als zij. die een betere toegang hebben tot het huis des Heeren, die, om hun naburen te believen, naar een andere zijde keren, dan gaan zij bergafwaarts naar hun verderf.
 
 2\. Achaz verliet het leven in het midden van zijn dagen, toen hij zes en dertig jaar oud was, vers 19, en liet zijn koninkrijk nu aan een beter man, Hizkia, zijn zoon, vers 20, die een even groot vriend van de tempel bleek te zijn, als zijn vader er een vijand van was. Misschien heeft hij die eigen zoon door het vuur doen gaan en hem daardoor aan Moloch gewijd maar God heeft door Zijn genade hem als een brandhout uit het vuur gerukt. 
