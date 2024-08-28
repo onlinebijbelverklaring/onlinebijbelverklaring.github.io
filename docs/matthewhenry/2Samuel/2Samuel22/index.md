@@ -66,8 +66,11 @@ b. In de verwachting, die hij heeft van nog verdere gunstbewijzen. Deze zijn in 
 ## 2 Samuël 22:1 
 
 Merk hier op:  
+
 1\. Dat het dikwijls het lot is geweest van Gods volk om vele vijanden te hebben en in dreigend gevaar te zijn in hun handen te vallen. David was een man naar Gods hart, maar niet naar der mensen hart, velen hebben hem gehaat en zijn verderf gezocht, inzonderheid wordt Saul genoemd, hetzij:
+
 a. Als onderscheiden van zijn vijanden onder de heidense volken, Saul haatte David, maar David heeft Saul niet gehaat, en daarom wilde hij hem niet onder zijn vijanden rekenen, of liever: 
+
 b. Als de voornaamsten van zijn vijanden, die kwaadwilliger en machtiger was dan al de anderen. Laat hen, die door God worden bemind, er zich niet over verwonderen zo de wereld hen haat.
 
 2\. Zij, die op God vertrouwen in de weg des plichts, zullen Hem een hulp vinden in benauwdheden en in de grootste gevaren. David deed dit, God heeft hem verlost uit de hand van Saul, daar neemt hij zeer bijzonder nota van, merkwaardige bewaringen moeten met bijzondere nadruk in onze dankzegging worden vermeld. Hij heeft hem ook verlost uit de hand van al zijn vijanden, van de ene na de andere, soms op die wijze, dan wederom op een andere wijze, en uit zijn eigen ervaring heeft David ons verzekerd: "Vele zijn de tegenspoeden des rechtvaardigen, maar uit alle die redt hem de Heere," Psalm 34:20. Eer wij in de hemel zijn, zullen wij nooit van al onze vijanden verlost worden, en voor dat hemels koninkrijk zal God al de Zijnen bewaren, 2 Timotheus 4:18.
@@ -86,24 +89,31 @@ II. Hoe hij juicht in zijn deel hebben in deze God en in de betrekking, waarin h
 Van Christus wordt gesproken als van de hoorn des heils in het huis van David Lukas 1:69. "Ben ik belast, en gereed neer te zinken? De Heere is mij een steunsel, vers 19, door wie ik gesteund, opgehouden word. Ben ik in het duister door de nacht overvallen in verlegenheid? Gij zijt mijn lamp, o Here, om mij de weg te wijzen, en zult mijn duisternis opklaren, vers 29. Indien wij in oprechtheid de Heere aannemen als onze God, dan zal Hij dit alles, en nog veel meer, voor ons zijn, alles wat wij nodig hebben of kunnen begeren.
 
 III. Welk gebruik hij maakt van zijn deel in God. Als Hij de mijne is:
+
 1\. Dan zal ik op Hem vertrouwen, vers 3 :dat is: "Ik zal mij aan Hem overgeven, en dan vertrouwen op Zijn macht, en wijsheid, en goedheid om mij veilig en wel te leiden." 
+
 2\. Hem zal ik aanroepen, vers 4, want Hij is te prijzen. Wat wij in God gevonden hebben, is waardig geprezen te worden, moet ons opwekken om tot Hem te bidden, en daarom loven wij Hem en geven Hem eer.
+
 3\. Ik zal Hem loven, vers 50, en dat wel in het openbaar, als hij onder de heidenen was, wilde hij noch vrezen, noch zich schamen om zijn verplichtingen te erkennen aan de God Israëls.
 
 IV. De volledige en ruime rekening, die hij houdt voor zichzelf, en aan anderen mededeelt, van de grote en goede dingen, die God voor hem gedaan heeft. Dat is de voornaamste inhoud van het lied. Hij geeft Gode de eer beide van zijn uitreddingen en van zijn voorspoed, beide de gevaren tonende, waaruit hij gered was, en de macht, waartoe hij was verhoogd.
 
 1\. Hij verheerlijkt de grote verlossingen, die God voor hem heeft gewrocht. God brengt Zijn kinderen soms in zeer grote moeilijkheden en gevaren, opdat Hij de eer zou hebben van hen te verlossen, en zij de vertroosting zouden hebben van door Hem verlost te worden. Hij erkent: van geweld hebt Gij mij verlost, vers 3, van mijn vijanden, vers 4, van mijn sterke vijand, bedoelende Saul, die, zo God hem niet had ondersteund, hem te machtig zou zijn geweest, vers 18. Gij hebt mij gegeven het schild uws heils, vers 36. Om die verlossing te verheerlijken, merkt hij op:
+
 a. Dat het gevaar zeer groot en dreigend was, waaruit hij verlost werd. Mannen zijn tegen hem opgestaan, vers 40, 49, die hem haatten, vers 41, een man des gewelds, vers 49 namelijk Saul, die boosaardig was in zijn bedoeling tegen hem en krachtig in zijn vervolgingen. Dit wordt uitgedrukt in overdrachtelijke bewoordingen, vers 5, 6. Aan alle zijden was hij omringd door de dood, bedreigd om overstelpt te worden, hij zag geen weg ter ontkoming. Met zo’n geweld sloegen de golven des doods tegen hem aan, zo vast hielden hem de koorden en strikken des doods dat hij zichzelf niet kon helpen, evenmin als een man, die in zijn graf is, zichzelf helpen kan. Beken Belials, dat is van de boze en zijn boze werktuigen, verschrikten hem, hij sidderde, om niet slechts de aarde, maar de dood en de hel tegen hem gewapend te zien.
 
 b. Dat zijn verlossing een gebedsverhoring was, vers 7. Hij heeft ons hier een goed voorbeeld nagelaten om, als wij in benauwdheid zijn met aandrang tot God te roepen, zoals kinderen die bang zijn tot hun ouders roepen, en het is ons een grote bemoediging om dit te doen, dat hij God bereid heeft gevonden om in Zijn paleis in de hemel, waar Hij voortdurend gediend en aangebeden wordt, zijn gebed te horen en te verhoren.
 
 c. Dat God op bijzondere en buitengewone wijze verschenen is voor hem en tegen zijn vijanden. de uitdrukkingen zijn ontleend aan het nederkomen van de Goddelijke majesteit op de berg Sinai, vers 8, 9 en verv. Wij bevinden niet dat God in Davids oorlogen voor hem gestreden heeft, hetzij met donder zoals in 2 Samuëls tijd, of met hagel zoals in de tijd van Jozua, of met de sterren in haar loop zoals in Debora’s tijd, waar die verheven metaforen worden gebruikt:
+
 (1). Om de heerlijkheid Gods te doen uitkomen, die geopenbaard werd in zijn uitredding, Zijn wijsheid en macht, Zijn goedheid en getrouwheid, Zijn gerechtigheid en heiligheid, Zijn soevereine heerschappij over alle schepselen en alle raadslagen van mensen, die verschenen ten gunste van David, waren zo duidelijk en klaar een ontdekking voor het oog des geloofs, als die geweest zouden zijn voor het lichamelijk oog.
+
 (2). Om Gods misnoegen te doen uitkomen tegen Zijn vijanden. God heeft zozeer zijn zaak omhelsd dat Hij zich als de vijand betoonde van al zijn vijanden. Zijn toorn wordt voorgesteld door rook, die opging uit Zijn neus, en door vuur uit Zijn mond, vers 9, door kolen des vuurs, die aangestoken werden, vers 13, en doorpijlen vers 15. Wie kent de sterkte en de verschrikking van Zijn toorn? c. Om de grote verwarring voor te stellen, waarin zijn vijanden gebracht werden en de schrik, die zich van hen meester maakte, alsof de aarde had gebeefd en de gronden van de wereld ontdekt werden, vers 8, 16. Wie kan bestaan voor Gods toorn? d. Om te tonen hoe bereid God was om hem te helpen, Hij voer op een cherub en vloog, vers 11. God haastte zich tot zijn hulp, en kwam met tijdige bijstand tot hem. Hij scheen verre te zijn met Zijn hulp, maar Hij was "een God, die zich verborgen houdt," Jesaja 45:15, want Hij zette duisternis rondom zich tot tenten, vers 12, tot verschrikking van Zijn vijanden en ter bescherming van Zijn volk.
 
 d. Dat God in deze verlossingen Zijn bijzondere gunst en goedertierenheid jegens hem heeft betoond, vers 20. Hij voerde mij uit in de ruimte, en redde mij uit, want Hij had lust aan mij. De verlossing kwam niet langs de weg van de gewone voorzienigheid, maar uit verbondsliefde, hij werd hierin behandeld als een gunsteling, dit bemerkte hij aan de mededelingen van Goddelijke genade en vertroosting aan zijn ziel met deze verlossingen, en de gemeenschap, die hij er in had met God. Hierin was hij een type van Christus, die God ondersteunde, omdat "Zijn ziel een welbehagen in Hem had," Jesaja 42:1, 2.
 
 2\. Hij verheerlijkt de grote voorspoed, waarmee God hem had gekroond. Hij had hem niet slechts bewaard, maar voorspoedig gemaakt. Hij was gezegend:
+
 a. Met vrijheid en verruiming. Hij was uitgevoerd in de ruimte, vers 20, waar hij kon groeien en bloeien, en zijn voetstap was ruim gemaakt onder hem, vers 37, zodat hij ruimte had om zich te bewegen, hij was niet langer in de engte en beperkt.
 
 b. Met krijgskundige bekwaamheid, en kracht, en vlugheid, hoewel hij opgevoed was voor de herdersstaf, was hij toch wèl onderwezen in de krijgskunde, en geschikt voor de vermoeienissen en gevaren van de oorlog. Daar God hem geroepen had om Zijn krijg te voeren, maakte Hij hem bekwaam voor de dienst, maakte Hij hem zeer vernuftig: Hij leert mijn handen ten strijde, vers 35, en dit vernuft was zo goed als kracht, want er volgt: zodat een stalen boog met mijn armen verbroken is, niet zozeer door kracht, als wel door behendigheid. Hij was ook zeer krachtig en kloekmoedig. Gij omgorddet mij met kracht ten strijde vers 40. Hij geeft God de eer voor al zijn kloekmoedigheid en bekwaamheid voor de dienst. Hij was ook zeer vaardig, Hij maakt mijn voeten als van de hinden, vers 34, dat van groot nut en voordeel is, zowel voor de aanval als voor het terugwijken.
@@ -121,9 +131,13 @@ V. Zijn troostrijke gedachten omtrent zijn eigen oprechtheid, die God in deze wo
 VI. De troostrijke vooruitzichten, die hij heeft op Gods verdere gunst. Gelijk hij terug heeft gezien, zo ziet hij ook voorwaarts, dat is, met genoegen en hij verzekert zich van de goedertierenheid, die God weggelegd heeft voor al Zijn heiligen, voor hemzelf en voor zijn zaad.
 
 1\. Voor alle Godvruchtigen, vers 26-28. Gelijk God met hem gedaan heeft naar zijn oprechtheid, zo zal Hij ook met anderen doen. Hij neemt hier aanleiding om te wijzen op de vastgestelde regelen van Gods handelwijze met de kinderen van de mensen. 
+
 A. Dat Hij hun, die oprecht van hart zijn, goed zal doen. Naar wij voor God bevonden worden, zal Hij voor ons worden bevonden:
+
 a. Gods goedertierenheid en genade zal de blijdschap wezen van hen, die barmhartig en genadig zijn. Zelfs de barmhartigen hebben barmhartigheid van node, en zij zullen haar verkrijgen.
+
 b. Gods oprechtheid, Zijn gerechtigheid en getrouwheid, zullen de blijdschap wezen van hen, die oprecht, rechtvaardig en getrouw jegens God en de mensen zijn.
+
 c. Gods reinheid en heiligheid zullen de blijdschap wezen van hen, die rein en heilig zijn, en daarom doen zij dankzegging er voor bij de herinnering er aan. En indien sommigen van deze Godvruchtigen bedrukt zijn, dan zal Hij hen verlossen, hetzij uit hun beproeving, of wel er door, en er na. Van de andere kant: 
 
 B. Hen, "die zich neigen tot hun kromme wegen, zal Hij weg doen gaan met de werkers van de ongerechtigheid", zoals hij zegt in een anderen Psalm. Met de verkeerden worstelt Hij, en zij, met wie God worstelt, zullen voorzeker overwonnen worden. Wee dien, die met zijn Formeerder twist! Hij zal in tegenheid wandelen met hen, die in tegenheid wandelen met Hem, en misnoegd op hen zijn. Wat de hoogmoedigen betreft, Zijn ogen zijn op hen, hen tekenende, als het ware, om naar bereden gebracht te worden, want Hij wederstaat de hovaardigen.
