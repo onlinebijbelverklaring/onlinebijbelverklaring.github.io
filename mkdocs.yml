@@ -76,7 +76,7 @@ extra:
     property: G-VQEZZ3SCH3
   generator: false
   social:
-    - icon: fontawesome/mug-hot
+    - icon: fontawesome/solid/mug-hot
       link: https://ko-fi.com/onlinebijbelverklaringnl
 
 # Markdown Extensions
