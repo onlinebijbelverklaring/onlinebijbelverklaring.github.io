@@ -76,7 +76,7 @@ extra:
     property: G-VQEZZ3SCH3
   generator: false
   social:
-    - icon: fontawesome/brands/mastodon 
+    - icon: material/coffee
       link: https://ko-fi.com/onlinebijbelverklaringnl
 
 # Markdown Extensions
