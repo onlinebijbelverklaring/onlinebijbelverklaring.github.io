@@ -81,6 +81,7 @@ Eindelijk. Job merkt op (en misschien merkt hij het op als een deel van de tegen
 
 ## Job 24:18-25 
 Aan het slot zijn rede:  
+
 I. Geeft Job nog nadere voorbeelden van de goddeloosheid van deze wrede, bloeddorstige mannen.
 
 1\. Sommigen van hen zijn zeerovers. Hierop passen vele geleerde uitleggers deze moeilijke uitdrukkingen toe van vers 18. Hij is snel op de wateren. Kapers kiezen de snelst zeilende schepen, daarin kruisen zij van het ene kanaal naar het andere, om vaartuigen prijs te maken, en hierdoor verkrijgen zij zo grote rijkdom, dat hun deel vervloekt is op aarde, en zij zich niet naar de weg van de wijngaarden wenden, dat is, gelijk bisschop Patrick het verklaart zij verachten het bedrijf van hen, die de grond bewerken en wijngaarden planten, als armzalig en onvoordelig. Maar anderen houden het voor een nog nadere beschrijving van het gedrag dier zondaren, die bevreesd zijn voor het licht, als zij ontdekt worden, maken zij zich zo spoedig als zij kunnen uit de voeten, en zien heen, niet naar de wijngaarden, uit vrees van ontdekt te worden, maar naar het een of ander gevloekt doel, een eenzame verlaten plaats, waar niemand naar ziet.
@@ -111,4 +112,5 @@ Job erkent dat goddeloze mensen ten laatste rampzalig zullen zijn aan de andere 
 Eindelijk. Ten besluite tart hij allen, die tegenwoordig zijn, om wat hij gezegd heeft te wederleggen, zo zij het konden, vers 25. Indien het nu zo niet is als ik het gezegd heb en indien dan daar niet uit volgt, dat ik onrechtvaardig veroordeeld en geblameerd ben, zo laat hen, die het kunnen, bewijzen dat mijne rede of:
 
 1\. Op zichzelve onwaar is, en dat ik dus een leugenaar ben, of:  
+
 2\. Dat mijn rede niet ter zake is, en dus ook beuzelachtig is en nietswaardig. Datgene is inderdaad beuzelachtig en nietswaardig, waar geen waarheid in is, hoe kan er iets goeds zijn in hetgeen waar geen waarheid in is? Maar zij, die woorden spreken van waarheid en van een gezond verstand, behoeven niet te vrezen dat hetgeen zij gezegd hebben onderzocht en getoetst zal worden, maar zullen zich, evenals Job hier, goedsmoeds aan ieder onderzoek onderwerpen.

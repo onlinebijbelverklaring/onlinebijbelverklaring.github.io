@@ -30,6 +30,7 @@ Om Job van Gods macht en schrikkelijke majesteit te overtuigen, worden hier vers
 
 ## Job 41:1-25 
 In de vorige verzen had God aan Job getoond hoe onmachtig hij was om met de leviathan te handelen, hier stelt Hij Zijn eigen macht over dit machtige, massieve schepsel in het licht. Hier worden:
+
 I. Gods vrijmachtige heerschappij en onafhankelijkheid in het licht gesteld, vers 11.
 
 1\. Dat Hij aan geen van Zijn schepselen iets verplicht of verschuldigd is. Indien er zijn, die voorgeven dat Hij hun iets verschuldigd is, laat hen dan die schuld bewijzen en zij zal hun ten volle uitbetaald worden, en niet gedeeltelijk als door een schikking. " Wie is Mij voorgekomen?" dat is: "Wie heeft Mij enigerlei verplichting opgelegd door enigerlei aan Mij bewezen dienst? Wie kan zeggen Mij voor te wezen? Indien er zodanigen waren, Ik zou niet lang bij hen achterblijven, Ik zou hun spoedig betalen." De apostel haalt dit aan om alle vlees voor Gods aangezicht te doen zwijgen. "Wie heeft Hem eerst gegeven en het zal Hem wedervergolden worden," Romeinen 11:35. Gelijk God het kwaad niet over ons doet komen dat wij verdiend hebben, zo schenkt Hij ons de gunsten, die wij niet verdiend hebben.
