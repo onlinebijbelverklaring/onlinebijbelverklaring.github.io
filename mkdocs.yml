@@ -2168,8 +2168,8 @@ nav:
 #        - Hooglied 6: karlaugustdachsel/Hooglied/Hooglied6/index.md
 #        - Hooglied 7: karlaugustdachsel/Hooglied/Hooglied7/index.md
 #        - Hooglied 8: karlaugustdachsel/Hooglied/Hooglied8/index.md
-#      -   Jesaja:
-  #      -   Jesaja: karlaugustdachsel/Jesaja/index.md
+      - Jesaja:
+        - Jesaja: karlaugustdachsel/Jesaja/index.md
   #      -   Jesaja 1: karlaugustdachsel/Jesaja/Jesaja1/index.md
   #      -   Jesaja 2: karlaugustdachsel/Jesaja/Jesaja2/index.md
   #      -   Jesaja 3: karlaugustdachsel/Jesaja/Jesaja3/index.md
@@ -2195,7 +2195,7 @@ nav:
   #      -   Jesaja 23: karlaugustdachsel/Jesaja/Jesaja23/index.md
   #      -   Jesaja 24: karlaugustdachsel/Jesaja/Jesaja24/index.md
   #      -   Jesaja 25: karlaugustdachsel/Jesaja/Jesaja25/index.md
-  #      -   Jesaja 26: karlaugustdachsel/Jesaja/Jesaja26/index.md
+          - Jesaja 26: karlaugustdachsel/Jesaja/Jesaja26/index.md
   #      -   Jesaja 27: karlaugustdachsel/Jesaja/Jesaja27/index.md
   #      -   Jesaja 28: karlaugustdachsel/Jesaja/Jesaja28/index.md
   #      -   Jesaja 29: karlaugustdachsel/Jesaja/Jesaja29/index.md
