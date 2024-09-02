@@ -1,0 +1,234 @@
+---HOOFDSTUK---32
+
+JAKOB’S VREES, GEBED EN STRIJD.
+
+1. Jakob toog ook zijns weegs, van het gebergte Gilead verder heen, en stond nu dicht aan de grenzen van het heilige land. Nauwelijks aan de vervolgingen van zijn harde schoonvader door Gods tussenkomst ontkomen, gaat hij nu een vijand tegemoet, die nog meer te vrezen is, de nog niet verzoende Ezau, Jakob verbergt het gevaar voor zichzelf niet, maar dezelfde God, die hem eens bij zijn vlucht uit Kanaän door een gezicht van Engelen gesterkt had (hoofdstuk. 28:10 vv.), liet hem ook nu een dergelijk gezicht waarnemen; doch nu niet in een droom, maar in wakende toestand; en de Engelen Gods ontmoetten hem; 1) evenals de jongeling van Eliza in gelijke toestand (2 Koningen 6:17), werden hem de ogen geopend, en hij zag boven zijn hoofd twee legers van ten strijd toegeruste hemelingen; of het een vóór en het andere achter hem, of het ene ter rechter en het andere ter linkerzijde.
+
+1) Uit het een gevaar gered, dreigt het andere hem weer. Maar God is geen ledig toeschouwer van de toestanden van de zijnen. Daarom doet Hij hier Jakob twee legers Engelen ontmoeten. Eén ter rechter- en één ter linkerzijde, om hem moed en vertrouwen in te boezemen, om hem te zeggen, dat dezelfde God, die hem gered heeft uit de hand van Laban, hem ook zal redden uit de hand van zijn broeder Ezau..
+
+2. En Jakob zei, met dat hij hen zag, en erkende, dat God hem wilde tonen, wie hem ter zijde zouden staan (Psalm. 34:8): Dit is een leger van God1) en hij noemde de naam van deze plaats, welke later tot een stad van gelijke naam geworden is (Jozua 13:26-30; 21:38 vv.; 2 Samuel. 17:24-27; 1 Koningen 4:14 Mahanaïm (twee legers). 2)
+
+1) Het  ene leger zag op de geschonken verlossing uit Labans hand, het tweede op de te schenken verlossing uit Ezau’s macht. Het is tevens een blijk van goedkeuring van Gods zijde, dat hij op de rechte weg is..
+
+2) Deze beide verzen behoren meer tot het vorige hoofdstuk. De verdeling in hoofdstukken is gemaakt door de Kardinaal Hugo van St. Caro (gestorven 1262) doch is niet in alle delen juist; meermalen ware het beter geweest, indien het hoofdstuk vroeger eindigde, op andere plaatsen weer, wanneer enkele verzen waren bijgevoegd.  De verdeling in verzen is in het Oude Testament van de Joodse Rabbijnen, in het Nieuwe Testament van Rob Stefanus (1551)
+
+I. Vs.3-12. Van Mahanaïm zendt Jakob boden naar het land Seïr, om Ezau op beleefde wijze zijn terugkomst te melden. Zij brengen geen antwoord van hem, maar melden, dat hij met 400 man nadert; Jakob bereidt zich op het ergste voor, en neemt zijn toevlucht tot het gebed.
+
+3. En Jakob, door de verschijning te Mahanaïm wel verzekerd van de goddelijke bijstand, maar ook aan de andere zijde daaruit afleidende, dat hem een zware strijd wachtte, zond boden uit voor zijn aangezicht tot Ezau, zijn broeder, naar het land Seïr, 1) de landstreek van Edom.
+
+1) Naar dit land had zich Ezau gedurende Jakob’s afwezigheid begeven, om daar, geheel onafhankelijk van het vaderhuis, op de woeste bergen te jagen en met hulp van een leger, dat hij uit zijn knechten, uit de bloedverwanten van zijn vrouwen en anderen gevormd had, de oorspronkelijke  bewoners  (Deuteronomium.  2:12,22)  te  bevechten.  Ezau  had  zich  in  dat gebied van het land begeven, dat hij, volgens de voorspelling (hoofdstuk. 27:39 vv.), hierna werkelijk in bezit nam (hoofdstuk. 36:6 vv.), en dat, naar zijn tweede naam, het veld van Edom werd genoemd..
+
+Toen Jakob van huis trok,  woonde Ezau  daar  nog  niet.  Hoe of hij het  dan  te weten is gekomen? Wij weten, dat Deborah, de voedster van Rebekka, bij hem in Haran kwam. Van deze zal hij het gehoord hebben, waar Ezau zich met zijn gezin had gevestigd..
+
+4. En hij gebood hun, zeggende; Toont aanstonds in uw groet, dat ik hem voor het hoofd van mijn familie, voor mijn heer erken; zó zult gij zeggen tot mijn heer, 1)tot Ezau: Zó zegt Jakob, uw knecht: Ik heb als vreemdeling gewoond bij Laban, en heb er tot nu toe vertoefd.
+
+1) Mozes verhaalt hier, hoe Jakob alles met angstige nauwkeurigheid gedaan heeft, om zijn broeder te verzoenen. Want deze smeekbede was voor hem niet minder dan een zware en harde  marteling.  Maar  deze  vernedering,  waarmee  hij  afstand  doet  van  de  heerschappij, waarvoor hij tot  hiertoe zijn leven in de waagschaal gesteld heeft, schijnt iets ongerijmds. Want indien Ezau werkelijk de eerstgeborene is, wat heeft Jakob dan wel gedaan? Waartoe had het dan gediend, dat hij zich zoveel afgunst op de hals had gehaald, zoveel vernedering had ondergaan, en eindelijk een ballingschap van twintig jaar had verduurd, indien hij nu ten langen leste zich toch aan zijn broeder onderwerpt. Ik antwoord, waar hij al een tijdelijke heerschappij toestaat, geeft hij daarom niets prijs van zijn recht op de verborgen zegen. Hij weet, dat de vrucht van de goddelijke belofte tot nog toe onvervuld is. Derhalve tevreden met de hoop op de toekomstige erfenis, aarzelt hij niet, voor het tegenwoordige, zijn broeder de eer  te  geven  en  zich  als  zijn  knecht  aan  te  bieden.  In  deze  woorden  is  dan  ook  niets huichelachtigs, daar hij bereid is zijn broeder te dienen, indien hij maar niet het recht op het toekomende, wat nog verborgen was, verloor..
+
+Jakob   begint   nu   te   voelen,   dat   hij  de   zegen   van   het   eerstgeboorterecht   zich   op wederrechtelijke wijze heeft toegeëigend. God begint in zijn hart de overtuiging te werken, dat hij de zegen alleen als verbeurde genade zal en mag genieten..
+
+5. En ik heb ossen en ezels, schapen en knechten en maagden verworven; ik keer dus niet terug, om het vaderlijk erfgoed met u te delen, maar uit verlangen naar mijn betrekkingen; en ik heb nu de boden, die gij voor u ziet, gezonden, om mijn heer, wiens aangezicht ik verlang te zien, aan te zeggen, dat ik wedergekeerd ben, opdat ik genade zal vinden in uw ogen.
+
+Jakob somt zijn rijkdommen niet op, om daarmee te pralen, maar om het hart van zijn broeder te vertederen. Jakob getuigt daarmee, dat hij niet komt, om het vermogen van de vader zich toe te eigenen, of dat hij rijk wil zijn, zo het hem op het verlies van zijn broeder komt te staan. Alsof hij zeggen wil: behoud voor u de stoffelijke erfenis. Op uw recht daarop wil ik niets afdingen; sta mij slechts toe te leven. Hierdoor worden wij vermaand, hoe het onze wens moet
+
+zijn, met de ongelovigen in vrede te leven. De Heere verhindert ons wel niet, om ons recht te beschermen, in zoverre de tegenstanders het  toelaten, maar ook, dat  wij liever ons recht moeten prijsgeven, dan dat door onze schuld een strijd ontsta..
+
+6. En de boden kwamen na enig tijd weer tot Jakob zeggende: Wij zijn gekomen tot uw broeder, tot Ezau, en hebben alles gedaan, wat gij ons gezegd hebt maar hij heeft ons een antwoord  gegeven,  en  nu,  bereid  u  op  een  vijandige  aanval voor,  want  ook  trekt  hij u tegemoet, en vierhonderd mannen met hem.
+
+Aangaande de bedoeling, waarmee Ezau Jakob tegemoet kwam, lopen de gevoelens uiteen. Calvijn zegt, dat hij hem uit welwillendheid, om zijn goede gezindheid daarmee te kennen te geven,  tegemoet  kwam.  Anderen  zijn  van  oordeel,  dat  het  gezelschap van 400 man een vijandelijke bedoeling in zich sluit. De woorden zelf laten het in het midden, kunnen zowel ten goede als ten kwade worden uitgelegd. Wat Jakob’s gedachten zijn, is niet twijfelachtig. Hij is er van overtuigd, dat de toorn van zijn broeder niet is geweken, en dat deze met het zwaard zal terug eisen, wat Jakob hem, zoals hij meent, op listige wijze heeft ontnomen..
+
+7. Toen vreesde Jakob zeer en hij was bang, 1) daar Ezau’s bedreiging (hoofdstuk. 27:41) hem thans nog meer voor de geest kwam; toch werd hij niet moedeloos, en hij verdeelde het volk, 2) dat met hem was, knechten en maagden, vrouwen en kinderen, en de schapen en de runderen en de kamelen, in twee legers; evenals hij de engelen Gods in twee legers gezien had,  dat  hij nu  voor  een vingerwijzing des Heren aanmerkte,  hoe hij in deze gevaarlijke toestand handelen moest.
+
+1) Hieruit blijkt, dat Jakob de boodschap ten kwade opnam. Hij denkt niet anders, of Ezau is nog altijd de vertoornde broeder, die, hoewel twintig jaar zijn verlopen, nog niet het woord heeft vergeten: Ik zal mijn broeder doden. En God laat hem voor het ogenblik in die toestand. Neemt niet terstond door woord of gezicht of door beiden de vrees weg, maar laat hem voor een ogenblik vrezen, opdat bij de aartsvader het gebed zou worden geboren en hij het alleen op zijn Verbondsgod zou werpen..
+
+Jakob heeft reden voor zijn vrees. Rebekka heeft hem niet laten terugroepen. Ezau heeft geen teken van verzoening gegeven. De boden hebben geen wedergroet gebracht. Ezau trekt hem tegemoet met 400 man. De belofte te Bethel had betrekking op de heen- en terugreis. Het gezicht  te  Mahanaïm kon  slechts  een  herinnering  zijn  aan  zijn  redding  uit  Labans  hand, zonder een vernieuwde belofte te wezen. Wat echter de hoofdzaak was, zijn geweten sprak luid; hij had zijn schuld nog niet voor God beleden; hij was met de Heere nog niet verzoend. Zijn vrees is te zien in de verdeling van zijn leger. Deze maatregel gaat zijn gebed vooraf, en schijnt na zijn gebed en zijn strijd niet geheel doorgevoerd te zijn. De zonden van de jeugd worden nog na jaren gezocht..
+
+2) Wel vreesde Jakob, maar de vrees had hem nog niet zo bevangen, dat hij geen orde op zaken kon stellen. Echter wordt hier duidelijk, dat hij het nog op dit ogenblik van eigen kracht en eigen inzichten verwacht; dat het geloof in de belofte, welke de Heere hem gegeven had, niet helder was, de geloofslamp niet helder brandde. Bovendien merken wij hier op, dat het
+
+gezicht van de Engelen Jakob nog niet zó van de hulp en bijstand van de Almachtige had overtuigd, als noodzakelijk was, om hem zonder vrees te doen zijn. Waaraan Jakob behoefte had, was een eigen woord des Heren zelf..
+
+8. Want hij zei: Indien Ezau op het ene leger komt, en slaat het, zo zal het achterste, het overgebleven leger ontkomen, 1) waarbij ik mij zelf met vrouwen en kinderen voegen zal.
+
+1) Nog altijd wordt deze tactiek gevolgd bij de karavanen, indien men overlast verwacht van wilde horden.
+
+9. Voorts zei Jakob, daar alle maatregelen van voorzichtigheid hem niet konden gerust stellen, en hem niets anders overbleef dan God, die volkomen redden kan,(Spreuken 3.5,6 en hij bad: O God van mijn vader Abraham en God van mijn vader Izaak, o HEERE! 1) die tot mij gezegd hebt (hoofdstuk. 31:3,13): Keer weer tot uw land, en tot uw familie, en Ik zal wèl bij u doen!
+
+1) In het gebed mag het "Jehova" niet ontbreken.
+
+Het gevaar is te groot, dan dat het geloof aan een algemene voorzienigheid Gods hem zou kunnen steunen..
+
+Evenmin kan de overtuiging, dat Christus gestorven is voor de zonden van de hele wereld u rust geven in de dood; gij hebt nodig te weten, dat Hij stierf voor u..
+
+Nadat Jakob op zijn zaken, zoals het ogenblik het eiste, orde had gesteld, begeeft hij zich in het gebed. Dit gebed is een bewijs, dat de heilige man niet zó door vrees is terneergeslagen, of het geloof treedt weer als overwinnaar op. Want hij beveelt zich en de zijnen, volstrekt niet twijfelende, aan God. Zich verlatende, zowel op de belofte van God, als gesteund door de ontvangen weldaden, dringt hij zijn zorgen en bezwaren in zijn boezem terug..
+
+Jakob roept God aan als God van Abraham en God van zijn vader Izaak om de Heere als het ware te herinneren, dat hij als kleinzoon van Abraham en als zoon van Izaak aan het Verbond deelachtig was, hetwelk God met deze patriarchen had gesloten; en waar hij nu de Heere herinnert aan het woord tot hem gesproken, daar maakt hij de belofte of het bevel tot een pleitgrond voor zijn zuchten en roepen.
+
+10. Ik ben geringer dan al deze weldadigheden, en dan al deze trouw, die Gij aan Uw knecht gedaan hebt; 1) want ik ben met mijn staf 2) twintig jaar geleden, over deze Jordaan gegaan, en nu ik weer aan deze plaats sta, ben ik tot twee legers geworden.
+
+1) Twee woorden gebruikt hij. Weldadigheden en trouw, opdat hij erop zou wijzen, dat God enkel door Zijn eigen goedheid wordt gedwongen, om ons te zegenen, en om hiermee zijn vertrouwen te tonen. Deze verbinding van weldadigheid en trouw ontmoet men wijd en zijn in de Schrift, opdat wij zouden weten, dat alle goeds ons uit de overvloeiende bron van Gods
+
+gunst toevloeit, en dat wij deze alleen deelachtig worden, indien wij Zijn beloften door het geloof omhelzen..
+
+Jakob erkent hiermee, dat hij van God, de *Heere, grotere weldaden heeft ontvangen, dan hij ooit heeft durven hopen, dan hij zich heeft waardig gemaakt bovenal..
+
+2)Opmerkelijk is de tegenstelling tussen "staf" en "twee heren." Met het eerste woord geeft hij zijn vroegere armoede aan, met het tweede zijn tegenwoordige rijkdom..
+
+11.  Ruk  mij  toch  uit  mijn  broeders  hand,  uit  Ezau’s  hand;  1)  want  anders  zal  die onverzoenlijke (Psalm. 140:5) mij alles ontrukken en misschien mijn vrouwen en kinderen en mijzelf doden. Red mij; want ik vrees hem, dat hij niet misschien kome, en mij sla, de moeder met de zonen.2)
+
+1)Herinnering aan de weldadigheid en trouw hem bewezen, heeft hij vooraf laten gaan, om de Heere erop te wijzen, dat al die weldadigheden tevergeefs zijn geweest, indien de Heere hem niet met Zijn gunst blijft omringen..
+
+2)  "De  moeder  met  de  zonen."  Een  echt  oosterse  uitdrukking,  om  daarmee  geheel  de bezitting, alles wat men bezit, aan te duiden. Jakob wil hiermee zeggen, dat mij niets, niets over blijft..
+
+12. Gij hebt immers gezegd (hoofdstuk. 28:13,14): Ik zal gewis bij u weldoen en Ik zal uw zaad stellen als het zand van de zee, dat vanwege de menigte niet geteld kan worden; 1) daarom kunt Gij onmogelijk mij en de mijnen zo laten omkomen!
+
+1) Dit zijn drie eigenschappen van een goed gebed, die maken, dat het God zeer aangenaam en voor Hem een welriekende reuk is, en zulk een gebed moet verhoord worden. De eerste eigenschap is, dat gij de belofte Gods aangrijpt; de tweede, dat gij in uw angst gedood wordt; de derde; dat gij God dankt en erkent, hoe gij niet één weldaad waardig zijt; maar bidt en hoopt, dat gij alleen uit genade en barmhartigheid moogt geholpen worden..
+
+Als pleitgronden van het gebed, die bij de oprechte en biddend gemaakte ziel altijd in het voorwerp van het gebed, in God zelf en dus buiten de bidder, moeten liggen noemt Jakob er mede drie zaken, die hij van God ontvangen heeft: het bevel, de weldaden en de belofte Gods. Immers vermeld hij het ontvangen bevel des Heren, zich in vs.9 beroepende op het eigen woord Gods, die tot hem gezegd heeft: keer weer tot uw land en tot uw familie (Genesis 31:3). Hij stelt dit eigen woord Gods de Heere voor, als de reden, waarom hij op deze weg is..
+
+II. Vs.13-32. Nadat Jakob aanzienlijke geschenken voor zijn broeder heeft afgezonderd, en nog in die nacht  al zijn have en zijn betrekkingen over de Jabbok gevoerd heeft, blijft hij alleen aan de tegenovergestelde oever, en heeft daar de wondervolle strijd met de Heere, waaruit hij als overwinnaar, maar met een verwrongen heup, wederkeert.
+
+13. En hij vernachtte aldaar diezelfde nacht; hij bracht alles in gereedheid, om op diezelfde plaats, waar hij gebeden had, de nacht door te brengen; en hij nam van hetgeen, dat hem in zijn hand 1) kwam, dat hij het eerste ontmoette, een geschenk 2) voor Ezau, zijn broeder.
+
+1) "Dat hem in zijn hand kwam". Jakob neemt dus wat hem voor de hand komt. Hij zoekt niet uit, noch behoudt het beste voor zich. Waar hij zelf zich klein en gering gevoelt bij en onder de vele weldaden des Heren, daar kan hij zelf ook niet karig zijn, waar hij zijn broeder iets van het zijn wil geven..
+
+2) Dat Jakob zich beijvert, om zijn broeder te behagen, deed hij niet uit kleinmoedigheid, alsof hij eraan twijfelde, dat hij onder de bescherming Gods veilig was. Dit is wel onder de mensen een al te algemene zonde, dat zij, nadat zij tot God hebben gebeden, zich nog heen en weer  laten  slingeren  en  voor  zich  ijdele  hulpmiddelen  verzinnen,  daar  dit  toch  de  eerste vrucht van het gebed moet zijn, dat men in stilheid en rust het van de Heere verwacht. Maar het plan kwam bij de heilige man uit een andere beweegreden voort, dan uit angst en beving, alsof hij niet tevreden was met de enige hulp Gods: Want, ofschoon hij volkomen overtuigd was, dat dit ene voor hem voldoende was, dat hij God tot zijn bescherming had, liet hij echter niet na, wat in de weg van de middelen in zijn macht was, de uitkomst in de hand Gods overgevende. Hoewel wij toch in het gebed onze zorgen op de Heere mogen wentelen, zodat wij bedaard en rustig van gemoed mogen zijn, mag toch deze zekerheid ons niet werkeloos maken..
+
+14. Tweehonderd geiten, en gelijk men gewoonlijk voor elke tien vrouwelijke één mannelijke rekende: twintig bokken, tweehonderd ooien (schapen), en twintig rammen.
+
+15.  Dertig  zogende kamelinnen 1)  met  hun veulens,  veertig  koeien en tien varren,  jonge stieren meer dan één jaar oud, twintig ezelinnen en tien jonge ezels, tezamen 580 stuks, als een schatting voor Ezau van zijn gehele bezitting, om zich daardoor zijn onderdaan te betonen (vs.3-5).
+
+1) Jakob zou zich straks vorstelijk met God gedragen; hier toont hij, dat hij in zijn geschenken vorstelijk wil en kan handelen..
+
+16. En hij gaf die in de hand van zijn knechten, elke kudde bijzonder; hij vormde uit de vijf verschillende soorten van dieren, aan welke hij elk een eigen herder gaf, even zoveel kleinere kudden, en hij zei tot zijn knechten: Gaat gijlieden door, voor mijn aangezicht en stelt ruimte tussen kudde en tussen kudde. 1)
+
+1) Zó moet de grootte van het geschenk Ezau des te meer in het oog vallen; ook was hem daardoor meer tijd gegeven, om zijn toornige gedachten langzamerhand te laten varen..
+
+17. En hij gebood de eerste, zeggende: Wanneer u Ezau, mijn broeder, 1) ontmoeten zal en u vragen, zeggende: Van wie zijt gij? en waarheen gaat gij? en wiens (voor wie) zijn deze voor uw aangezicht?
+
+1)"Ezau mijn broeder." Jakob heeft zich niet alleen voor God vernederd maar erkent hiermee ook voor de mensen, dat Ezau zijn meerdere is. Welk een nederige gestalte vertoont hij hier. Ezau is zijn broeder. Hij wil Ezau’s knecht zijn.
+
+18. Zo zult gij zeggen: Dat is een geschenk a) van uw knecht Jakob, gezonden tot mijn heer, tot Ezau; en zie hij zelf is ook achter ons.
+
+a) 1 Samuel. 25:18,19
+
+19. En hij gebood ook de tweede, ook de derde, ook allen, die de kudden nagingen, zeggende: Naar ditzelfde woord zult gij spreken tot Ezau, als gij hem vinden zult.
+
+20. En gij zult vooral dit punt niet vergeten, maar ook zeggen: Zie, uw knecht Jakob is achter ons. Hij vlucht niet voor u, maar volgt ons na; hij gelooft van u het goede, en hoopt genade en vrede bij u te vinden! want hij zei: Ik zal zijn aangezicht verzoenen met dit geschenk, dat voor mijn  aangezicht  gaat,  en  daarna  zal  ik  zijn  aangezicht  zien;  misschien  1)  zal  hij  mijn aangezicht aannemen. 2)
+
+1) Uit dit "misschien" treedt aan het licht, dat het nog niet rustig is van binnen. Hij heeft gebeden. Hij heeft de nodige schikkingen gemaakt. Hij is bereid de uitkomst aan God over te laten, maar er zijn nog twijfels, het is nog een dobberen tussen hopen en vrezen. Dit kan niet anders. Jakob had leren pleiten op de belofte, op het bevel, maar één ding ontbreekt hem nog, en dat ene was het bewustzijn, dat God hem zijn zonden vergeven had. Eén ding was nog niet geschied. Wel een belijden, dat hij geringer was, dan Gods weldadigheid en trouw, maar nog niet een belijden, dat hij waardig was, dat God hem liet  omkomen door Ezau’s hand. De Heere zelf zou hem straks die belijdenis op de lippen leggen..
+
+2) Als een Christen gebeden heeft, mag hij daarop niet zorgeloos worden, maar moet hij verder nadenken, hoe hij zijn zaak zal aanvatten.
+
+Er is geen beter middel, om het hart van de vijanden te winnen dan weldoen.
+
+21. Alzo ging dat geschenk heen voor zijn aangezicht; doch hij zelf trok niet mee de Jabbok over, maar overnachtte diezelfde nacht in het leger.
+
+22. En, daar hij te zeer bewogen was, dan dat de slaap in zijn ogen kon komen, stond hij op in diezelfde  nacht  en  hij  nam  zijn  twee  vrouwen  en  zijn  twee  dienstmaagden,  en  zijn  elf kinderen,  en  hij  toog  over  het  veer  van  de  Jabbok,  1)  over  de  voor  hem  liggende doorwaadbare plaats.
+
+1) De rivier, thans Wady-Serka of "blauwe rivier" genoemd, is een nevenrivier van de Jordaan en stort zich in deze midden tussen het meer Gennesaret en de Dode zee. Vroeger was deze rivier de grensscheiding tussen Ammonieten en Amorieten, later tussen de stam van Gad en de eerstgenoemden..
+
+"Elf kinderen." Niet omdat dit het juiste getal was, want hij had minstens één dochter nog bovendien, maar omdat de zonen alleen een gewichtige plaats beslaan in het Koninkrijk Gods. Omdat die elf zonen; waarbij straks nog Benjamin komt, de stamvaders zijn geworden van het volk van de belofte..
+
+23. En hij nam deze, en deed hen over die beek trekken; en hij deed overtrekken hetgeen hij had, zijn familie en al zijn have.
+
+24. Doch Jakob keerde over de Jabbok terug, daar noch zijn gebed, waarop de Heere hem nog niet geantwoord had, noch zijn vooruit gezonden geschenken hem konden doenvertrouwen, en hij bleef alleen over. 1) Toen begon hij zijn van angst en vrees vervuld hart weer voor God in het gebed uit te storten, en om hulp te vragen (vs.9-12); en een man, de Heere, die hij aangeroepen had, kwam hem in de gedaante van een mens tegemoet, en, zonder dat Jakob erkend had, wie hij eigenlijk voor zich had, begon deze een tweestrijd, en worstelde met hem. 2) Dit worstelen, daar de onbekende hem zocht neer te werpen, of tenminste van zijn plaats te verdrijven, hetgeen Jakob met alle krachten weerstond, duurde een geruime tijd, totdat  de dageraad opging. 3)
+
+1) Midden in een gezelschap, onder onze bezigheden, op de straat zelfs kan men bidden, maar worstelen met de Heere kan men slechts is de eenzaamheid.
+
+"Jakob bleef alleen over." Hij kiest de eenzaamheid. Afgezonderd van vrouwen en kinderen, moet hij met zijn God alleen zijn. Maar God beschikt het ook alzo, dat hij alleen is, omdat de Heere hem, in de eenzaamheid, veel had te zeggen. Onmiskenbaar is hier het verband tussen zijn heenreizen en zijn terugkomst. Ook toen was hij alleen, eenzaam. En in die eenzaamheid verschijnt God hem in een droom en bemoedigt hem met een gezicht..
+
+Nu is hij weer alleen, afgezonderd van zijn vrouwen en kinderen, die reeds over de rivier zijn. Is het niet, opdat Jakob in dit uur het zou voelen, dat diezelfde God, welke hem met een staf over de rivier had doen gaan en hem tot twee legers had gemaakt, hem nu evenzeer als een arme en ellendige naar zijn vaderhuis kon doen terugkeren. Dat alleen zijn moest Jakob zich geheel en al in zijn algenoegzame Verbondsgod doen verliezen..
+
+2) De strijd van Jakob is geen strijd in de droom, maar een geestelijk lichamelijke strijd, een arbeid van de geest  onder inspanning van de krachten van het  lichaam. Die, met  wie hij strijdt, heeft hij niet in zich, maar buiten en tegenover zich. Toch had Jehova, die hem in mensengedaante verscheen, geen vlees of been; Hij stelde geweld tegen geweld, krachtens de macht, welke de geest over het lichamelijke heeft, even als ook onze geest, hoewel die geen vlees  en  bloed  heeft,  deze  naar  willekeur  in  beweging  brengt.  Dat  echter  Jakob  Jehova overwint,  is  daarom  mogelijk,  omdat  God  niet  Zijn  almacht  tegenover  hem  stelt,  maar overwonnen  wil  worden.  En  waarom  dringt  hij  zo  op  Jakob  in?  Opdat  thans,  bij  de ontmoeting van Ezau, openbaar worde, dat hij de zegen van de eerstgeboorte niet zonder de vloek van de zonde bezit. Daarover wordt hij aangevochten; aangevochten, niet slechts door zijn eigen geweten, dat tegen de zonde getuigd; maar door Jehova zelf, die ze hem gevoelen doet. Maar het geloof breekt door zonde en zwakheid en aanvechting heen, overweldigt het
+
+verwijt, dat in de geheimzinnige man een gedaante verkregen heeft, valt op hem aan, grijpt door de vijandige gebaren van zijn tegenstander heen, Zijn erbarmen aan, en dwingt Hem de met vernietiging bedreigde zegen opnieuw af. Die zegen ontvangt hij nu ontzondigd en rein als een goddelijke gave, en wel als genadegift, maar niet, zonder dat hij in de strijd, waarin het geloof overwon, tevens in de verwringing van zijn heup de onmacht van zijn natuur heeft leren voelen..
+
+Ofschoon deze verschijning in het bijzonder voor Jakob zelf zeer nuttig was, opdat hij vooruit zou weten, dat hem nog veel strijd wachtte en zich toch als overwinnaar in alles zou kennen, toch is het volstrekt niet twijfelachtig, of de Heere heeft in zijn persoon aan al de zijnen een algemeen  voorbeeld  daar  gesteld  voor  de  beproevingen,  welke  hen  wachten  waaraan  zij gedurende dit vergankelijk leven onderworpen zijn. Waarom het past om vast te houden aan dit doel van de verschijning, dat alle dienstknechten van God is deze wereld worstelaars zijn, daar God hen in allerlei soort van worstelstrijd oefent..
+
+3) Het woord "nacht" wordt hier niet genoemd. Wel wordt door de woorden zelf duidelijk, dat die worsteling in de nacht plaatsvond. Hebben wij hier niet een duidelijke aanwijzing, dat het voor Jakob, in de eigenlijke zin, geen nacht was?.
+
+De Heere wordt hier een "man" genoemd, om de zwakheid van de mensen. Voor Jakob trad Hij  op  in  een  menselijk  gedaante,  in  de  gedaante  bovendien  van  een  worstelaar,  omdat Jakob’s zonden nog niet waren beleden. (Psalm. 18:27b).
+
+25. En toen hij, de geheimzinnige strijder, zag, dat Hij hem niet kon overwinnen, 1) terwijl Hij bij het aanbreken van de morgen de strijd wilde opgeven, roerde Hij het gewricht van zijn heup aan, zodat het gewricht van Jakob’s heup verwrongen werd, als Hij met hem worstelde. 2) Jakob zag nu, met wie hij te doen had, welk een macht tegenover hem was, daar een aanraking alleen reeds zijn heup ontwrichtte, terwijl dit een zeer zeldzaam geval, en slechts door bijzonder kracht mogelijk is. Toen klemde hij zich, daar hij niet meer staan of gaan kon, met alle macht aan zijn tegenstander en omvatte Hem met zijn armen, zodat hij zich als van Hem dragen liet.
+
+1) Deze uitdrukking is een menselijke uitdrukking. Eén wenk toch en Jakob was ter aarde neergeworpen. De Heere wilde zich door hem laten overwinnen. Dit had Hij reeds tevoren vastgesteld..
+
+2) Dat aanroeren van de heup en het gevolg daarvan moest Jakob tonen, met Wie hij te doen had, maar niet  minder, dat  het  zich  laten  overwinnen een daad was van vrije genade en ongehouden  goedertierenheid  en  tevens,  dat  de  kracht  van  God  in  zijn  zwakheid  was volbracht. De verwrongen heup moest Jakob altijd klein en nederig houden..
+
+De aartsvader is hier in zijn worsteling, overwinning en verwonding, beeld van de gelovige, in zijn worstelingen van de ziel met zijn God. Gelijk Jakob, toen hem de heup verwrongen werd zich, hoewel hij had overwonnen, toch geheel aan de genade van zijn Bestrijder moest overgeven, om in Zijn armen steun en sterkte te vinden, zo ook de gelovige. Hij is dan ook de
+
+rechte bidder en worstelaar, die in zijn overwinningen aan God en Hem alleen de eer geeft en in Zijn wil volkomen berust..
+
+26. En Hij zei: Laat mij gaan, laat mij uit deze omklemming los, dat ik verder kan gaan, want de dageraad is opgegaan.
+1) Maar hij zei: a) Ik zal u niet laten gaan, tenzij dat Gij mij zegent. 2)
+
+a) Hos.12:4; MATTHEUS.15:23-28.
+
+1) God vergunt aan Zijn knecht de eer van de overwinning en is bereid te wijken ofschoon de krachten niet gelijk staan; niet, omdat Hij nodig heeft een wapenstilstand te verzoeken, Hij, wie toekomt, een wapenstilstand of vrede te geven, zo dikwijls het hem behaagt, maar opdat Jakob roem zou kunnen dragen over de hem geschonken genade. Een wonderlijke manier van overwinning, waar de Heere, aan wiens knecht alle lof met het volste recht wordt toegebracht, een nietig wezen als overwinnaar wil doen uitblinken en met een eervolle vermelding in de hoogte heft..
+
+2)  Jakob  gevoelt  het,  dat  waar  de  Heere  zich  laat  overwinnen,  Hij  zelf  inderdaad  de overwinnaar is. Maar waar de Heere Jakob de eer geeft, om als overwinnaar te staan daar neemt  deze  vrijmoedigheid,  om  van  hem  een  zegen  te  vragen.  Waar  Hij  zichzelf  heeft gegeven, daar zal Hij, wat van Hem is, niet inhouden. Dit gevoelt Jakob. Het licht begint op te gaan, en waar de ontwrichte heup hem pijn doet, daar wordt het hem te meer behoefte, om uit de volheid  van God genade voor genade te ontvangen. Echter, zal de Heere zich in Zijn volheid openbaren in Zijn rijkdom, dan moet Jakob eerst geheel en al, klein, nietig en ellendig in zichzelf worden. De ontwrichte heup, waardoor hem alle kracht  om te worstelen was ontnomen, moet een beeld zijn en worden van de innerlijke, geestelijke toestand. Daarom ook de vraag, die Jakob zo aanstonds zal horen..
+
+27. En Hij zei tot hem: Hoe is uw naam? 1) niet als wist hij Jakob’s naam niet, maar opdat deze, bij het  uitspreken, van de betekenis daarvan, (hoofdstuk. 25:26; 27:36) en van zijn zondig karakter bewust zou worden. En hij zei: Jakob. 2)
+
+1) Met deze vraag wil de Heere er hem toe brengen, dat het recht op een zegen verbeurd, diep verbeurd is, omdat Jakob’s naam hem zegt wat zijn wezen is..
+
+Het was bij Jakob nog nooit gekomen tot een vallen in de schuld voor God. Dit moet eerst geschieden. Eerst richten en dan begenadigd worden..
+
+2)"Jakob," d.i. hiellichter, bedrieger. Met het noemen van zijn naam belijdt Jakob zijn schuld voor God. Zo gaat het altijd. Wie geen zondaar wil zijn, wordt ook geen begenadigde. Wie inderdaad en in de waarheid zondaar wordt voor God, ontvangt ook de nieuwe naam van verloste..
+
+28. Toen zei Hij: Uw naam zal voortaan niet Jakob 1) (hielhouder, lagenlegger) heten; dit gedeelte van uw leven is met deze nacht geëindigd; maar Israël 2) (strijder van God) zal van
+
+nu af uw naam zijn, want gij hebt u vorstelijk gedragen met God en met de mensen, 3) en hebt overwonnen. (Openbaring. 2:17).
+
+1) De naam "Jakob" had hij bij de geboorte ontvangen, omdat hij beproefd had zijn broeder bij de hiel terug te houden. Nu schenkt God hem een nieuwe en een heerlijker naam, niet opdat hij die eerste geheel en al zou verachten, daar deze toch een merkwaardig teken was van de genade, maar opdat hij de tweede van de verdere ontwikkeling van de genade tot getuige zou hebben. Van de twee namen wordt de tweede als een meer eervolle boven de eerste gesteld..
+
+Daarop klonk het plechtig en beslissend van de lippen van de Bestrijder, op de toon van het gezag en van de majesteit: Uw naam zal voortaan niet Jakob zijn, maar Israël; want gij hebt u vorstelijk gedragen met God en met de mensen en hebt overwonnen." Zo wordt het Jakob dan van Gods zijde verzekerd, wat hij zozeer nodig had te weten, namelijk dat hij in de strijd, die hij geheel zijn leven lang tegen de mensen in zijn omgeving, en de strijd die hij te strijden had in  zijn  binnenste  tegen  eigen  ik,  of  tegen  God,  die  met  hem  worstelde  in  zijn  hart, overwinnaar was gebleven. Indien God het hem niet  had  gezegd, hij zou het niet hebben kunnen geloven, want hij gevoelt zich zo zwak en moe, en zie hij hinkt..
+
+2) larvy (Israël) van het Hebreeuwse woord rv (Sar) prins, vorst, en la (El.) God. Het woord betekent dus: "prins, vorst van God."
+
+3) "Met God en met de mensen." Wat betekent dit laatste "met de mensen"? Ziet dit op zijn strijd  met  Ezau  en  met  Laban?  O.i.  niet.  In  die  strijd  had  Jakob  zich  minder  vorstelijk gedragen. Deze bijvoeging ziet o.i. op de toekomst. Nu de zaak tussen God en Jakob in het reine is, om het zo eens uit te drukken, zal hij ook geen overlast van de mensen meer hebben, maar zich ook vorstelijk tegen hen gedragen. In deze nacht, bij het veer Jabbok is, in zijn worstelen met God, voor geheel zijn volgend leven beslist..
+
+29. En Jakob vroeg ook van zijn zijde; want daar God hem op heerlijker wijze verschenen was dan vroeger, wilde hij ook een meer betekenende naam voor zijn God kennen, en hij zei: Geef mij toch Uw naam te kennen. 1) En Hij zei: Waarom is het, dat gij naar mijn naam vraagt? 2) waarom wilt gij het verborgene en hoge tot het tastbare neertrekken; verstaat gij zelf niet reeds, wie Hij is, die met u geworsteld heeft (Richteren. 13:17,18) en Hij van deze vraag tot de vorige bede (vs.26) terugkerende, zegende hem aldaar, 3) en bevestigde alzo de vroeger gegevene (hoofdstuk. 28:13-15) beloften.
+
+1) Jakob stelt zich niet tevreden met een duistere naam. Hij zag op dit ogenblik gaarne de volle openbaring van Gods Wezen. Daarvoor is de tijd echter nog niet rijp..
+
+2) Had de Heere willen antwoorden, zo zou hij gezegd hebben: "Ik zal zijn, die Ik zijn zal"; het antwoord wordt echter teruggehouden, tot het enige eeuwen later Mozes ten deel wordt. (Exodus. 3:13 vv.).
+
+Trapsgewijze heeft God, de Heere, zich aan zijn oude volk geopenbaard. Hoe langer hoe meer wordt het Wezen Gods verklaard totdat Johannes kon schrijven: "De Eengeborene, die in de schoot van de Vader was, die heeft Hem ons verklaard.".
+
+3) Jakob ontvangt niet en ontvangt toch wel wat hij begeert, ja ontvangt meer dan hij begeert. Naar de naam vraagt hij, en hij ontvangt de uitstraling van die naam, van het  Goddelijke Wezen. Zo doet God altijd. Waar hij schijnbaar de beden van zijn kinderen niet verhoort, daar ligt dit in de meeste gevallen aan ons, omdat wij het niet opmerken, dat wij de verhoring op een andere en naar onze behoeften en toestanden beter berekende wijze, ontvangen..
+
+30.  En  Jakob  noemde  de  naam  van  die  plaats,  waar  hij  deze  wonderbare  gebeurtenis ondervonden had:  Pniël,  1)  (aangezicht  van God); Want  zei hij:  ik  heb God gezien van aangezicht tot aangezicht 2) en ik ben door Zijn Majesteit niet vernietigd, maar integendeel mijn ziel is gered geweest. 3)
+
+1) Hij laat een monument voor de nakomelingen achter, waardoor zij zouden weten dat God hem verschenen was. Zodat dan ook dit gezicht niet voor hem alleen was, maar voor de gehele Kerk. Verder vermeldt Jakob niet slechts dat hij Gods aangezicht heeft gezien, maar tegelijk spreekt hij zijn dank uit, dat hij van de dood is gered. Deze spreekwijze ontmoet men veelvuldig in de Heilige Schrift en was zeer gewoon bij de oude volken..
+
+2) Een dergelijke uitroep van verbazing lezen wij ook later van Gideon (Richteren. 6:22) en Manoach (Richteren. 13:22)
+
+3)"Mijn ziel" staat hier voor "mijn leven.".
+
+Meermalen had de Heere reeds op Jakob’s hart gewerkt, maar telkens zonk hij weer in zijn natuurlijke leven terug, en vergat hij de Heere. Pniël is de plaats van zijn redding. God laat de vrees van de dood over zijn ziel komen en dwingt hem tot de worsteling. Jakob overwint alleen, omdat God hem zich laat overwinnen, en in de grond van de zaak heeft God Jakob overwonnen  en  gedood,  en  een  nieuwe  mens  Israël  verwekt.  Die  nacht  was  Israël’s Kerstnacht. Verminkt het leven ingegaan (MATTHEUS.18:8), leeft hij van nu aan voor God, de God van de waarheid. Die plaats zal hij evenmin vergeten, als Johannes het tiende uur vergat. (Johannes 1:40).
+
+31. En de zon rees hem op, 1) als hij door Pniël gegaan was, niet alleen in het natuurlijke, maar ook in het geestelijke en als een teken, hoe van nu aan een dag van vreugde voor hem aanving; en hij was hinkende aan zijn heup
+2) (vs.25), en droeg alzo in zijn lichaam een herinneringsteken aan deze strijd mede.
+
+1) De opgaande zon was voor Jakob een beeld van zijn verlossing uit tijdelijke, maar ook uit geestelijke ellende. De oude naam Jakob bleef aan deze zijde, met de nieuwe naam ging hij Kanaän binnen. Heerlijk beeld van de gelovige, die hier aan deze zijde van het graf zijn oude naam laat, om aan de overzijde de nieuwe naam geschreven te vinden op de witte keursteen..
+
+2) In deze strijd hebben wij een voorbeeld van de geestelijke strijd, die wij niet met vlees en bloed, of de boze geesten in de lucht, maar met God zelf in kruis en tegenspoed te strijden hebben. Dan plaatst Hij zich dikwijls tegenover ons als een vreemde, ja als een tegenstander, die ons neerstoten wil, gelijk Hij hier Jakob ontmoette, of gelijk Hij Mozes zocht te doden (Exodus. 4:14). Hij geeft ons een harde stoot, zodat wij met David krom en neergebogen gaan (Psalm. 38:7); Hij wil zich aan ons met de naam van Zijn genade, dat is met Zijn liefde en barmhartigheid niet openbaren; Hij grijpt ons aan, zodat wij vol angst en schrik in de duistere nacht van het kruis ons bevinden. Wij hebben echter ook deze heerlijke troost, dat God de Heere hier in deze lichamelijke strijd zich door Jakob liet overwinnen die Hij anders als een verterend vuur had kunnen vernietigen; zelfs kon Jakob een zegen van Hem afdwingen. Zo wil Hij in zulk een geestelijke strijd zich graag aan ons met al Zijn genade en barmhartigheid overgeven,  Zich  door  ons  laten  overwinnen,  en  ons  niet  zwaarder  beproeven,  dan  wij verdragen kunnen. Zo wil Hij ons doen kennen, dat de macht van het geloof niet slechts duivel en wereld, maar ook de sterke God overwinnen kan. Daarom moeten wij met ons gebed Hem vast aangrijpen, in het bijzonder in de duistere nacht van de dood, wanneer zulk een strijd gewoonlijk het grootste is. Welaan, om door deze nacht tot het schone morgenrood van het eeuwige leven te komen, helpe ons de Heilige Drie-eenheid, die hoog geprezen zij in alle eeuwigheid.
+
+Merkwaardig is het, en het is uit de woorden van Mozes af te leiden, dat dat hinken zonder gevoel van smart heeft plaats gehad, zodat het een wonder bleek te zijn. Want God heeft in het  vlees  van  zijn  knecht  voor  alle  eeuwen  een  schouwspel  willen  geven,  waardoor  de gelovigen zouden zien, dat niemand zo sterk en machtig is, of uit de geestelijke worstelstrijd voert hij nog enig litteken mee, daar bij allen nog de een of andere zwakheid voorhanden is, opdat niemand zichzelf zou behagen..
+
+De verwrongen heup diende om Jakob altijd klein en nederig te houden. De verwrikte heup is voor Jakob de doorn in het vlees..
+
+32. Daarom eten de kinderen van Israël, tot een aandenken aan deze gebeurtenis, volgens een oude gewoonte, de verrukte zenuw niet, die op het gewricht van de heup is, tot op deze dag, omdat Hij het gewricht van Jakob’s heup aangeroerd had aan de verrukte zenuw, en alzo dit door God voor onrein verklaard was.
+
+In  de  tweemaal zeven  jaar  lange  diensttijd  van  Jakob  in  Aramea  werd  Israël lichamelijk geboren in de nacht van Jakob’s strijd met Jehova, aan de overzijde van de Jabbok, is Israël geestelijk   geboren.   De   vrucht   van   deze   strijd   was   niet   alleen   de   naam   van   het oudtestamentische volk van God, maar tevens werd met de naam Israël’s inwendig wezen vastgesteld en de goddelijke wet van zijn geschiedenis. Het wezen van Israël is geheiligde natuurlijkheid,  geheiligd  daardoor,  dat  Israël  midden  in  de  toorn  Gods  over  de  zonde, waarmee deze natuurlijkheid besmet is; door de kracht van het gebed van het geloof, zich aan Jehova’s zegenende genade vasthoudt. De wet van Israël’s geschiedenis is deze, dat Jehova altijd weer als straffend rechter over Israël komt,  en  dit  uitgezocht  en gelouterd uit  Zijn gerichten te voorschijn doet treden, maar zo, dat altijd de zelfmacht van zijn heup verwrongen wordt. Israël overwint niet, als andere volken; het overwint altijd eerst, nadat het wenend en
+
+smekend Jehova overwonnen heeft; altijd ligt het duidelijk voor de hand, dat het niet door zichzelf, maar door Gods genade overwonnen heeft. Van welk een geheel andere aard is de strijd, in welke de strijd aan de Jabbok zijn nieuwtestamentisch tegenbeeld heeft, de strijd in Gethsémané! Daar worstelt  Hij, die het  volmaakste zaad van Abraham is, met  geroep en tranen (Hebr.5:7) met God; Hem wordt echter niet alleen de heup verwrongen; Hij moet en Hij betoont zich daartoe gewillig, de doodskelk te drinken, om stervend over Gods toorn te zegenvieren en als eerstgeborene uit de dood te voorschijn te treden. Hier was het niet een heiliging van een natuurlijke mens, maar een wedergeboorte van de mensheid door de dood; hier gold  het niet slechts de verkrijging van een zegen van de eerstgeboorte, waarop een geheiligd volk zou kunnen zien, maar om de door de zonde verloren eerste zegen als begin van  zegen  voor  een  wedergeborene  nieuwe  mensheid  weer  te  winnen,  en  de  goddelijke gerechtigheid niet eerder los te laten, voordat het morgenrood van de genade aanbrak en de zon van de liefde opging. Het is volbracht. De zon, die Jakob achter Pniël tegen straalde, heeft tot zijn tegenbeeld de zon van de dag van de opstanding..
+
+De bange nacht van de worsteling gaat over in de dageraad van de hoop, en deze maakt plaats voor de morgen van de overwinning..
+
+Bethel, Mahanaïm en Pniël zijn en blijven voor Jakob onvergetelijke plaatsen, omdat God zich daar aan hem openbaarde. Ieder gelovige heeft ze in meer of mindere mate. Gelukkig degene, die ze liefheeft, omdat God hem daar verscheen..
+
+Ieder  land  heeft  zijn Pniëls,  plaatsen van herinnering  aan Gods grootmachtige daden.  De Olijfberg, Jeruzalem, Gethsémané zijn de verheven Pniëls van deze wereld, oorden waar de mens God heeft gezien van aangezicht tot aangezicht, en behouden is geweest. Doch er zijn ook op de levensweg van elke Christen zulke helder schijnende plaatsen, waar God zich heeft laten zien. Welk Christen vergeet de eerste prediking, die een diepe indruk op hem maakte, of het kerkgebouw, waar het woord van het Evangelie hem tot een levensreuk ten leven werd? Wie  onder  de  kinderen  van  God  bewaart  niet  die  herinnering  aan  die  dienstknecht  van Christus, wiens prediking God zegende, om hem te doen ontwaken en leven, zijn hart op te heffen en te verkwikken? Er zijn plaatsen op aarde, waar de sneeuw in de winter niet blijft liggen;  en  er  zijn  plaatsen  in  het  leven  van  menig  mens,  waar  de  vergetelheid  niet  kan vertoeven, en waaraan het hart niet kan terugdenken zonder bewogen en plechtig gestemd te worden. Komen er niet in het meest eentonige en alledaagse leven, hoe nederig en verholen ook, zulke Pniëls voor als deze? Waren er geen draaikolken in de vloed, waar God ons voor het eerst ontmoette? Geen krommingen of bochten in de stroom, waar God ons voorbijging, of uit de wolk op ons neerkeek, en wij veranderd en bekrachtigd oprezen? Zijn daar geen jaren,  tonelen,  personen,  ontmoetingen  geweest,  die  nog  met  bezielende  kracht  op  ons werken, ons  dwingen tot  de beoefening van het  goede en heilige, en als onwaardeerbare verschijningen,   onverwoestbaar,   gebalsemd   in   de   bewaarplaats   van   onze   geheugens verborgen,  een  gezegend  licht  uitstralen?  Gelukkig  zij  die  vele  dagelijkse  Pniëls  konden tellen; gelukkiger zij, die hun glans bij voortduring genieten, en God het meest daarin gewaar worden. Dit gehele toneel biedt ons een schilderij van ernstige gebedswerkzaamheid aan, in al haar eenvoudigheid en vereiste bestanddelen, afgescheiden van alles wat sleur, navolging van anderen, woordverkwisting of gebruikelijke termen genoemd zou kunnen worden. Jakob’s
+
+bidbank bij deze gelegenheid was de groene aarde; zijn bidkamer de hemel, die boven zijn hoofd welfde; zijn liturgie de eenvoudigste taal, gevloeid uit een ernstig, geheel onderworpen, benauwd en toch gelovend liefhebbend hart. Het is niet de plaats die aan het gebed kracht bijzet,  maar  het  gebed  dat  de  plaats  heiligt.  Het  is  niet  de  bidkamer,  die  het  gebed  te voorschijn brengt of roept; het is het gebed dat van onze omgeving een bidkamer maakt, in de kolenmijn, of op de bergtop met de herder van de Alpen, op het dek van het schip, dat door de golven heen en weer wordt geslingerd, op het slagveld vóór het aangaan van de strijd. Het hart deelt aan het gebed zijn eigenaardigheid en wezenlijkheid mee; en het gebed heiligt een plaats, bouwt overal een bidzaal, en wijdt een samenkomst tot kerk, een kerk in waarheid van Jezus Christus, de Heer. Gebogen knieën en schone woorden stellen het gebed niet daar; maar de ernstige zucht van een gebroken hart, bearbeid door de Heilige Geest en dorstende naar de levende God, stijgt opwaarts naar de hemel, als wierook van het zuiverste altaar.
+
