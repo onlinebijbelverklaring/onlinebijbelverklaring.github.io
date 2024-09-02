@@ -1448,7 +1448,7 @@ nav:
       - Genesis: 
         - Genesis: karlaugustdachsel/Genesis/index.md
         - Genesis 1: karlaugustdachsel/Genesis/Genesis1.md
-  #      -   Genesis 2: karlaugustdachsel/Genesis/Genesis2/index.md
+        - Genesis 2: karlaugustdachsel/Genesis/Genesis2.md
   #      -   Genesis 3: karlaugustdachsel/Genesis/Genesis3/index.md
   #      -   Genesis 4: karlaugustdachsel/Genesis/Genesis4/index.md
   #      -   Genesis 5: karlaugustdachsel/Genesis/Genesis5/index.md
