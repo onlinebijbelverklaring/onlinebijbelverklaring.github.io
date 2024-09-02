@@ -1,4 +1,4 @@
-## I. Vs. 1 en 2. 
+## I. Vers 1 en 2 
 God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond.
 
 ***1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, (Johannes 1:1-3; Col. 1:15, 16) de hemel 4) en de aarde. 5) a)***
@@ -19,25 +19,23 @@ Zo wijst ons reeds het eerste bijbelwoord op het verborgene, het mysterie van he
 
 4) Onder "de hemel" hebben wij te verstaan de hemel der hemelen, met zijn heilige Engelen en Aartsengelen. Immers, toen God de aarde grondvestte zongen de morgensterren (Job 38:4-7) d.i. de Engelen.
 
-5) Welk een wijsheid in deze eenvoudige woorden! De wijzen van alle eeuwen hebben nagespeurd, welke de oorsprong van alle dingen geweest is, en de één heeft genoemd enige stofdeeltjes, de ander een groot werelddeel, weer anderen noemden water en gas. Reeds dit eerste woord van de Bijbel geeft het duidelijk bewijs, dat de heilige mannen van God, door de
-
-Heilige Geest gesproken hebben. Ook hier voelen wij, dat geloof in Gods Woord de hoogste wetenschap is.
+5) Welk een wijsheid in deze eenvoudige woorden! De wijzen van alle eeuwen hebben nagespeurd, welke de oorsprong van alle dingen geweest is, en de één heeft genoemd enige stofdeeltjes, de ander een groot werelddeel, weer anderen noemden water en gas. Reeds dit eerste woord van de Bijbel geeft het duidelijk bewijs, dat de heilige mannen van God, door de Heilige Geest gesproken hebben. Ook hier voelen wij, dat geloof in Gods Woord de hoogste wetenschap is.
 
 ***2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen.***
 
 1) In het Hebreeuws "Thohoe waboohoe," woorden, in die taal gebruikt als iets ledigs en vreemds wordt bedoeld; iets, dat nog voor niets geschikt is. Gelijk een embryo in de moederschoot, alzo was de aarde toen nog met watermassa’s omgeven. (2 Petrus. 3:5)
 
-Een schone beschrijving van de chaos, de ongevormde stof, geeft Ovidius in zijn Metamorfose: "Waar aarde was, daar was ook zee en lucht; zo was de aarde niet te begaan, het water niet te doorwaden; de lucht miste het licht; in een lichaam streed het koude met het warme, het natte met het droge, het zachte met het harde, het zware met hetgeen geen gewicht had.".
+Een schone beschrijving van de chaos, de ongevormde stof, geeft Ovidius in zijn Metamorfose: "Waar aarde was, daar was ook zee en lucht; zo was de aarde niet te begaan, het water niet te doorwaden; de lucht miste het licht; in een lichaam streed het koude met het warme, het natte met het droge, het zachte met het harde, het zware met hetgeen geen gewicht had".
 
 Onbehouwen en onbeholpen lag of stond, of hing of zweefde daar de vormeloze aarde, "woest" zonder uitwendige gestalte en ledig, zonder innerlijke gehalte; een oceaan zonder bedding, zonder bodem, zonder kusten, zonder stroming, zonder diepte of hoogte; een bruisende en schuimende golving van een "donkere, sombere afgrond;" een ordeloze woeling en warhoop van allerlei woelende vochten en wortelende stoffen, doods en stom, onvatbaar voor alle levens. Zij zelf kon het leven uit haar machteloze schoot niet voortbrengen.
 
-Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij worden geschapen en Gij vernieuwt het gelaat van het aardrijk," maar ook het tegenovergestelde: zodra de Heer zijn Geest inhoudt, keren zij weer tot hun stof en sterven. (Psalm. 104:29b, 30a).
+Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij worden geschapen en Gij vernieuwt het gelaat van het aardrijk", maar ook het tegenovergestelde: zodra de Heer zijn Geest inhoudt, keren zij weer tot hun stof en sterven. (Psalm. 104:29b, 30a).
 
 2) De Geest van God, d.i. de Heilige Geest, niet de wind, zoals sommige uitleggers menen, zweefde over de wateren. De Staten-Overzetters tekenen aan, dat het woord "zweven" ook "broeden" betekent. In Deuteronomium. 32:11 wordt hetzelfde woord gebruikt van de arend, waar gezegd wordt, dat hij over zijn jongen zweeft. De betekenis van "broeden" is, en terecht, van de stamverwante talen (het Syrisch en het Arabisch) afgeleid, waar het werkwoord gebruikt wordt van de vogel, die op de eieren broedt. De aarde kon het leven niet voortbrengen. Alleen door de levende en levenwekkende Geest van onze God kon dit bewerkt worden. Zo in het rijk van de natuur, zo ook straks in het rijk van de genade.
 
 3) Hoe lang de aarde in deze toestand voortduurde en welke veranderingen onder dat broeien van de Geest in het inwendige plaats hebben gehad, is ons niet geopenbaard. Spreekt de natuurwetenschap van duizendtallen jaren, zij is daarom niet in strijd met de Schrift, doch men vergete niet, dat voor de Heere duizend jaar zijn als één dag. Evenmin weten wij, wat in de hemelse wereld voorviel, wanneer en hoe de val van de Engelen heeft plaatsgehad. (Judas 1:6; 2 Petrus. 2:4).
 
-## II. Vs. 3-25. 
+## II. Vers 3-25 
 In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens.
 
 ***3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven (2 Corinthiërs 4:6) toen Hij zeide: 1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)***
@@ -191,7 +189,7 @@ Wij mogen niet nalaten op te merken, dat God al de levende wezens tot hier toe s
 
 Klaarblijkelijk wordt het aantal scheppingsdagen in twee helften gedeeld, elk van drie dagen. Zo zijn er twee reeksen van scheppingswonderen, die evenredig met elkaar samenstemmen. De eerste en de vierde dag het licht en de hemellichten; de tweede en vijfde dag het uitspansel en het "gevogelte, vliegende in het uitspansel des hemels"; de derde en zesde dag de droge aarde, die levende zielen moet voortbrengen. Deze zijn, twee aan twee genomen, het drietal paren, waaruit de reeksen bestaan, die op het laatst in de zevende dag, in de Sabbath, haar einde, haar rustpunt, haar samenvatting, maar ook haar kroon ontvangen.
 
-## III. Vs. 26-31. 
+## III. Vers 26-31
 God schept de mens naar Zijn beeld, man en vrouw, en zet daardoor de kroon op het werk van de zes dagen.
 
 ***26. En God, thans niet meer als tot hier toe eenvoudig bevelend sprekende, maar met het Woord, door hetwelk Hij alle dingen heeft gemaakt en met de Geest, die levenskrachten meegedeeld en leven gewekt heeft, in bijzonder overleg tredende, zei op deze dag, de vrijdag: 1) Laat ons mensen maken, naar ons beeld, 2) naar onze gelijkenis, vrije, zichzelf bewuste persoonlijke wezens, die de heiligheid en zaligheid van het goddelijke leven in zich dragen, en dat zij heerschappij hebben over de vissen van de zee, en over het gevogelte van de hemel, en over het vee, en over de gehele aarde, en over al het kruipend gedierte, dat op de aarde kruipt. 3)***
