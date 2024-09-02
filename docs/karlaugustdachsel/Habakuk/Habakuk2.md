@@ -1,4 +1,4 @@
-#### GODS BELOFTEN EN WAARHEID. HET GELOOF MAAKT RECHTVAARDIG.
+GODS BELOFTEN EN WAARHEID. HET GELOOF MAAKT RECHTVAARDIG.
 
 ## Vervolg deel I. Vers 1-20 
 Nadat de Profeet zijne bekommernis over het aangekondigde gericht den Heere geklaagd heeft, wekt hij na ene pauze, welke wij ons tussen beide hoofdstukken moeten denken, op om te wachten op het antwoord van God. Hij besluit om zich op zijn wachttoren te plaatsen, en met gespannen opmerkzaamheid te wachten op de openbaring, welke de Heere hem op zijne vragen in zijn binnenste zal doen vernemen, Hij ontvangt die met het goddelijk bevel het woord Gods met duidelijke trekken op te tekenen, omdat het wel zeker was, maar niet dadelijk tot vervulling zou kennen (Habakuk 2:1-Habakuk 2:3). Hierop volgt het woord Gods, dat de rechtvaardige door zijn geloof zal leven, maar de onoprechte en de trotse niet zal bestaan. Zo zal ook de opgeblazen Chaldeër, die dronken hoogmoedige, onverzadelijk hebzuchtige wereldveroveraar, ten laatste voor de onderdrukte volken een voorwerp van eenstemmige triomferende bespotting worden (Habakuk 2:4-Habakuk 2:6). Een vijfvoudig wee verkondigt hierop den Chaldeër zijne verdiende straf, en werkt de gedachte uit, dat op de zonde de straf volgt, en de zonde de oorzaak van de straf is (Habakuk 2:7-Habakuk 2:20).
@@ -57,7 +57,7 @@ Abraham had een uitzicht door de belofte, in welke eindelijk elke schaduwlijn ve
 
 Gedurende de gevangenis zullen de godvrezenden zich ondersteunen en veerkrachtiglijk leven door het geloof in deze dierbare belofte, terwijl de volbrenging denzelve nog wordt uitgesteld. De rechtvaardige zal door zijn geloof leven, door dit geloof, hetwelk hij oefent op Gods Woord. Dit wordt in het N. Testament aangeduid (Romeinen 1:17 en Galaten 3:11; Hebreeën 10:38), tot aan bewijs van de grote leer der rechtvaardiging, alleen door het geloof, en van den invloed, welke de genade des geloof, op het Christelijke leven heelt. Zij, die door het geloof gerechtvaardigd zijn, zullen leven, zullen gelukkig zijn hier en eeuwig; en terwijl zij hier zijn, leven zij daardoor, wanneer zij in den hemel komen, zal het geloof verwisseld worden door aanschouwen.
 
-#### OVER DEN ONDERGANG DER BABYLONIERS
+OVER DEN ONDERGANG DER BABYLONIERS
 
 ***5. En ook, dewijl hij trouwelooslijk handelt bij den wijn 1), een trots man is, en in zijne woning niet blijft, maar noodzakelijk te gronde moet gaan; die zijne ziel wijd open doet, onverzadelijk is om alles tot zich te trekken, als het graf, het dodenrijk, dat al wat leeft verslindt (Spreuken 27:20; Spreuken 30:15 v), en gelijk de dood is, die niet zat wordt, en tot zich verzamelt al de Heidenen, en vergadert tot zich alle volken. 1) Volgens andere vertaling bevatten deze eerste woorden een spreekwoord: "Voorwaar de wijn bedriegt, " namelijk de Chaldeën, die er zich aan overgeven, daar hij hun gene kracht en leven, maar integendeel zekeren ondergang aanbrengt (Spreuken 23:31, Daniel 5:1).***
 
