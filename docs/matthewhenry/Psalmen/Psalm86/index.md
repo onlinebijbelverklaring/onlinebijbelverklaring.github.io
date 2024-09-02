@@ -44,16 +44,23 @@ II. De pleitgronden, die hij aanvoert.
 2\. Hij pleit op zijn ellende, zijn benauwdheid: Verhoor mij, want ik ben ellendig en nooddruftig, daarom heb ik uw hulp van node daarom zal niemand anders mij horen of helpen." God is des armen mans Koning, het is Zijn heerlijkheid om de zielen van de nooddruftige te verlossen. Zij, die arm van geest zijn, die zich ledig en nooddruftig zien, zijn zeer welkom aan de God van de genade.
 
 3\. Hij pleit op Gods goedertierenheid jegens allen, die Hem aanroepen, vers 5. Tot U verhef ik mijn ziel in begeerte en verwachting, want Gij, Heere, zijt goed, en waar zullen bedelaars anders gaan dan naar de deur van hem, die een goed huis houdt? De goedheid van Gods aard is een grote bemoediging voor ons in ons spreken tot Hem. Zijn goedheid blijkt in twee dingen: in geven en vergeven.
+
 a. Hij is een zondevergevend God, Hij kan niet slechts vergeven, maar Hij is bereid te vergeven, meer bereid om te vergeven dan wij om berouw te hebben en ons te bekeren. "Ik zei: Ik zal belijdenis doen van mijn overtredingen voor de Heere, en Gij vergaf de ongerechtigheid mijner zonde," Psalm 32:5.
+
 b. Hij is een God, die het gebed hoort, Hij is groot, groot van ontferming, rijk en milddadig voor allen, die Hem aanroepen. Hij heeft hetgeen waarmee Hij in al hun noden kan voorzien en is zeer ruim en vrij om die voorziening te schenken.
 
 4\. Hij pleit op het goede werk, dat God in hem gewrocht heeft, waardoor Hij hem bevoegd heeft gemaakt om de tekenen van Zijn genade te ontvangen. Er waren door de Goddelijke genade drie dingen in hem gewerkt, die hij beschouwde als onderpanden van alle goed.
+
 a. Een gelijkvormigheid met God, vers 2. Ik ben heilig, en daarom: bewaar mijn ziel, want hen, die door de Geest geheiligd zijn, zal Hij bewaren. Hij zegt dit niet in hoogmoed of verwaandheid, maar in nederige dankbaarheid aan God. Ik ben een, die Gij begunstigt, zo heeft het de kanttekening, een, die Gij U afgezonderd hebt. Als God een goed werk van genade in ons begonnen heeft, dan moeten wij erkennen dat het de tijd van de minne is en dat wij genade in Zijn ogen hebben gevonden, en die God in Zijn genade en gunst heeft opgenomen, zal Hij ook onder Zijn bescherming nemen. "Al zijn heiligen zijn in uw hand" Deuteronomium 33:3. Merk op: Ik ben ellendig en nooddruftig, vers 1, en toch, ik ben heilig, vers 2, heilig, en toch ellendig en nooddruftig, arm in de wereld, maar rijk in geloof. Zij, die in hun grootste armoede hun reinheid behouden, kunnen ervan verzekerd zijn dat God hun vertroostingen zal bewaren, hun ziel zal bewaren.
+
 b. Een vertrouwen op God, verlos Uwen knecht, die op U betrouwt. Zij, die heilig zijn, moeten toch niet op zichzelf vertrouwen, of op hun eigen gerechtigheid, maar alleen op God en Zijn genade. Zij, die op God vertrouwen, kunnen verlossing van Hem verwachten.
+
 c. Een gezindheid om gemeenschap te oefenen met God. Hij hoopt dat God zijn gebed zal verhoren, omdat Hij hem tot bidden had geneigd.
 
 (1). Om aan te houden in het gebed: ik roep tot U de gehele dag, vers 3, en alle dagen. Zo is het onze plicht om altijd te bidden, zonder ophouden te bidden, te volharden in het gebed, en dan kunnen wij hopen dat onze gebeden verhoord zullen worden, die we in de tijd van de benauwdheid hebben opgezonden indien wij op andere tijden, ja op alle tijden die plicht nauwgezet betracht hebben. Het is troostrijk als een beproeving de raderen van het gebed in beweging vindt, en dat zij dan niet pas in beweging gezet behoeven te worden.
+
 (2). Om innig met God te zijn in het gebed, om zijn ziel tot Hem te verheffen, vers 4. Wij kunnen hopen dat God ons zal ontmoeten met Zijn genade, als wij in onze gebeden onze ziel als het ware, uitzenden om Hem te ontmoeten.
+
 (3). Om in een bijzonderen zin vurig te zijn in het gebed tot God, als hij in beproeving was vers 7. In de dag mijner benauwdheid roep ik U aan, geef ik mijn zaak aan U over, want Gij zult mij verhoren, en ik zal niet tevergeefs roepen, zoals zij, die riepen: "o Baäl, antwoord ons, maar daar was geen stem, en geen antwoord en geen opmerking," 1 Koningen 18:29.
 
 ## Psalm 86:8-17 
@@ -83,8 +90,11 @@ a. Een verstandig hart, dat Hij hem nopens zijn plicht zal inlichten en onderwij
 b. Een oprecht hart, "Verenig mijn hart tot de vreze Uws Naams, maak mij oprecht in de Godsdienst, een geveinsde heeft een dubbel hart, laat het mijn eenvoudig zijn, en geheel voor God, niet verdeeld tussen Hem en de wereld, niet van Hem afdwalende." Ons hart is geneigd tot afdwalen, zijn gaven en krachten gaan uit naar duizend vreemde dingen, daarom hebben wij Gods genade van node om het te verenigen, ten einde God te dienen met alles wat in ons is, en dat alles is nog weinig genoeg om in Zijn dienst te worden gebruikt. "Laat mijn hart vast zijn voor God, bestendig en trouw naar Hem, en ijverig om Hem te dienen, dat is een verenigd hart." 
 
 2\. Om de tekenen van Gods gunst jegens hem, vers 16, 17. Hij bidt hier om drie dingen.
+
 a. Dat God van vrede en vertroosting tot hem zal spreken. "Wend U tot mij, als tot een, die Gij liefhebt, en voor wie Gij tedere vriendelijke zorg hebt. Mijn vijanden keren zich tegen mij, mijn vrienden wenden zich van mij af. Heere, wend Gij U tot mij, en ontferm U over mij, wees mij genadig, het zal een troost voor mij zijn om te weten dat Gij medelijden met mij hebt." 
+
 b. Dat God verlossing voor hem zal werken en hem in veiligheid zal stellen: "geef Uwen knecht uw sterkte, leg kracht in mij, opdat ik mijzelf helpe, en wend Uw sterkte voor mij aan, opdat ik verlost worde uit de handen van hen, die mijn verderf zoeken." Hij pleit op de betrekking, waarin hij tot Hem staat. "Ik ben Uw knecht, ik ben dit door geboorte, als de zoon Uwer dienstmaagd, geboren in Uw huis, en daarom zijt Gij mijn rechtmatige eigenaar en bezitter, van wie ik bescherming kan verwachten. Ik ben de Uwe, verlos mij." De kinderen van Godvruchtige ouders, die reeds vroeg de Heere waren opgedragen en toegewijd, kunnen hier bij Hem op pleiten, als zij onder de tucht komen van Zijn gezin, dan hebben zij recht op de voorrechten ervan.
+
 c. Dat God hem eer zal aandoen. " Doe aan mij een teken ten goede, doe het blijken voor anderen, zowel als voor mijzelf, dat Gij mij goed doet, en nog meer goed voor mij bestemd hebt. Schenk mij enige ontwijfelbare, heerlijke voorbeelden van uw gunst jegens mij, opdat het mijn haters zien en beschaamd worden over hun vijandschap jegens mij, waartoe zij wel reden zullen hebben als zij bemerken, dat Gij, Heere, mij geholpen en getroost zult hebben, en dat zij dus gestreden hebben tegen God in hun tegenstaan van een man, die Hij erkent en zegent, en dat zij tevergeefs gepoogd hebben hem te verderven en te kwellen, die door God zelf geholpen en getroost wordt." De blijdschap van de heiligen zal de schande wezen hunner vervolgers.
 
 

@@ -20,6 +20,7 @@ Maar in elk geval hebben wij hier:
 Weest Hem dankbaar en prijst Zijn naam, dat is: 
 
 a. Wij moeten het beschouwen als een gunst, dat wij toegelaten zijn tot Zijn dienst, en Hem danken dat wij vrijheid van toegang tot Hem hebben, verordineerde inzettingen hebben, en voortdurend in de gelegenheid zijn, om in die inzettingen tot Hem te naderen.
+
 b. Wij moeten lof en dankzegging mengen onder al onze Godsdienstige verrichtingen, deze gouden draad moet door elke plicht lopen, Hebreeën 13:15 want het is het werk van de engelen. Dankt God in alles, in elke inzetting zowel als in iedere leiding van Zijn voorzienigheid. II. De stof en de beweegredenen tot lof zijn van groot gewicht, vers 3, 5. Weet wat God is in zichzelf, en wat Hij voor U is. Kennis is de moeder van de godsvrucht en van alle gehoorzaamheid, blinde offers zullen nooit een ziende God behagen. "Weet het, overweegt het en past het toe, dan zult gij ijveriger en gestadiger, inniger en ernstiger zijn in uw aanbidding van Hem." 
 Laat ons dan deze zeven dingen weten betreffende de Heere Jehovah, met wie wij in al de daden van de godsdienstige aanbidding te doen hebben.
 
