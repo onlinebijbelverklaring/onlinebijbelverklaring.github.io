@@ -1,4 +1,4 @@
-#### GEBED TOT GOD OM BEWARING VAN ZIJN VOLK.
+GEBED TOT GOD OM BEWARING VAN ZIJN VOLK.
 
 ## Deel II. Vers 1-19
 In dit 2e hoofddeel van het Boek der Profetieën heft de Profeet in naam van het gehele gelovige deel des volks Zijne handen op, en spreekt in enen verheven Psalm de gevoelens uit, welke de ontvangene openbaring des Heeren van het gericht over het volk Gods, alsmede over het werktuig van Zijnen toorn, het rijk der Chaldeën in zijn hart heeft gevoed, en in de harten der gelovigen opwekken moet. Het is aan de ene zijde de echo der Goddelijke antwoorden in de gelovige ziel van den knecht Gods, zo als dit van alle Psalmen kan worden gezegd, aan de andere zijde toch geheel uit den profetischen geest geboren "zelfs ene grote profetie van het wereldgericht, welke zich aan het voorafgaande: "zwijg voor Zijn aangezicht, gij ganse aarde!" nauw aansluit. Het geheel, dat uitdrukkelijk wordt voorgesteld als een gebed en als een lied, bestemd om bij den godsdienst te worden voorgedragen, is in 2 delen verdeeld, aan welke Habakuk 3:2 als een inleidend thema voorafgaat. Diep geschokt over de geopenbaarde gerichten Gods, welke nabij zijn, smeekt hij in Habakuk 3:2, dat de Heere dit Zijn werk binnen weinige jaren volbrenge, en in de openbaring van Zijnen toorn toch barmhartigheid moge betonen. Vervolgens schildert hij in profetisch-lyrischen vorm de majesteit van de komst des Heeren ten gerichte over de wereld, om daardoor Zijn volk en Zijne gezalfden te verlossen en zalig te maken (Habakuk 3:3-Habakuk 3:15). Eindelijk ontwikkelt hij de in het thema aangeduide bede om verschoning en ontferming verder, daar hij de vruchten des geloofs schildert, welke deze openbaring Gods van Zijne gerichten zal werken, namelijk eerst vrees en sidderen voor de verdrukking en daarna juichen en jubelen in den God des heils (Habakuk 3:16-Habakuk 3:19).
@@ -127,7 +127,7 @@ Voor den opperzangmeester, het hoofd der tempelmuziek op mijn Neginth onder bege
 
 De Profeet heeft dus zijn Psalm bestemd tot gebruik voor den godsdienst, Hij wil dan zelf het gezang met zijn snarenspel begeleiden. Hij heeft dus zeker behoord tot de Levieten, wien het muzikale spel was opgedragen, en die bij de openbare uitvoering van godsdienstige zangstukken medewerkten. Hij wil dus dat dit gebed de Kerk van die dagen en van later tijd, zal sterken in de ellende. Abrahams nakroost moet het weten in welk een smeltkroes het zal geworpen worden. Daaraan moet het gedurig worden herinnerd, maar Israëls vromen moeten het ook weten, dat alleen te midden van hooggaande noden er alle kracht en sterkte is in dien Verbond-God, die alleen is de Getrouwe, die nooit, begeeft of verlaat, wie op Hem hopen.
 
-#### SLOTWOORD OP HET BOEK HABAKUK.
+SLOTWOORD OP HET BOEK HABAKUK.
 
 Ook de Profeet Habakuk arbeidt gelijk Nahum in het rijk van Juda, nadat het rijk der Tien stammen reeds was verwoest.
 
