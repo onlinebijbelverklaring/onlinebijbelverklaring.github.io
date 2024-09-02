@@ -41,8 +41,11 @@ Bij het zingen van deze psalm moet ons hart, zowel als onze mond, vervuld zijn v
 2\. De personen, die geroepen worden om dit te doen: de knechten des Heeren de priesters en Levieten die staan in Zijn huis, en al de vrome Israëlieten, die staan in de voorhoven van Zijn huis, om daar te aanbidden, vers 2. Zij hebben de meeste reden om God te loven, die toegelaten zijn tot de voorrechten van Zijn huis, en zij zien er de meeste reden voor, die daar Zijn schoonheid aanschouwen en van Zijn milddadigheid genieten, van hen wordt het verwacht, want daartoe zijn zij in hun ambt. Wie zal Hem loven, als zij het niet doen? 
 
 3\. De redenen, waarom wij God moeten loven.
+
 a. Omdat Hij, die wij moeten loven, goed is, en goedheid is hetgeen, waar iedereen goed van zal spreken. Hij is goed voor allen, en daar moeten wij Hem de lof voor geven, Zijn goedheid is Zijn heerlijkheid, en wij moeten er melding van maken tot Zijn eer.
+
 b. Omdat het werk zichzelf beloont: Psalmzingt Zijn naam, want Hij is lieflijk. Het wordt het beste gedaan met een blij gemoed, en wij zullen het genoegen smaken van onze plicht gedaan te hebben. Het is een hemel op aarde om God te loven, en het genot daarvan moet ons volkomen de smaak benemen voor de genietingen van de zonde.
+
 c. Vanwege de bijzondere voorrechten van Gods volk, vers 4. De Heere heeft zich Jakob verkoren, en daarom is Jakob gehouden en verplicht om Hem te loven, want God heeft zich een volk verkoren, opdat zij Hem tot "een naam en lof zullen zijn," Jeremia 13:11, en daarom heeft Jakob overvloedige reden tot lof, aldus geëerd en onderscheiden zijnde. Israël is boven ieder ander volk Gods bijzonder eigendom, Exodus 19:5, Zijn "segullah," een volk, dat Hij zich toegeëigend heeft, waarin Hij een welbehagen heeft, het is kostelijk in Zijn ogen en verheerlijkt. Indien het zaad Jakobs Hem om deze onderscheidende, verbazingwekkende gunst niet looft, dan is het het onwaardigste, ondankbaarste volk onder de zon.
 
 ## Psalm 135:5-14 
@@ -61,14 +64,21 @@ II. Hij bewijst dat Hij een groot God is door de grootheid van Zijn macht.
 III. Hij geeft voorbeelden van Zijn grote macht.
 
 1\. In het rijk van de natuur, vers 7.
+
 a. Al de krachten van de natuur bewijzen de grootheid van de God van de natuur, aan wie zij ontleend zijn en van wie zij afhankelijk zijn. De keten van natuurlijke oorzaken was niet slechts door Hem in de beginne geformeerd, maar wordt nog door Hem bewaard. Het is door Zijn macht dat de dampen uit de aarde opstijgen, het is de hitte van de zon, die ze doet opgaan, maar die kracht heeft zij van God, en daarom wordt er op gewezen als een voorbeeld van de heerlijkheid Gods, dat niets voor de hitte van de zon verborgen is, Psalm 19:7. Hij doet de dampen opklimmen niet alleen zo nder daarbij door ons geholpen te worden, maar zonder door ons gezien te worden van de einden van de aarde dat is: van de zeeën, door welke de aarde omringd is.
+
 b. Hij is het, die uit deze dempen die alzo opgeklommen zijn, de regen formeert zodat de aarde niets verliest door de dampen die er uit opgegaan zijn, want zij keren met voordeel terug in vruchtbaar makende regenbuien. 
+
 c. Uit diezelfde dampen (zodanig is Zijn wondervolle macht) maakt Hij de bliksemen voor de regen, vers 7, door hen opent Hij de flessen van de hemel en schudt de wolken, opdat zij de aarde bewateren. Hier zijn door de Goddelijke almacht vuur en water volkomen met elkaar verzoend. Zij komen tezamen, en toch blust het water het vuur niet uit, en het vuur lekt het water niet op, zoals het vuur van de hemel dat gedaan heeft, toen God het zo wilde, 1 Koningen 18:38.
+
 d. Tot een ander doeleinde worden diezelfde uitwasemingen veranderd in winden, die blazen waarheen zij willen, van welk punt van het kompas zij willen, en het is er zo ver vandaan, dat wij ze besturen, dat wij niet eens weten vanwaar zij komen en waar zij heengaan, maar God brengt de wind uit Zijn schatkameren voort met evenveel nauwkeurigheid en plan als een voorzichtig vorst last geeft om geld uit zijn schatkist uit te geven.
 
 2\. In het rijk van de mensen, en hier maakt hij melding van de grote dingen, die God voormaals voor Zijn volk Israël gedaan heeft die blijken waren van Gods grootheid zowel als van Zijn goedheid, en bevestigingen van de waarheid van de Schriften van het Oude Testament, die begonnen geschreven te worden door Mozes, de persoon, die gebruikt werd om deze wonderen te werken. Let op Gods soevereine heerschappij en onweerstaanbare macht: 
+
 a. In Zijn uitvoeren van Israël uit Egypte, Farao vernederende door vele plagen waardoor Hij hem noodzaakte hen te laten trekken. Deze plagen worden tekenen en wonderen genoemd, omdat zij niet naar de gewone loop van de voorzienigheid kwamen, maar in ieder ervan iets wonderbaarlijke was. Zij werden gezonden tegen Farao en al zijn knechten, zijn onderdanen, maar de Israëlieten, die God riep om Zijn knechten, Zijn zonen Zijn eerstgeborenen, Zijn vrijgeborenen te zijn waren ervan vrijgesteld, en geen plaag heeft hun woning genaderd. De dood van de eerstgeborenen, beide van mensen en vee was de zwaarste van al de plagen, en die, door welke het doel bereikt werd.
+
 b. In de vernietiging van de koninkrijken van Kanaän voor hun aangezicht. vers 10. Zij, die het land in bezit hadden, dat voor Israël bestemd was, hadden alles in hun voordeel om zich in het bezit ervan te kunnen handhaven: zij waren talrijk en krijgshaftig, saamverbonden tegen Israël, het waren grote volken. Maar als een groot volk een zwak en lafhartig vorst heeft, dan is het aan gevaar blootgesteld. Deze grote volken hadden echter machtige koningen en toch werden zij allen geslagen en gedood, Sihon en Og, en al de koninkrijken van Kanaän, vers 10, 11. Geen macht van hel of aarde kan de vervulling van Gods belofte verhinderen, als de tijd, de bestemde tijd ervoor gekomen is.
+
 c. In hen te vestigen in het land van de belofte. Hij, die koninkrijken geeft aan wie het Hem behaagt ze te geven heeft Kanaän ten erfdeel gegeven aan Zijn volk Israël. Het kwam door erfrecht tot hen, want hun voorouders hadden er de belofte van, hoewel niet het bezit, en het ging als een erfdeel op hun nakomelingen over. Dit is lang tevoren geschied, maar God wordt er nu voor geloofd, en wel met goede reden, want de kinderen genoten er nu het voordeel van.
 
 IV. Hij juicht in de bestendigheid van Gods heerlijkheid en genade.
@@ -76,15 +86,20 @@ IV. Hij juicht in de bestendigheid van Gods heerlijkheid en genade.
 1\. Van Zijn heerlijkheid. O Heere, Uw naam is in eeuwigheid. Gods openbaringen van zichzelf aan Zijn volk hebben eeuwige vruchten en gevolgen. Al "wat God doet, zal in eeuwigheid zijn," Prediker 3:14. Zijn naam is in eeuwigheid in de gestadige en eeuwige lof van Zijn volk, Zijn gedachtenis is tot nu toe bewaard gebleven, en zal van geslacht tot geslacht in Zijn kerk bewaard blijven. Dit schijnt te verwijzen naar Exodus 3:15, waar, als God zich de God noemt van Abraham, Izak en Jakob Hij er bij voegt: Dit is Mijn naam eeuwiglijk en dat is Mijn gedachtenis van geslacht tot geslacht. God is altijd dezelfde voor Zijn kerk en zal dit altijd zijn, een genadig getrouw en wonderdoend God, en Zijn kerk is en zal altijd dezelfde zijn voor Hem: een dankbaar, Hem lovend volk, en aldus is Zijn naam tot in eeuwigheid.
 
 2\. Van Zijn genade. Hij zal vriendelijk wezen voor Zijn volk.
+
 a. Hij zal hun zaak voorstaan tegen anderen, die met hen twisten, Hij zal Zijn volk richten, richten voor hen, niet toelaten dat zij ter neergeworpen worden.
+
 b. Hij zelf zal niet eeuwiglijk met hen twisten, maar het zal Hem over Zijn knechten berouwen, Hij zal door hen verbeden worden, Hij zal in genade tot hen wederkeren, en er zich in verlustigen om hun goed te doen. Dit vers is genomen uit het lied van Mozes, Deuteronomium 32:36.
 
 ## Psalm 135:15-21 
 Het doel van deze verzen is:
 
 1\. Het volk van God te wapenen tegen afgoderij, door hun te tonen wat soort van goden het waren, die de heidenen aanbaden, zoals wij dit tevoren hadden in Psalm 115:4 en verv.
+
 a. Het waren goden van hun eigen maaksel, dit zijnde, konden zij geen macht hebben dan die hun makers hun gaven, welke macht konden hun makers dan van hen ontvangen? De beelden waren het werk van mensenhanden, en de godheden, die, naar men onderstelde, hen inlichtten, waren even zeer de schepselen van der mensen verbeelding.
+
 b. Zij hadden de gestalte van dieren maar waren niet tot de minste daad of handeling instaat, ja zelfs niet van het dierlijk leven. Zij konden noch zien, noch horen, noch spreken, ja niet eens ademen, hen dus met ogen en oren, met een mond en met neusgaten te maken was zo’n bespotting, dat men er zich over moet verbazen hoe redelijke wezens zich zo konden laten bedriegen, dat zij van zulke voorgewende godheden iets goeds konden verwachten.
+
 c. Hun aanbidders waren dus even stompzinnig als zij beide die hen gemaakt hebben om aangebeden te worden, en die op hen vertrouwden als zij gemaakt waren, waren even zinneloos, vers 18. Die hen maken zijn hun gelijk. Het aanbidden van zulke goden, die het voorwerp waren van de zinnen, en toch geen zinnen, geen zintuigen hadden, maakte de aanbidders zinnelijk en zinneloos. Laat de aanbidding van een God, die een Geest is, ons geestelijk en verstandig maken.
 
 2\. Om het volk van God tot ware vroomheid op te wekken in de aanbidding van de ware God, vers 19-21. Hoe ellendiger de toestand is van heidense volken, die afgoden aanbidden, hoe meer wij verplicht zijn om God te danken, dat wij beter weten. Laat ons daarom ons tot daden van Godsvrucht begeven, ons daarmee bezighouden. Looft de Heere, wederom en nogmaals: Looft de Heere. In de parallelplaats Psalm 115:9-11 wordt bij wijze van gevolgtrekking uit de machteloosheid van de afgoden op de plicht gewezen om op de Heere te vertrouwen, hier om Hem te loven, door ons vertrouwen te stellen op God geven wij Hem eer, en aan hen, die op God vertrouwen, zal geen stof ontbreken om Hem te danken en te loven. Alle personen, die God kennen, worden hier opgeroepen om Hem te loven: het huis Israëls, het volk in het algemeen, het huis Aärons en het huis van Levi, de knechten des Heeren, die Hem dienen in het heiligdom. en alle anderen, die de Heere vreesden, al waren zij niet van het huis Israëls. Laat God van allen eer ontvangen: geloofd zij de Heere. De schatting des lofs komt uit Sion, alle Gods werken loven Hem, maar Zijn heiligen zegenen Hem, en zij behoeven niet ver te gaan om hun schatting te betalen, want Hij woont te Jeruzalem, in Zijn kerk, waarvan zij leden zijn, zodat Hij altijd nabij hen is om hun schatting en hulde te ontvangen. Zijn neerbuigende goedheid, waardoor Hij onder de mensen op aarde wil wonen eist onze dankbaarheid en onze herhaalde Hallelujah’s.

@@ -18,10 +18,15 @@ III. Het bewijs ervan in een goede reden, die er voor gegeven is, vers 3, en dan
 3\. Hoe het lieflijke ervan duidelijk gemaakt wordt.
 
 A. Het is geurig als de heilige zalfolie, die zeer welriekend was gemaakt en tot groot genot van de omstanders haar geuren verspreidde als ze uitgestort werd op het hoofd van Aaron of van de hogepriester, zijn opvolger, en wel zo overvloedig, dat zij van zijn gelaat afdroop op de kraag van zijn kleed, vers 2.
+
 a. Dit was heilige zalf, en zo moet onze broederlijke liefde zijn, met een rein hart toegewijd aan God. Wij moeten liefhebben die uit God geboren zijn, om diens wil, die geboren heeft, 1 Johannes 5:1.
+
 b. Deze zalf bestond uit een mengsel, naar Goddelijk voorschrift samengesteld, God heeft er de bestanddelen en de hoeveelheid van bepaald. Zo wordt de gelovigen geleerd God en elkaar lief te hebben, het is een genade, die Hij in ons werkt.
+
 c. zij was zeer kostbaar, en mocht niet voor gewoon gebruik bereid worden. Zo is heilige liefde in de ogen Gods van grote waardij, en datgene is in waarheid kostbaar en kostelijk hetwelk dit is in de ogen Gods. 
+
 d. Zij was aangenaam, beide aan Aaron zelf en aan degenen die om hem heen waren, en aldus is heilige liefde, zij is als olie en reukwerk, die het hart verblijdt. Christus liefde voor de mensheid was een deel van die vreugdeolie, waarmee Hij gezalfd was boven Zijn medegenoten.
+
 e. Aaron en zijn zonen werden niet toegelaten om voor het aangezicht des Heeren te dienen, voor zij met deze zalfolie gezalfd waren, en onze diensten zijn Gode niet welbehaaglijk zonder deze heilige liefde indien wij haar niet hebben, dan zijn wij niets 1 Korinthe 13:1, 2.
 
 B. Het is vruchtdragend, het is nuttig zowel als aangenaam, het is gelijk de dauw, het brengt overvloedige zegeningen mede, zo talrijk als dauwdroppels. Het koelt de verschroeiende hitte af van der mensen hartstochten, zoals de avonddauw de lucht afkoelt en de aarde verkwikt. Het draagt zeer veel bij tot onze vruchtbaarheid in alles wat goed is, het bevochtigt het hart, maakt het week en geschikt om het goede zaad des Woords te ontvangen, zoals in tegenovergestelde zin kwaadheid en ledigheid ons ongeschikt maken om het te ontvangen, 1 Petrus 2:1. Het is gelijk de dauw van Hermon, een gewone berg, want broederlijke liefde is de schoonheid en het voordeel van de burgerlijke maatschappij, en die neerdaalt op de bergen van Sion, een heilige berg, want het draagt zeer veel bij tot de vruchtbaarheid van de Godsdienstige samenleving. Beide Hermon en Sion zullen verdorren zonder deze dauw. Van de dauw wordt gezegd, dat hij "naar geen man wacht, noch mensenkinderen verbeidt," Micha 5:6. En onze liefde tot onze broederen moet niet wachten op de hunne voor ons, dat is tollenaarsliefde, maar moet haar voorkomen, dat is Goddelijke liefde.
@@ -29,4 +34,5 @@ B. Het is vruchtdragend, het is nuttig zowel als aangenaam, het is gelijk de dau
 IV. Het bewijs van de uitmuntendheid van broederliefde. Liefdevolle mensen zijn gezegende mensen. Want:
 
 A. Zij zijn door God gezegend, en dus waarlijk gezegend. Daar waar broeder en samenwonen gebiedt de Heere de zegen, een samengestelde zegen, waarin alle zegeningen begrepen zijn. Het is Gods kroonrecht om de zegen te gebieden, de mensen kunnen slechts om een zegen bidden. Zegeningen overeenkomstig de belofte zijn zegeningen die God gebiedt, want Hij heeft Zijn verbond in eeuwigheid geboden. Zegeningen, die uitwerking doen, zijn geboden zegeningen, want Hij spreekt en het is er.
+
 B. Zij zijn gezegend tot in eeuwigheid. De zegen, die God gebiedt over hen, die in liefde samenwonen, is leven tot in eeuwigheid, dat is de zegen van de zegeningen. Zij, die wonen in liefde, wonen niet alleen in God, maar wonen reeds in de hemel. Gelijk de volkomenheid van de liefde de zaligheid is van de hemel, zo is de oprechtheid van de liefde het onderpand van die zaligheid. Zij, die in liefde en vrede wonen zullen bevinden dat de God van de liefde en des vredes thans met hen is, en weldra zullen zij voor eeuwig bij Hem zijn in de wereld van eindeloze liefde en vrede. Hoe goed is het dan, en hoe lieflijk! 

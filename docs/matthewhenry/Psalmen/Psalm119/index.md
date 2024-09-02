@@ -438,6 +438,7 @@ Hier:
 Hier:
 
 1\. Belijdt David zijn vurige genegenheid voor het woord van God: Ik heb een begeerte naar Uw bevelen, ik heb ze niet alleen bemind en mij verlustigd in hetgeen ik reeds verkregen heb, maar ik heb vurig begeerd ze meer te kennen, ze beter te volbrengen, en streef nog voorwaarts naar de volkomenheid." Als wij eens de lieflijkheid van Gods bevelen gesmaakt hebben, dan zal dit ons doen verlangen om er nog inniger mee bekend te worden. Hij beroept zich op God betreffende deze zijn vurige begeerte naar Zijn bevelen. Zie ik heb ze aldus bemind, heb er aldus naar verlangd, Gij weet alle dingen, Gij weet dat ik aldus gezind ben." 
+
 2\. Hij bidt om genade om hem bekwaam te maken ten einde naar die belijdenis te handelen. "Gij hebt dit smachtend verlangen in mij gewerkt, breng leven in mij om het te blijven koesteren, maak mij levend in Uw gerechtigheid, in Uw rechtvaardige wegen, naar Uw rechtvaardige belofte." Waar God het willen heeft gewerkt, zal Hij ook het werken, het volbrengen werken en waar Hij de begeerte heeft gewerkt, zal Hij aan de begeerte voldoen.
 
 ## Psalm 119:41-42 
@@ -495,6 +496,7 @@ In zijn gebed tot God om goedertierenheid en genade waarop hij hoopte naar het W
 Hier is Davids ervaring van voordeel en weldaad, ontvangen door het Woord.
 
 1\. Als een middel tot zijn heiligmaking. Uw woord heeft mij levend gemaakt. Het heeft mij levend gemaakt toen ik dood was in zonde, het heeft mij menigmaal verlevendigd als ik dodig was voor mijn plicht, het heeft mij opgewekt tot hetgeen goed is als ik er onwillig voor was, en het heeft mij levendig gemaakt in het goede als ik er koud en onverschillig voor was." 
+
 2\. En daarom als een middel tot zijn vertroosting, als hij in lijden was en iets nodig had om hem te ondersteunen. Omdat Uw woord mij op andere tijden levend heeft gemaakt, heeft het mij toen vertroost." Er is in het Woord van God zeer veel, dat van vertroosting spreekt in lijden, maar alleen diegenen mogen het op zichzelf toepassen, die enigermate de levendmakende kracht van het Woord hebben ervaren. Als het ons door genade heilig maakt, dan is er genoeg in om ons onder alle omstandigheden en alle gebeurtenissen stil en gerust te maken.
 
 ## Psalm 119:51 
@@ -758,7 +760,9 @@ Hier:
 ## Psalm 119:92 
 Hier is:
 
-1\. De grote ellende, waarin David zich bevond, hij was in druk, op het punt van in die druk te vergaan, niet zozeer op het punt van te sterven, als wel om in wanhoop te vervallen, hij was op het punt om maar alles als verloren op te geven en zich als afgesneden van Gods aangezicht te houden. Daarom bewondert hij de goedheid Gods jegens hem, dat hij niet vergaan was, dat hij zijn ziel nog kon bezitten en door zijn rampen en benauwdheden niet buiten zijn zinnen was gebracht, maar inzonderheid, dat hij zich dicht bij zijn God kon houden, en er niet door van zijn Godsdienst was weggedreven. Hoewel we niet bewaard blijven van beproeving, hebben we toch, zo wij er voor bewaard worden om in onze beproeving te vergaan, geen reden om te zeggen: wij hebben tevergeefs ons hof gezuiverd, of, wat nuttigheid is het dat wij God gediend hebben? 2\. Zijn steun in die druk. Gods wet was zijn vermaking.
+1\. De grote ellende, waarin David zich bevond, hij was in druk, op het punt van in die druk te vergaan, niet zozeer op het punt van te sterven, als wel om in wanhoop te vervallen, hij was op het punt om maar alles als verloren op te geven en zich als afgesneden van Gods aangezicht te houden. Daarom bewondert hij de goedheid Gods jegens hem, dat hij niet vergaan was, dat hij zijn ziel nog kon bezitten en door zijn rampen en benauwdheden niet buiten zijn zinnen was gebracht, maar inzonderheid, dat hij zich dicht bij zijn God kon houden, en er niet door van zijn Godsdienst was weggedreven. Hoewel we niet bewaard blijven van beproeving, hebben we toch, zo wij er voor bewaard worden om in onze beproeving te vergaan, geen reden om te zeggen: wij hebben tevergeefs ons hof gezuiverd, of, wat nuttigheid is het dat wij God gediend hebben? 
+
+2\. Zijn steun in die druk. Gods wet was zijn vermaking.
 
 a. Dat is zij vroeger geweest, en de herinnering daaraan was hem een troost, daar het hem een goed bewijs was van zijn oprechtheid.
 
@@ -787,7 +791,7 @@ Hier:
 ## Psalm 119:95 
 Hier:
 
-1\. Klaagt David over de boosaardigheid van zijn vijanden: De goddelozen, ( en geen anderen dan dezulken zouden vijanden kunnen zijn van zo’n Godvruchtig man), hebben op mij gewacht om mij te doen vergaan. Zij waren zeer wreed, en hadden het op niets minder gemunt dan op zijn verderf, zij waren zeer listig, en zochten alle gelegenheden om hem een onheil te berokkenen, en zij waren zeker, zij verwachtten zo lezen het sommigen hem te zullen verderven, zij dachten zeker te zijn van hun prooi.
+1\. Klaagt David over de boosaardigheid van zijn vijanden: De goddelozen, (en geen anderen dan dezulken zouden vijanden kunnen zijn van zo’n Godvruchtig man), hebben op mij gewacht om mij te doen vergaan. Zij waren zeer wreed, en hadden het op niets minder gemunt dan op zijn verderf, zij waren zeer listig, en zochten alle gelegenheden om hem een onheil te berokkenen, en zij waren zeker, zij verwachtten zo lezen het sommigen hem te zullen verderven, zij dachten zeker te zijn van hun prooi.
 
 2\. Hij vertroost zich in het woord van God als zijn bescherming. "Terwijl zij mijn verderf beramen, neem ik acht op Uw getuigenissen die mij de zaligheid verzekeren." Gods getuigenissen zullen dan waarschijnlijk onze steun zijn, als wij er acht op nemen en erin onze gedachten bij verwijlen.
 
@@ -830,7 +834,10 @@ Hier is:
 
 1\. Davids zorg om de wegen van de zonde te mijden, alk heb mijn voeten geweerd van alle kwade paden, waarheen zij op het punt waren af te wijken, maar ik weerhield mij en ging terug, zodra ik bemerkte dat ik in verzoeking kwam." Hoewel het een brede weg was, een groene weg, een aangename weg, een weg waar velen op wandelden, was het toch, daar het een zondige weg was, een kwade weg, en hij heeft er zijn voeten van geweerd, daar hij het einde van die weg voorzag. En zijn zorg was algemeen, hij schuwde elke kwade weg. "Door het woord Uwer lippen heb ik mij gewacht voor de paden des verdervers," Psalm 17:4.
 
-2\. Zijn zorg om op de weg van plicht gevonden te worden, opdat ik Uw woord zou onderhouden, en het nooit zou overtreden. Dat hij zich van zonde onthield, was: a. Een bewijs, dat hij er ernstig naar streefde om Gods Woord te onderhouden, en zich dat ten regel had gesteld.
+2\. Zijn zorg om op de weg van plicht gevonden te worden, opdat ik Uw woord zou onderhouden, en het nooit zou overtreden. Dat hij zich van zonde onthield, was: 
+
+a. Een bewijs, dat hij er ernstig naar streefde om Gods Woord te onderhouden, en zich dat ten regel had gesteld.
+
 b. Het was een middel om Gods Woord te onderhouden in zijn Godsdienstige handelingen, want wij kunnen niet met vertroosting of vrijmoedigheid tot God gaan in heilige plichten zodat wij Zijn Woord onderhouden, zolang wij onder schuld zijn, of ons op bijpaden bevinden.
 
 ## Psalm 119:102 
@@ -883,7 +890,10 @@ Hier is:
 
 1\. David in gevaar zijn leven te verliezen. Er is slechts een schrede tussen hem en de dood, want de goddelozen hebben hem een strik gelegd. Saul heeft dit menigmaal gedaan, omdat hij hem haatte om zijn Godsvrucht. Overal waar hij was, bevond hij dat er het een of andere plan tegen hem beraamd was om hem van het leven te beroven want dat was het dat zij bedoelden. Wat zij door openlijk geweld niet konden teweegbrengen, hoopten zij door verraad gedaan te krijgen, hetgeen hem deed zeggen: Mijn ziel is gedurig in mijn hand. Zo was het niet slechts met hem als een mens (aldus is het waar van ons allen, waar wij ook zijn, overal zijn wij blootgesteld aan de slagen des doods, wat wij in onze handen dragen, kan ons gemakkelijk met geweld ontrukt worden, of het glijdt ons vanzelf door de vingers), maar als een krijgsman, een soldaat, die dikwijls zijn leven heeft gewaagd op de hoogten des velds, en inzonderheid als een man naar Gods hart, en als zodanig gehaat en vervolgd, "altijd in de dood overgegeven," 2 Korinthe 4:11. "de gehele dag gedood." 
 
-2\. David, in weerwil van dit alles, niet in gevaar zijn Godsdienst te verliezen. Aldus ieder uur in gevaar zijnde, maar toch getrouw blijvende aan God en zijn plicht, wordt hij door geen van deze dingen bewogen, behoeft hij er geen acht op te slaan, want: a. Hij heeft de wet niet vergeten, en daarom zal hij er waarschijnlijk in volharden. Onder de vele zorgen voor zijn eigen veiligheid, vindt hij nog plaats in zijn hoofd en zijn hart voor het Woord van God, en heeft dit even vers in zijn geheugen als ooit, en waar dit rijkelijk woont, zal het een fontein van leverde wateren wezen.
+2\. David, in weerwil van dit alles, niet in gevaar zijn Godsdienst te verliezen. Aldus ieder uur in gevaar zijnde, maar toch getrouw blijvende aan God en zijn plicht, wordt hij door geen van deze dingen bewogen, behoeft hij er geen acht op te slaan, want: 
+
+a. Hij heeft de wet niet vergeten, en daarom zal hij er waarschijnlijk in volharden. Onder de vele zorgen voor zijn eigen veiligheid, vindt hij nog plaats in zijn hoofd en zijn hart voor het Woord van God, en heeft dit even vers in zijn geheugen als ooit, en waar dit rijkelijk woont, zal het een fontein van leverde wateren wezen.
+
 b. Hij is nog niet afgedwaald van Gods bevelen, en daarom kan hij hopen dat hij het ook verder niet zal. Hij heeft menige schok verduurd en is staande gebleven, en de genade, die hem tot nu toe geholpen heeft, zal hem gewis niet falen, maar hem voor afdwalingen blijven behoeden.
 
 ## Psalm 119:111-112 
@@ -946,7 +956,11 @@ b. Hij doet hen allen weg als schuim. Goddelozen zijn als schuim, dat, hoewel he
 
 2\. De redenen voor deze oordelen. God verwerpt hen, omdat zij van Zijn inzettingen afdwalen. Zij, die zich niet willen onderwerpen aan de bevelen van het Woord, zullen er de vloeken van gevoelen. En omdat hun bedrog leugen is, omdat zij zichzelf bedriegen door valse regelen te stellen tegenover Gods inzettingen, waarvan zij afdwalen, en omdat zij trachten anderen te bedriegen met hun geveinsd voorgeven van goed en hun listige plannen voor kwaad. Hun list is bedrog, aldus Dr. Hammond. Hun staatkunde bestaat in trouweloosheid en verraad, de God van de waarheid haat dit en zal het straffen.
 
-3\. Het gebruik dat David maakt van deze oordelen: hij merkte ze op en ontving er lering uit. Het verderf van de goddelozen droeg er toe bij: a. Om zijn liefde voor het woord van God te doen toenemen. "lk zie, wat er komt van de zonde, daarom heb ik Uw getuigenissen lief, zij waarschuwen en vermanen mij om mij te wachten voor zo’n gevaarlijk doen, mij te wachten voor de paden des verdervers" Psalm 17:4. Wij zien het Woord van God vervuld in de oordelen over zonde en zondaren, en daarom behoren wij het lief te hebben. b. Zijn vrees voor de toorn Gods. Het haar mijns vleses is te berge gerezen van verschrikking voor U. In plaats van te spotten met hen, die onder Gods misnoegen gevallen zijn, heeft hij zich verootmoedigd. 
+3\. Het gebruik dat David maakt van deze oordelen: hij merkte ze op en ontving er lering uit. Het verderf van de goddelozen droeg er toe bij: 
+
+a. Om zijn liefde voor het woord van God te doen toenemen. "lk zie, wat er komt van de zonde, daarom heb ik Uw getuigenissen lief, zij waarschuwen en vermanen mij om mij te wachten voor zo’n gevaarlijk doen, mij te wachten voor de paden des verdervers" Psalm 17:4. Wij zien het Woord van God vervuld in de oordelen over zonde en zondaren, en daarom behoren wij het lief te hebben. 
+
+b. Zijn vrees voor de toorn Gods. Het haar mijns vleses is te berge gerezen van verschrikking voor U. In plaats van te spotten met hen, die onder Gods misnoegen gevallen zijn, heeft hij zich verootmoedigd. 
 Wat wij lezen en horen van Gods oordelen over goddeloze mensen, behoort ons, 
 
 Ten eerste, van eerbied te vervullen voor Zijn vreeslijke majesteit, ons ontzag voor Hem in te boezemen, "Wie zou kunnen bestaan voor het aangezicht des Heeren, deze heiligen Gods?" 1 Samuel 6:20. 
@@ -1317,7 +1331,9 @@ Hier:
 
 a. Dat hij de Godsdienst tot zijn ernstige wel overwogen keuze had gemaakt, ik heb uw bevelen verkoren. Ik nam ze tot mijn regel niet omdat ik geen anderen kende, maar omdat ik na proefneming geen betere kende. Diegenen zijn goed, en doen waarlijk goed, die goed zijn en goeddoen, niet bij geval, maar door keuze, en zij, die aldus Gods geboden of bevelen verkoren hebben, kunnen rekenen op de hulp van Gods hand in al hun diensten en onder al hun lijden.
 
-b. Dat zijn hart op de hemel was gezet, ik verlang naar Uw heII. Toen David op de troon was gekomen, heeft hij genoeg in de wereld ontmoet, dat hem aanlokte om er in te blijven en hem te doen zeggen: "Het is goed hier te zijn, " maar toch zag hij verder, en verlangde hij naar iets beters in een andere wereld. Er is een eeuwig heil waarnaar de heiligen verlangen, en daarom bidden zij, dat Gods hand hen te hulp zal komen, om op de weg, die er heenleidt vorderingen te maken, er voorwaarts op te gaan c. Dat hij er behagen in vond om zijn plicht te doen, "Uw wet is al mijn vermaking, ik verlustig er mij niet alleen in, maar zij is mijn verlustiging, het grootste vermaak, dat ik heb in deze wereld." Zij, die blijmoedig zijn in hun gehoorzaamheid, kunnen in het geloof bidden om hulp van God om hen door te helpen in hun gehoorzaamheid, en zij, die Gods heil verwachten, moeten vermaak scheppen in Zijn wet, en hun hoop moet hun genot en verlustiging doen toenemen.
+b. Dat zijn hart op de hemel was gezet, ik verlang naar Uw heII. Toen David op de troon was gekomen, heeft hij genoeg in de wereld ontmoet, dat hem aanlokte om er in te blijven en hem te doen zeggen: "Het is goed hier te zijn, " maar toch zag hij verder, en verlangde hij naar iets beters in een andere wereld. Er is een eeuwig heil waarnaar de heiligen verlangen, en daarom bidden zij, dat Gods hand hen te hulp zal komen, om op de weg, die er heenleidt vorderingen te maken, er voorwaarts op te gaan 
+
+c. Dat hij er behagen in vond om zijn plicht te doen, "Uw wet is al mijn vermaking, ik verlustig er mij niet alleen in, maar zij is mijn verlustiging, het grootste vermaak, dat ik heb in deze wereld." Zij, die blijmoedig zijn in hun gehoorzaamheid, kunnen in het geloof bidden om hulp van God om hen door te helpen in hun gehoorzaamheid, en zij, die Gods heil verwachten, moeten vermaak scheppen in Zijn wet, en hun hoop moet hun genot en verlustiging doen toenemen.
 
 ## Psalm 119:175 
 Davids hart is er nog altijd op gezet om God te loven, en daarom:

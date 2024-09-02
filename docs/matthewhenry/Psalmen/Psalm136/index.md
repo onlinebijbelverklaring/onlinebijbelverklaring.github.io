@@ -47,12 +47,17 @@ De plicht, tot welke wij hier telkens en nogmaals geroepen worden is: om Gode al
 1\. Wie wij moeten loven, Hem, van wie wij alle goed ontvangen, de Heere, Jehovah Israëls God, vers 1, de God van de goden, de God, die engelen aanbidden, van wie magistraten hun macht ontvangen, en door wie alle voorgewende godheden overwonnen zijn en zullen worden, vers 2, de Heere van de heren de soeverein van alle soevereinen, de steun van allen die steunen, vers 3. In al onze aanbidding moeten wij het oog hebben op Gods uitnemendheid, als alles overtreffende, op Zijn macht en heerschappij als onbetwistbaar en oppermachtig.
 
 2\. Waar wij Hem voor moeten loven: niet zoals de Farizeeër, die alle lof en dankzegging deed eindigen in zijn eigen lof: O God, ik dank U dat ik zo en zo ben, maar ze uitsluitend richtende tot Gods eer.
+
 A. Wij moeten God loven voor Zijn goedheid en genade, vers 1. Looft de Heere, niet alleen omdat Hij goed doet, maar omdat Hij goed is, al de stromen moeten nagegaan worden tot aan de bron, niet alleen omdat Hij barmhartig is jegens ons, maar omdat Zijn goedertierenheid in der eeuwigheid is, en uitgestrekt zal worden tot hen die na ons komen. Wij moeten God loven niet alleen voor de goedertierenheid, die ons thans bewezen wordt op aarde, maar voor die welke tot in eeuwigheid zal zijn in de heerlijkheid en blijdschap des hemels.
+
 B. Wij moeten God loven voor de blijken van Zijn macht en wijsheid. In het algemeen vers 4. Hij alleen doet grote wonderen. Het bedenken is wonderbaar, daar het plan gemaakt is door de oneindige wijsheid, de uitvoering is wonderbaar, daar zij tot stand kwam door de oneindige macht. Hij doet wonderbare dingen, die buiten Hem door niemand gedaan worden en Hij doet ze zonder de hulp en de raad van iemand anders. 
 
-Meer in het bijzonder: 
+Meer in het bijzonder:
+
 a. Hij heeft de hemelen gemaakt en ze uitgebreid en in hen zien wij niet alleen Zijn wijsheid en macht, maar wij smaken Zijn goedertierenheid in hun weldadige invloeden, zolang de hemelen er zijn, zolang is de goedertierenheid Gods in hen, vers 5.
+
 b. Hij heeft de aarde opgeheven uit de wateren, toen Hij het droge tevoorschijn liet komen, opdat zij geschikt zou zijn tot een woonstede voor de mens en ook daarin is Zijn goedertierenheid tot in eeuwigheid, vers 6, want de aarde en al haar voortbrengselen heeft Hij de kinderen van de mensen gegeven. 
+
 c. Beide hemel en aarde gemaakt hebbende, heeft Hij in weerwil van de verre afstand, waarop zij van elkaar zijn een gemeenschap tussen hen ingericht door de schepping van zon, maan en sterren, die Hij aan het uitspansel geplaatst heeft om haar licht en haar invloeden op de aarde uit te storten vers 7-9. Deze, namelijk zon en maan, zijn de grote lichten genoemd, omdat zij ons aldus toeschijnen, want anders zijn er, naar de sterrenkundigen ons zeggen, sterren, die de maan in grootte overtreffen, daar de maan echter dichter bij ons is, schijnt zij ons groter toe. Zij worden gezegd heerschappij te voeren, niet alleen omdat zij de jaargetijden regelen of besturen, meer omdat zij nuttig zijn voor de wereld, en weldoeners zijn de beste heersers, Lukas 22:25. Maar het rijk is verdeeld: de zon heerst bij dag, de maan en de sterren heersen bij nacht, (de sterren tenminste) en toch zijn alle onderworpen aan Gods bestuur en beschikking. Deze heersers, die door de heidenen vergood werden, zijn dus de dienaars van de wereld en Gods onderdanen, zon, sta stil, en gij maan.
 
 ## Psalm 136:10-22 
