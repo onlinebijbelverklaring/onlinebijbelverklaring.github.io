@@ -43,6 +43,7 @@ I. Zijn grote begeerte dat God geloofd zal worden. Hij heeft niet gedacht dat hi
 Hier is: 
 
 A. Een goede regel voor die plicht; Speel wel, met vrolijk geschal; het moet het beste wezen van hoofd en hart; het moet gedaan worden met verstand en bekwaamheid, met een helder hoofd, met de liefde van een warm hart." 
+
 B. Een goede reden voor deze plicht, want lof betaamt de oprechten. Hij is welbehaaglijk aan God; het gewaad des lofs draagt veel bij tot de schoonheid, die God aan Zijn volk schenkt, en het is een uitnemend sieraad voor onze belijdenis; het betaamt de oprechten, op wie God zoveel eer gelegd heeft om Hem eer te geven. De oprechten loven God op sierlijke wijze, want zij loven Hem met hun hart, dat is: zij loven Hem met hun eer, terwijl de lof van de geveinsde onvoegzaam is, "als een spreuk in de mond van de zotten," Spreuken 26:7.
 
 II. De hoge gedachten, die hij had van God en van Zijn oneindige volmaaktheden, vers 4,5 God maakt zich aan ons bekend:
@@ -58,6 +59,7 @@ b. Dat Hij een God is van oneindige goedheid; de aarde is vol van Zijn goedertie
 III. Zijn overtuiging van de almachtige kracht van God, klaarblijkelijk bewezen in de schepping van de wereld. Wij geloven in God en daarom prijzen wij Hem als de almachtigen Vader, Schepper van hemel en aarde aldus wordt ons hier geleerd Hem te loven. Merk op:
 
 1\. Hoe God de wereld gemaakt heeft en alle dingen in het aanzijn heeft geroepen.
+
 A. Hoe gemakkelijk. Door het woord des Heeren en door de Geest van Zijn mond zijn alle dingen gemaakt. Christus is het Woord, de Geest is de adem, zodat God de Vader de wereld gemaakt heeft en haar verlost door Zijn Zoon en Zijn Geest. Hij sprak en Hij gebood, vers 9, en dat was genoeg, meer was niet nodig. Voor de mensen zijn zeggen en doen twee, maar zo is het niet voor God; gelijk door het woord en de Geest van God de wereld was gemaakt zo werd ook de mens, deze kleine wereld gemaakt. God zei: "Laat ons mensen maken," en Hij blies hem de adem des levens in. Door het Woord en de Geest is de kerk gebouwd, deze nieuwe wereld, en wordt genade gewrocht in de ziel, de nieuwe mens, deze nieuwe schepping. Wat kan die macht niet doen, die door een woord een wereld gemaakt heeft?
 
 B. Hoe krachtdadig het gedaan was: het staat er, vers 9. Wat God doet doet Hij met goed gevolg. "Wat God doet zal in eeuwigheid zijn," Prediker 3:14. Het is krachtens dat gebod om te staan, dat zij "naar Gods verordeningen nog heden blijven staan," Psalm 119:91.
@@ -78,6 +80,7 @@ IV. De voldoening, die hij had in Gods vrijmacht en heerschappij, vers 10, 11 Hi
 
 ## Psalm 33:12-22 
 Hier wordt ons geleerd aan God de eer te geven:
+
 I. Van Zijn gewone voorzienigheid over alle de kinderen van de mensen. Hoewel Hij de mens begiftigd heeft met verstand en vrijheid van wil, heeft Hij zichzelf toch het bestuur over hem voorbehouden en zelfs over de vermogens en hoedanigheden, waardoor hij instaat is gesteld zichzelf te regeren.
 
 1\. De kinderen van de mensen zijn allen onder Zijn oog, zelfs hun hart is dit; en al de bewegingen en werkingen van hun ziel, die niemand kent dan zij zelf, kent Hij beter dan zij zelf ze kennen, vers 13, 14. Hoewel de woning van Gods heerlijkheid in de hoogste hemelen is heeft Hij toch vandaar niet slechts een uitzicht op de gehele aarde, maar ook een nauwkeurig gezicht op al de inwoners er van. Hij beschouwt hen niet slechts, maar Hij ziet op hen, ziet nauwkeurig op hen (zo wordt het woord, dat hie r gebruikt is, soms overgezet) zodat ook de minste van hun gedachten niet aan Zijn waarneming kunnen ontsnappen. Ongelovigen denken dat Hij, omdat Hij boven in de hemel woont geen kennis kan of wil nemen van hetgeen in deze lagere wereld gedaan wordt, maar vandaar, hoe hoog die woning ook zij, ziet Hij ons allen, alle dingen en personen zijn naakt en geopend voor Hem.

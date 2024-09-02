@@ -26,20 +26,30 @@ I. Hij bidt God vurig om hem te bewaren vers 2, 3. Hoor, o God, mijn stem in mij
 Merk op: De heimelijke raad eindigt in oproerigheid, verraderlijke daden beginnen in verraderlijke bondgenootschappen en samenzweringen. Verberg mij voor hen, dat zij mij niet vinden, dat zij mij niet bereiken. Laat mij veilig zijn onder uw bescherming." II. Hij klaagt over de grote boosheid en goddeloosheid van zijn vijanden. Heere, verberg mij voor hen, want het zijn de slechtste mensen, het is niet voegzaam dat men de ogen voor hen sluit, dat men hen oogluikend laat geworden, het zijn gevaarlijke mensen, die voor niets terugdeinzen, zodat ik verloren ben, indien Gij mijn partij niet neemt en voor mij tegen hen optreedt.
 
 1\. Zij zijn zeer boosaardig in hun lasteringen en smaadredenen, vers 4, 5. Zij worden aangeduid als krijgslieden, met zwaard en boog, boogschutters die nauwkeurig mikken heimelijk en plotseling de argeloze vogel schieten, die niet in gevaar denkt te zijn. Maar: 
+
 a. Hun tong is hun zwaard een vlammend tweesnijdend zwaard, een ontbloot zwaard, getrokken in toorn, waarmee zij de goede naam van hun naaste snijden, wonden en doden. De tong is een klein lid, maar evenals het zwaard "roemt het grote dingen," Jakobus 3:5. Het is een gevaarlijk wapen.
+
 b. Bittere woorden zijn hun pijlen. Vuile aanmerkingen, smadelijke bijnamen valse voorstellingen, achterklap en laster, de vurige pijlen van de boze, door hellevuur aangestoken. Hun boosaardigheid spant de boog om deze pijlen met zoveel te meer kracht af te schieten.
-c. De oprechte is hun doelwit tegen hem is hun gemelijkheid gericht, zij kunnen noch tot hem noch van hem vredig spreken. Hoe beter iemand is, hoe meer hij benijd wordt door hen, die zelf slecht zijn en hoe meer kwaad van hem gesproken wordt. d. Zij gaan hierbij met zeer veel list en behendigheid te werk, zij schieten in het verborgen opdat zij op wie zij schieten, hen niet zullen ontdekken en het gevaar zullen vermijden, want het net wordt tevergeefs gespreid voor allerlei gevogelte. En plotseling schieten zij, zonder iemand behoorlijk te waarschuwen of gelegenheid te geven om zich te verdedigen. "Vervloekt zij hij, die zijn naaste in het verborgene neerslaat in zijn eer en goede naam," Deuteronomium 27:24. Tegen een stoot van een valse tong kan men zich niet inachtnemen.
+
+c. De oprechte is hun doelwit tegen hem is hun gemelijkheid gericht, zij kunnen noch tot hem noch van hem vredig spreken. Hoe beter iemand is, hoe meer hij benijd wordt door hen, die zelf slecht zijn en hoe meer kwaad van hem gesproken wordt. 
+
+d. Zij gaan hierbij met zeer veel list en behendigheid te werk, zij schieten in het verborgen opdat zij op wie zij schieten, hen niet zullen ontdekken en het gevaar zullen vermijden, want het net wordt tevergeefs gespreid voor allerlei gevogelte. En plotseling schieten zij, zonder iemand behoorlijk te waarschuwen of gelegenheid te geven om zich te verdedigen. "Vervloekt zij hij, die zijn naaste in het verborgene neerslaat in zijn eer en goede naam," Deuteronomium 27:24. Tegen een stoot van een valse tong kan men zich niet inachtnemen.
+
 e. Hierin vrezen zij niet zij zijn zeker van een goede uitslag, en twijfelen niet of zij zullen op die wijze het doel bereiken waarnaar hun boosheid streeft. Of liever zij vrezen de toorn Gods niet, die het deel van een valse tong zal wezen. Zij zijn onbeschaamd en vermetel in het kwaad, dat zij doen aan Godvruchtigen, alsof zij daarvoor nooit ter verantwoording geroepen zullen worden.
 
 2\. Zij zijn zeer vastberaden in hun boze plannen, vers 6.
+
 a. Zij sterken zich en elkaar in deze boze zaak, en door er zich tezamen voor te verbinden, verbitteren zij elkaar nog te meer en maken elkaar zoveel te stoutmoediger. Fortiter calumniari aliquid adhaerebit. Laster maar toe, iets van de smaad zal wel blijven kleven. Het is slecht om oprecht te doen maar nog slechter is het om er elkaar in te versterken, dat is des duivels werk te doen. Het is een teken dat het hart in de hoogste mate verhard is, als het er dus op gezet is om kwaad te doen en nergens voor vreest. Het is het ambt van het geweten, om de mensen te ontmoedigen in een boze zaak, en als het geweten hierin niet slaagt, dan staat de zaak hopeloos.
+
 b. Zij gaan met zichzelf en elkaar te rade, hoe zij het meeste kwaad kunnen doen en hoe het te doen met de meeste uitwerking. Zij houden sprake van strikken te verbergen. Al hun gemeenschap met elkaar is in zonde, en hoe veilig te zondigen. Zij houden krijgsraad om de meest afdoende middelen te bedenken om kwaad te doen, over iederen strik die zij leggen, is vooruit gesproken, en daardoor werd hij gelegd met al de list van hun verenigd goddeloos vernuft.
+
 c. Zij scheppen behagen in hun atheïstische waan, dat God zelf geen kennis neemt van hun boze praktijken, zij zeggen: Wie zal ze zien Een practisch ongeloof aan Gods alwetendheid is op de bodem van al de goddeloosheid van de goddelozen.
 
 3\. Zij zijn zeer bedrijvig in het ten uitvoer brengen van hun plannen, vers 7. Zij doorzoeken allerlei ongerechtigheid, zij geven zich veel moeite om de ene of andere ongerechtigheid te ontdekken, die zij mij ten laste kunnen leggen, zij graven diep en zien zeer ver terug, om maar iets te hebben, waarvan zij mij kunnen beschuldigen." Of, "Zij zijn ijverig om nieuwe middelen te bedenken om mij kwaad te doen, daarvoor stellen zij een nauwkeurig onderzoek in, zij zetten het voort, sparen moeite noch kosten, een Belialsman graaft kwaad. De helft van de moeite, die velen doen om hun ziel in het verderf te storten, zou genoeg zijn om ze te behouden. Zij zijn meesters in de kunst van alle kwaad en verwoesting, want het binnenste van een mens en het hart zijn diep, diep als de hel, arglistig meer dan enig ding, wie zal ze kennen? Door de onverklaarbare boosaardigheid van hun vernuft en van hun wil tonen zij zich in list en boosaardigheid als het echte zaad van de slang.
 
 ## Psalm 64:8-11 
 Hier kunnen wij opmerken:
+
 I. De oordelen, die gewis over deze boosaardige vervolgers van David komen zullen. Zij hebben zich aangemoedigd in hun boosheid, maar hier is hetgeen, dat, zo zij het wilden geloven en overdenken, zou kunnen volstaan om er hen in te ontmoedigen. En het is opmerkelijk hoe de straf beantwoordt aan de zonde.
 
 1\. Zij hebben heimelijk en plotseling op David geschoten om hem te wonden, maar God zal hen schieten, want "Hij zal Zijn pijlen tegen de hittige vervolgers te werk stellen," Psalm 7:14, "tegen hun aangezicht," Psalm 21:13. En Gods pijlen zullen zekerder treffen, en sneller vliegen, en dieper doordringen, dan die van hen het kunnen. Zij hebben vele pijlen, maar het zijn slechts bittere woorden, en woorden zijn slechts wind en vloek, die zonder oorzaak is, zal niet komen, maar God heeft een pijl, die hun dood zal wezen, Zijn vloek, die nooit zonder oorzaak is, en dus zal komen daarmee zullen zij plotseling gewond worden, en dat zij er door gewond zijn, zal hun een verrassing wezen, omdat zij gerust waren en aan geen gevaar dachten.
@@ -51,12 +61,18 @@ II. De invloed, die deze oordelen zullen hebben op anderen, want het geschiedt i
 1\. Hun naburen zullen hen schuwen en voor hun eigen veiligheid zorgen, uit vrees van hun plagen te zullen ontvangen en in hun verderf te zullen delen, zo ontzettend zal het wezen en zoveel gerucht zal het maken in het land. Zij zullen wegvluchten, zoals de mannen Israëls van de tenten van Korach, Dathan en Abiram, Numeri 16:27. Sommigen denken dat dit vervuld werd in de dood van Saul toen niet alleen zijn leger verstrooid was, maar de inwoners van de naburige landstreek zo verschrikt waren door de val, niet alleen van hun koning, maar ook van zijn drie zonen, dat zij de steden verlieten en vloden, 1 Samuel 31:7.
 
 2\. De toeschouwers zullen er de voorzienigheid Gods in eren.
+
 a. Zij zullen in dat alles Gods hand zien en verstaan, en, tenzij wij dit doen, zullen wij van de beschikkingen van Gods voorzienigheid geen nut trekken. "Wie is wijs? die versta deze dingen," Hoséa 14:10. Er is ernstig nadenken nodig om de feiten recht te verstaan, en er is wijsheid nodig om er een juiste uitlegging van te geven. Gods doen is wel waardig dat wij er over nadenken, Prediker 7:13, maar het moet met verstand overdacht worden, opdat wij van een zuivere tekst geen verkeerde uitlegging geven.
+
 b. Bij de overweging ervan zullen zij door een heilig ontzag voor God worden aangegrepen, "allen in wie iets van het verstand eens mensen is zullen vrezen en sidderen voor Gods oordelen", Psalm 119:120. Zij zullen vrezen hetzelfde te doen, vrezen om vervolgers van Gods volk bevonden te worden, "slaat gij de spotter dan wordt de onverstandige schrander," Spreuken 19:25.
+
 c. Zij zullen Gods werk verkondigen, zij zullen tot elkaar spreken en tot allen, die hen omringen, van de gerechtigheid Gods in het straffen van vervolgers, hetgeen wij met verstand bij onszelf overleggen, moeten wij op verstandige wijze aan anderen bekend maken, hun tot stichting en Gode ter ere. Dit is de vinger Gods.
 
 3\. Godvruchtige mensen zullen er zeer bijzonder kennis van nemen en het zal hun een heilig genoegen wezen, vers 11.
+
 a. Het zal hun blijdschap doen toenemen: de rechtvaardige zal zich verblijden in de Heere, zich niet verblijden in de ellende en het verderf van zijn medeschepselen, maar zich verblijden omdat God verheerlijkt wordt, Zijn woord wordt vervuld en de zaak van de benadeelde onschuld met kracht wordt voorgestaan.
+
 b. Het zal hun geloof bemoedigen, zij zullen zich in de weg van de plicht aan Hem overgeven, bereid zijn om met een algeheel vertrouwen alles voor Hem te wagen.
+
 c. Hun blijdschap en hun geloof zullen zich uiten in een heilig roemen, alle oprechten van hart, die een goede consciëntie bewaren en zich Gode aangenaam maken, zullen zich beroemen, niet roemen in zichzelf, maar in de gunst van God, in Zijn gerechtigheid en goedheid, hun betrekking tot Hem en hun deel aan Hem, die roemt, roeme in de Heere.
 

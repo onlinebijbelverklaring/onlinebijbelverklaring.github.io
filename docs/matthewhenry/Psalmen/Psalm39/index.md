@@ -89,6 +89,7 @@ I. Zijn betrouwen op God, vers 8. Ziende dat alles ijdelheid is en de mens zelf 
 II. Zijn onderworpenheid aan God en zijn goedsmoeds berusten in Zijn heiligen wil, vers 10. Als onze hoop op God is voor een gelukzaligheid in de andere wereld, dan kunnen wij wel vrede hebben met al de beschikkingen van Zijn voorzienigheid over ons in deze wereld. "Ik ben verstomd, ik zal mijn mond niet opendoen om te klagen of te murmureren." Nu herkreeg hij de kalmte van gemoed, waarin stoornis was gekomen, vers 3. Van welk genot, welke vertroosting hij ook beroofd is, welk kruis hem ook opgelegd zij, hij zal gerust zijn, "want Gij hebt het gedaan; het is niet geschied bij geval, maar naar Uw wil, Uw bestel." Hier kunnen wij zien:
 
 1\. Een goede God, die alles doet, alle gebeurtenissen ons aangaande regelt. Van ieder voorval kunnen wij zeggen: "Dit is de vinger Gods, het is het doen des Heeren", wie er ook de werktuigen van mogen geweest zijn.
+
 2\. Een goed mens, die om deze reden er niets tegen zegt. Hij is stom, hij heeft niets tegen te werpen, geen vraag te doen, geen twist er om te beginnen. Al wat God doet is wel gedaan.
 
 III. Zijn begeerte naar God en de gebeden, die hij tot Hem opzond; Is iemand in lijden? dat hij bidde, zoals David hier gebeden heeft.

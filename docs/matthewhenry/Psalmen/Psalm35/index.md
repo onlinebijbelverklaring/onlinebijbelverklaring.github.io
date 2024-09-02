@@ -69,7 +69,9 @@ V. Zijn uitzicht op zijn eigen bevrijding, waaraan hij, zijn zaak aan God hebben
 1\. Hij hoopte er de vertroosting van te hebben; " mijn ziel zal zich verheugen, niet in mijn rust en veiligheid, maar in de Heere en in Zijn gunst, in Zijn belofte en in Zijn heil, overeenkomstig Zijn belofte." Blijdschap in God en Zijn heil is de enig ware, voldoening schenkende blijdschap. Zij, wier ziel bedroefd is in de Heere, die zaaien in tranen en droefheid hebben naar God, behoeven er niet aan te twijfelen dat te bestemder tijd hun ziel zich zal verheugen in de Heere, want blijdschap is voor hen gezaaid, en zij zullen ten laatste ingaan in de vreugde van hun Heere.
 
 2\. Hij beloofde dat God er dan de eer van zal ontvangen, vers 10. Al mijn beenderen zullen zeggen: Heere, wie is U gelijk? 
+
 a. Hij zal God loven niet de gehele mens, met al wat binnen in hem is, en met al de kracht en de vermogens van zijn ziel, aangeduid door zijn beenderen, die binnen in het lichaam zijn en er de kracht van uitmaken.
+
 b. Hij zal Hem loven als gadeloos, ongeëvenaard in volmaaktheid. Wij kunnen niet uitdrukken hoe groot en goed God is, en daarom moeten wij Hem loven als weergaloos. Heere, wie is U gelijk? Er is geen andere zodanige beschermer van de verdrukte onschuld, geen zodanige straffer van juichende tirannie. De formering van onze beenderen, zo wondervol, zo kunstig, Prediker 11:5, Psalm 139:16, het nut onzer beenderen en hun bewaring, en inzonderheid het leven dat bij de opstanding in de dorre beenderen geblazen zal worden en ze zal doen groeien als het tere gras, verplichten ieder been in ons lichaam om, indien het kon spreken, te zeggen: Heere, wie is U gelijk? en gewillig te zijn tot alle dienst en lijden voor Hem.
 
 ## Psalm 35:11-16 
@@ -94,6 +96,7 @@ b. Zij knarsen met hun tanden over mij; spraken nooit anders dan met de heftigst
 
 ## Psalm 35:17-28 
 In deze verzen 
+
 I. Beschrijft David evenals tevoren de grote onrechtvaardigheid, boosaardigheid en onbeschoftheid van zijn vervolgers, er op pleitende bij God als een reden, waarom Hij hem tegen hen zal beschermen en verschijnen zal tegen hen.
 
 1\. Zij waren zeer onrechtvaardig, ten onrechte waren zij zijn vijanden, want hij had hun geen kwaad gedaan, zij haatten hem zonder oorzaak; ja meer, zij haatten hem om hetgeen waarvoor zij hem veeleer hadden moeten liefhebben en eren. Dit wordt aangehaald met toepassing op Christus en wordt gezegd in Hem vervuld te zijn, Johannes 15:25. " Zij hebben Mij zonder oorzaak gehaat." 
