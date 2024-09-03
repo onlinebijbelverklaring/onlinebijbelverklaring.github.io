@@ -82,7 +82,7 @@ Het doel van deze verzen is aan te tonen:
 
 2\. Welk goed gebruik wij behoren te maken van de wijsheid, die God ons geeft, wij moeten haar gebruiken om ons te leiden en te besturen in de paden van de deugd, en om ons te wapenen tegen iedere soort van verzoeking.
 
-3. Naar welke regelen wij bij onszelf kunnen onderzoeken, of wij al of niet deze wijsheid hebben, deze boom zal gekend worden aan zijn vruchten, indien wij waarlijk wijs zijn, dan zal dit blijken uit onze zorg om alle kwaad gezelschap en alle boze praktijken te mijden. Deze wijsheid zal ons van nut zijn:
+3\. Naar welke regelen wij bij onszelf kunnen onderzoeken, of wij al of niet deze wijsheid hebben, deze boom zal gekend worden aan zijn vruchten, indien wij waarlijk wijs zijn, dan zal dit blijken uit onze zorg om alle kwaad gezelschap en alle boze praktijken te mijden. Deze wijsheid zal ons van nut zijn:
 
 I. Om ons te bewaren voor kwaad, voor het kwaad van de zonde, en bijgevolg voor het kwaad van de benauwdheid, waarvan zij vergezeld gaat. In het algemeen, vers 10, 11. "Als de wijsheid u geheel en al in bezit heeft, dan zal zij u bewaren." En wanneer heeft zij ons geheel in bezit? 
 
