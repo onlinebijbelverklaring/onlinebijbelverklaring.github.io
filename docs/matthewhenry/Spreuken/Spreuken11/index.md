@@ -34,10 +34,12 @@
 Gelijk nauwgezetheid tegenover God een tak is van algemene rechtvaardigheid (hij is geen eerlijk man, die geen vroom man is) zo is rechtvaardigheid tegenover de mensen een tak van de ware Godsdienst, hij is geen vroom, geen Godvruchtig man, die geen eerlijk man is, ook kan hij niet verwachten dat zijn vroomheid Gode welbehaaglijk zijn zal, want:
 
 1\. Niets is meer aanstotelijk voor God dan bedrog in de handel. Een bedrieglijke weegschaal is hier genomen voor allerlei onrechtmatige en bedrieglijke praktijken, zij zijn de Heere een gruwel, en maken hen gruwelijk in Zijn ogen, die zich van zulke gevloekte kunsten bedienen om welvaart te verkrijgen. Het is een belediging van de gerechtigheid, waarvan God de schutsheer is, zowel als een onrecht aan onze naaste, van wie God de beschermer is. De mensen achten zulke bedriegerijen gering, denken dat er geen zonde is in hetgeen waarmee geld te verkrijgen is, en zolang het onontdekt blijft kunnen zij er zich niet om laken, een vlek is geen vlek voor zij ontdekt is, Hoséa 12:8, 9. Maar zij zijn er niet minder Gode een gruwel om, en Hij zal wrake doen over hen, die hun broederen bedriegen. 
+
 2\. Niets is Gode meer welbehaaglijk dan een eerlijke, oprechte handel en wandel, en niets is meer noodzakelijk om ons en onze Godsdienstige verrichtingen Hem welbehaaglijk te maken, een volkomen weegsteen is Zijn welgevallen. Hij zelf gebruikt een rechte weegsteen, en de weegschaal van Zijn gerechtigheid is een rechte weegschaal, en daarom heeft Hij een welbehagen in hen, die Hem hierin navolgen. Een weegschaal die bedriegt onder voorgeven van geheel nauwkeurig recht te zijn, is daarom Gode een zoveel groter gruwel.
 
 ## Spreuken 11:2 
 Merk op:
+
 1\. Hoe hij, die zich verhoogt, hier vernederd wordt, en hem schande wordt aangedaan. Als de hovaardigheid komt, zal de schande ook komen. Hoogmoed is een zonde, waarvoor de mensen alle reden hebben om zich te schamen. Het is schande voor een mens, die uit de aarde is voortgekomen, van aalmoezen leeft, van God afhankelijk is, en alles verbeurd heeft wat hij heeft, om hoogmoedig te zijn. Het is een zonde, waarover anderen schande roepen en waarop zij met minachting neerzien, wie hovaardig is, maakt zich verachtelijk, het is een zonde, waarvoor God de mensen dikwijls naar beneden brengt, zoals Hij Nebukadnézar en Herodes naar beneden gebracht heeft, wier schande en versmaadheid terstond op hun hoogmoedige eigenwaan is gevolgd want God wederstaat de hovaardigen, spreekt hen tegen, werkt hen tegen in hetgeen, waarop zij hoogmoedig zijn, Jesaja 2:11 en verv.
 
 2\. Hoe hij, die zichzelf vernedert, hier verhoogd wordt, en hem een schoon, groot karakter wordt toegeschreven. Gelijk er bij de hoogmoedigen dwaasheid is en schande zijn zal, zo is er met de ootmoedigen wijsheid en zal er eer met hem wezen, want iemands wijsheid verkrijgt hem achting, en doet zijn aangezicht blinken voor de mensen. Of, zo er sommigen laaghartig genoeg zijn om de ootmoedigen te vertreden, zal God hun genade geven, en dat zal hun eer wezen. In aanmerking nemende hoe veilig, hoe kalm en gerust zij zijn, die van een nederige geest zijn, zeggen wij: Met de ootmoedigen is wijsheid.
@@ -56,7 +58,9 @@ De dag des doods zal een dag des toorns wezen, hij is een bode van Gods toorn, d
 Deze twee verzen zijn eigenlijk aan elkaar gelijk, zij hebben beide dezelfde strekking als vers 3. Want de waarheden hier zijn van zo’n gewisheid en van zo groot gewicht, dat zij ons niet te dikwijls ingeprent kunnen worden. Wij moeten ons door deze beginselen laten regeren.
 
 1\. Dat de wegen van de Godsdienst recht en veilig zijn, en dat wij er van een heilige gerustheid kunnen genieten. Een levend beginsel van trouw en genade zal zijn:
+
 a. Onze beste gids op de rechte weg, om ons in ieder twijfelachtig geval te zeggen: Dit is de weg, wandel in henzelf. Hij, die zonder bedrog handelt, ziet rechtuit, en ziet zijn weg voor zich.
+
 b. Onze beste redding van elke bedrieglijke weg. De gerechtigheid van de oprechten is hun wapenrusting om hen te beschermen tegen de verlokkingen van de duivel en de wereld en tegen hun dreigementen.
 
 2\. De wegen van de goddeloosheid zijn gevaarlijk en verwoestend. De goddeloze valt in ellende en verderf door zijn eigen goddeloosheid, hij wordt gevangen in zijn eigen verkeerdheid als in een strik. O Israël, gij hebt uzelf verdorven, Hoséa 13:9,. Zijn zonde zal zijn straf zijn, dezelfde zaak, door welke zij dachten zich te beschutten, zal zich tegen hen keren.
@@ -73,18 +77,24 @@ Gelijk altijd in de dood, zo is het ook soms in het leven: de rechtvaardigen wor
 
 ## Spreuken 11:9 
 Hier is:
+
 1\. Geveinsdheid kwaad beramende. Het is niet alleen de moordenaar met zijn zwaard, ma ar de huichelaar met zijn mond, die zijn naaste verderft, hem verlokkende tot zonde, of in kwaad, door schoonschijnende woorden van vriendelijkheid en liefde. Dood en leven zijn in de macht van de tong, maar geen tong is noodlottiger dan de vleiende tong.
 
 2\. Eerlijkheid het plan verijdelende en ontkomende aan de strik, door wetenschap, kennis van de raadslagen des Satans, worden de rechtvaardigen bevrijd uit de strikken, die de huichelaar voor hen gespannen heeft, de verleiders zullen de uitverkorenen niet bedriegen. Door de kennis van God en de Schriften en van hun eigen hart zullen de rechtvaardigen bevrijd worden van degenen, die loeren op een gelegenheid om hen te bedriegen, en hen aldus te verderven, Romeinen 16:18, 19.
 
 ## Spreuken 11:10-11 
 Hier wordt opgemerkt:
+
 1\. Dat de Godvruchtigen over het algemeen door hun naasten worden bemind, maar dat niemand houdt van slechte mensen.
+
 a. Weliswaar, er zijn enkelen, die vijanden zijn van de rechtvaardigen, die bevooroordeeld zijn tegen God en Godsvrucht, en voor wie het dus een kwelling is om Godvruchtige mensen macht en voorspoed te zien hebben, maar alle onpartijdige personen, zelfs degenen, die niet bijzonder Godsdienstig zijn, hebben voor een goed man een goed woord, en daarom zal het als de rechtvaardigen welvaren, als zij bevorderd worden, in staat worden gesteld om naar de begeerte huns harten goed te doen, zoveel te beter zijn voor allen, die hen omringen, en zal de stad zich verblijden. Tot eer en ter aanmoediging van de deugd, en omdat het de vervulling is van Gods belofte, behoren wij ons te verheugen als wij deugdzame mensen voorspoedig zien in de wereld, in eer zien gebracht.
+
 b. Goddeloze mensen kunnen misschien hier en daar iemand hebben, die hun genegen is, en wel onder degenen, die ten enenmale zijn zoals zij, maar over het algemeen ontmoeten zij kwaadwilligheid onder hun naburen, zij kunnen gevreesd zijn, maar zij zijn niet bemind en daarom is er gejuich als zij vergaan. Het doet iedereen genoegen hen onteerd en ontwapend te zien, ontzet uit posten van vertrouwen en macht, uit de wereld verjaagd, en men wenst dat aan de stad geen groter onheil zal overkomen dan hun heengaan er voor is, en dat wel te meer omdat zij hopen dat de rechtvaardigen in hun plaats zullen komen, zoals zij in de plaats van de rechtvaardigen in benauwdheid komen, vers 8. Laat dan eerbesef ons in de paden van de deugd houden, opdat wij begeerd mogen zijn terwijl wij leven, en betreurd zullen worden als wij sterven, en niet van het toneel weggefloten worden, Job 27:23, Psalm 52:7.
 
 2\. Dat er een goede reden hiervoor is, want zij, die goed zijn, doen goed, meer zoals het spreekwoord van de ouden zegt van de goddelozen komt goddeloosheid voort.
+
 a. Godvruchtige mensen zijn openbare zegeningen "Vir bonus est commune bonum. Door de zegen van de oprechten," de zegeningen, waarmee zij gezegend zijn, die hun sfeer van nuttige werkzaamheid verruimen, door de zegeningen, waarmee zij hun naburen zegenen, door hun raad, hun voorbeeld, hun gebeden, en al de gevallen, waarin zij de openbare belangen van dienst zijn, door de zegeningen, waarmee God anderen zegent om hunnentwil door dit alles wordt een stad verheven, aangenamer en gerieflijker gemaakt voor de inwoners, en van meer gewicht en aanzien onder haar naburen.
+
 b. Goddeloze mensen zijn een ieder tot last, zij zijn de plaag van hun geslacht, door de mond van de goddelozen wordt de stad verbroken, door hun kwade samensprekingen worden goede zeden verdorven, de gehele stad wordt er door verdorven, wordt de deugd er uit verbannen en komen de oordelen Gods er over.
 
 ## Spreuken 11:12-13 
@@ -93,7 +103,9 @@ Stilzwijgen wordt hier aanbevolen als een blijk van ware vriendschap en een midd
 1\. Van wijsheid. Een man van verstand, die over zijn eigen geest heerst, zal, als hij getergd wordt, stilzwijgen, opdat hij noch lucht zal geven aan zijn eigen hartstocht, noch de drift of de hartstocht van anderen zal opwekken door smadelijke woorden te gebruiken of scherpe opmerkingen te maken.
 
 2\. Van oprechtheid. Hij, die getrouw is van geest, die getrouw is, niet alleen aan zijn eigen belofte, maar aan het belang van zijn vriend, bedekt iedere zaak, die, zo zij ontdekt werd, ten nadele van zijn naaste zou zijn. Dit voorzichtig, vriendschappelijk bedekken, wordt hier gesteld tegenover twee boze ondeugden van de tong.
+
 a. Met minachting van iemand spreken in zijn bijzijn. Die verstandeloos is, toont zijn dwaasheid hierin, dat hij zijn naaste veracht. Om het minst of geringst noemt hij hem Raka, en gij dwaas, en vertreedt hem, behandelt hem met minachting, alsof hij niet waardig was om bij de honden van zijn kudde gesteld te worden. Hij onderschat zichzelf, die aldus iemand onderschat, die van hetzelfde leem geformeerd is als hijzelf.
+
 b. Op boosaardige wijze van iemand te spreken echter zijn rug, een achterklapper die met al de verhalen, die hij hoort, of zij waar of niet waar zijn, rondloopt, van huis tot huis gaat, om kwaad aan te stichten en onenigheid te zaaien, openbaart het heimelijke, geheimen, die hem toevertrouwd waren, en aldus verbreekt hij de wetten, en verbeurt hij al de voorrechten van vriendschap en van een vertrouwelijke omgang.
 
 ## Spreuken 11:14 
@@ -105,14 +117,18 @@ Hier is:
 
 ## Spreuken 11:15 
 Hier wordt ons geleerd:
+
 1\. In het algemeen: dat wij met onze bezittingen niet mogen doen wat wij willen. Hij, die ze ons gaf, heeft zich het recht voorbehouden om ons te besturen in het gebruik ervan, want zij zijn ons eigendom niet, wij zijn er slechts de rentmeesters van. En voorts, dat God in Zijn wet te rade gaat met onze belangen, en ons die barmhartigheid leert, welke thuis begint, zowel als die, welke daar niet moet eindigen. Er is een goed beheer en bestier van zaken, dat ook goede Godgeleerdheid is, een wijs beleid in het regelen van onze zaken, dat tot de aard van een Godvruchtig man behoort, Psalm 112:5. Iedereen moet rechtvaardig zijn voor zijn eigen gezin, want anders neemt hij zijn rentmeesterschap niet getrouw waar.
 
 2\. In het bijzonder, dat wij niet roekeloos en onnadenkend borg voor iemand moeten blijven.
+
 a. Omdat er gevaar is, dat wij onszelf in moeilijkheden er mee brengen, onszelf, en ook ons gezin, als wij zijn heengegaan. Als iemand borg geworden is voor een vreemde, voor de eerste de beste, die er hem om vroeg, hem beloofd heeft hem op een andere tijd dezelfde dienst te bewijzen, iemand, wiens persoon hij misschien kent, en wiens omstandigheden hij meent te kennen, maar waarin hij zich vergist, hij zal zeker verbroken worden, er misschien zelf bankroet om moeten gaan. Onze Heere Jezus is borg geworden voor ons toen wij vreemdelingen waren, ja meer, toen wij vijanden waren, en Hij is verbroken geworden, het behaagde de Heere Hem te verbrijzelen.
+
 b. Omdat hij, die zich voor al zulk borg blijven wacht, zich op veilige grond houdt. Dat kan iemand doen door zich niet verder in zaken te steken dan zijn vermogen of zijn crediet reikt, zodat hij het niet nodig heeft om anderen te vragen zich voor hem borg te stellen.
 
 ## Spreuken 11:16 
 Hier:
+
 1\. Wordt toegegeven, dat geweldigen de rijkdom vasthouden, dat zij, die zich veel beweging geven in de wereld, mannen zijn van geestkracht en van invloed, die in staat zijn zich te handhaven tegenover allen, die hun in de weg treden, waarschijnlijk houden zullen wat zij hebben, en nog meer zullen verkrijgen, terwijl op hen, die zwak zijn, allen van rondom zullen aanvallen als roofvogels op een prooi.
 
 2\. Het wordt als toegestaan beschouwd en aangenomen, dat een aangename huisvrouw even bezorgd is om haar eer op te houden, haar reputatie voor wijsheid en zedigheid, nederigheid en heusheid en alle andere genadegaven, die de echte versierselen zijn van haar sekse als sterke mannen of geweldigen, om hun bezittingen vast te houden en te beveiligen, en die vrouwen, die in waarheid aangenaam, Godvruchtig zijn, zullen evenzo door haar wijsheid en haar goed gedrag haar eer handhaven en beveiligen. Een Godvruchtige vrouw is even achtbaar als een kloekmoedig man, en haar eer is even wel bewaard en veilig.
@@ -176,24 +192,28 @@ Wij zijn zo achterlijk in werken van liefdadigheid, en zo gereed om te denken da
 
 ## Spreuken 11:26 
 Zie hier 
+
 1\. Welk gebruik wij moeten maken van de gaven van Gods milddadigheid, wij moeten ze niet ophopen bloot voor ons eigen gebruik en voordeel, opdat wij er verrijkt door worden, neen, wij moeten ze voortbrengen ten nutte van anderen, opdat zij er door ondersteund en onderhouden zouden worden. Als koren duur en schaars is, dan is het zonde om het in te houden, in de hoop dat het nog duurder zal worden, en alzo de marktprijzen hoog te houden en nog te doen stijgen, als zij reeds zo hoog zijn dat de armen er door lijden. In zulke tijden is het de plicht van hen, die voorraden van koren onder zich hebben, om met barmhartigheid te denken aan de armen, bereid te zijn om volgens de marktprijzen te verkopen en tevreden te zijn met matige winst, en er niet op uit te zijn om uit Gods oordelen gewin voor zichzelf te verkrijgen. Het is een edele en verreikende daad van barmhartigheid van hen, die voorraden in bezit hebben, waarmee zij het kunnen doen om er toe bij te dragen om de marktprijzen laag te houden, als de prijs van onze koopwaren buitensporig hoog wordt.
 
 2\. Hoe wij acht hebben te slaan op de stem des volks, wij moeten niet denken dat het een onverschillige zaak is, niet de moeite waard is om er op te letten, of het volk ons goed of kwalijk gezind is, of onze naburen goed of kwaad over ons denken, of zij voor ons bidden of ons vervloeken, want hier wordt ons geleerd hun vloek te vrezen en veel liever moeten wij onze winst willen derven dan ons hun vloek op de hals te halen, hun zegeningen begeren en er moeite voor doen om die te verkrijgen. Soms, "Vox populi vox Dei is de stem des volks de stem van God." 
 
 ## Spreuken 11:27 
 Merk op:
+
 1\. Zij, die naarstig zijn om goed te doen in de wereld, worden door God en de mensen bemind, hij die vroeg opstaat voor hetgeen goed is luidt het oorspronkelijke, die de gelegenheden opzoekt om zijn vrienden van dienst te zijn en de armen te helpen, en zich daarin ten koste geeft, verkrijgt gunst, allen om hem heen beminnen hem, spreken goed van hem, en zullen bereid zijn hem een vriendelijkheid te bewijzen en wat nog beter is, beter is dan het leven, hij heeft Gods goedertierenheid.
 
 2\. Zij, die vlijtig zijn om kwaad te doen, bereiden verderf voor zichzelf, het zal hun overkomen, vroeg of laat krijgen zij betaald in hun eigen munt. En merk op: het kwade na te trachten wordt hier gesteld tegenover het goede na te jagen, want die geen goed doen, doen kwaad.
 
 ## Spreuken 11:28 
 Merk op:
+
 1\. Onze rijkdom zal ons falen als wij in de grootste nood zijn. Hij, die er op vertrouwt, alsof die hem de gunst van God kon verzekeren zijn bescherming en zijn deel kon wezen, zal vallen, als iemand, die met zijn gehele gewicht op een gebroken rietstaf steunt, die hem niet slechts zal teleurstellen, maar in zijn hand zal gaan en die zal doorboren.
 
 2\. Onze gerechtigheid zal ons van dienst zijn, als onze rijkdom faalt. De rechtvaardigen zullen dan groenen als loof, het loof van de gerechtigheid, als een boom welks blad niet afvalt, Psalm 1:3. Zelfs in de dood, als de rijkdom de mens faalt, zullen de beenderen van de rechtvaardigen groenen als het tedere gras, Jesaja 66:14. Als zij, die wortel schieten in de wereld verdorren, zullen degenen, die ingeënt zijn in Christus Zijn wortels en Zijn vettigheid deelachtig zijn geworden, vruchtbaar zijn en bloeien.
 
 ## Spreuken 11:29 
 Twee uitersten in het beheer van familiezaken worden hier veroordeeld en de boze gevolgen ervan voorzegd.
+
 1\. Zorgvuldigheid en vleselijke wijsheid van de ene kant. Er zijn zodanigen die door hun buitensporige ijver in het najagen van de wereld, hun overmatige bezorgdheid omtrent hun zaken, hun gemelijkheid onder verliezen, hun uiterste strengheid jegens hun dienstboden, hun karigheid tegenover hun gezin, hun huis beroeren, een voortdurende kwelling zijn voor allen, die hen omringen. Wederom anderen denken door partijschappen en veten in hun familie te onderhouden en aan te wakkeren, die in werkelijkheid een beroering zijn voor hun huis, voordeel voor zichzelf te behalen, er of geld door te gewinnen, of te sparen, maar beide zullen teleurgesteld worden: zij zullen wind erven. Alles wat zij door zulke kunstgrepen verkrijgen, zal niet slechts leeg en waardeloos zijn als de wind, maar luidruchtig en lastig, het zal ijdelheid en kwelling des geestes zijn.
 
 2\. Zorgeloosheid en gebrek aan gewoon gezond verstand, van de andere kant. Hij, die een dwaas is in zijn zaken, die ze of niet behartigt, of er verkeerd mee tewerk gaat, geen beleid en geen goede berekening heeft verliest niet slechts zijn reputatie en zijn invloed maar wordt een knecht desgenen, die wijs van hart is, hij is tot armoede vervallen, en is genoodzaakt om te werken voor zijn levensonderhoud, terwijl zij, die met wijsheid handelen, zich opwerken en er toe komen om heerschappij te hebben over hem en over anderen die hem gelijk zijn. Het is redelijk en gepast dat de dwaas een knecht wordt van hen, die wijs van hart zijn, en ook in dat opzicht zijn wij gehouden en verplicht om onze wil te onderwerpen aan de wil van God, Hem onderdanig te wezen, omdat wij dwazen zijn, en Hij oneindig wijs is.
@@ -202,6 +222,7 @@ Twee uitersten in het beheer van familiezaken worden hier veroordeeld en de boze
 Hieruit blijkt welke grote zegeningen Godvruchtige mensen zijn, inzonderheid zij, die daarbij grote wijsheid bezitten, voor de plaats hunner inwoning, en derhalve, hoe hogelijk zij gewaardeerd behoren te worden.
 
 1\. De rechtvaardigen zijn als bomen des levens, de vruchten van hun Godsvrucht en liefdadigheid, hun onderwijs, hun bestraffingen, hun voorbeeld en hun gebed, hun invloed in de hemel en op aarde zijn als de vruchten van die kostelijke, zegenrijke boom, die bijdraagt tot het onderhoud en de voeding van het geestelijke leven in velen, zij zijn de sieraden van het paradijs, Gods kerk op aarde, om wier wil hij bestaat.
+
 2\. De wijzen zijn nog iets meer, zij zijn bomen van de kennis, geen verboden maar geboden kennis. Die wijs is, zal door zijn wijsheid mee te delen, zielen vangen, ze er toe brengen om God lief te hebben en heiligheid lief te hebben, en zo wint hij hen voor de belangen van Gods koninkrijk onder de mensen. De wijzen worden gezegd velen te rechtvaardigen Daniel 12:3. Abrahams proselieten worden de zielen, die hij verkregen had, genoemd, Genesis 12:5. Zij, die zielen willen vangen, hebben wijsheid nodig, om te weten hoe er mee om te gaan, en zij, die zielen vangen, tonen dat zij wijs zijn.
 
 ## Spreuken 11:31 

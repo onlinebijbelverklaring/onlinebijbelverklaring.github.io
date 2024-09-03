@@ -109,6 +109,7 @@ Hier wordt:
 Hier zijn twee dingen om zich over te verwonderen.
 
 1\. Een wijs man, die nog niet voldaan is over zijn wijsheid, maar haar nog zoekt te vermeerderen, hoe meer hij heeft des te meer hij zou willen hebben. Een verstandig hart verblijdt zich in de kennis, die het verkregen heeft, maar begeert nog meer, en door het gebruik van de middelen om kennis te verkrijgen, streeft het naar meer, toenemende in genade en in de kennis van Christus. "Si dixisti, sufficit, periisti, indien gij zegt: ik heb genoeg, dan is het met u gedaan." 
+
 2\. Een dwaas, die voldaan is over zijn dwaasheid, en niet zoekt om er van genezen te worden. Terwijl een Godvruchtige hongert naar de wezenlijke voldoening van de genade, onthaalt een vleselijk-gezinde zich op de bevrediging van zijn lusten en grillen. IJdele vrolijkheid en zinnelijke genietingen zijn zijn verlustiging, en daarmee stelt hij zich tevreden, zich bekorende in deze dwaze wegen.
 
 ## Spreuken 15:15 
@@ -122,13 +123,19 @@ Zie hier welk een groot verschil er is tussen de toestand en de gemoedsgesteldhe
 In het vorige vers had Salomo gezegd dat hij, die geen grote bezitting of een ruim inkomen, maar een blijmoedige geest heeft, een gedurige maaltijd heeft. Christelijke vergenoegdheid en blijdschap in God maken het leven gemakkelijk en aangenaam. Nu zegt hij ons hier wat er nodig is om zo’n blijmoedige geest te hebben, wat het is, hetwelk aan de mens die voortdurende maaltijd kan bezorgen, al heeft hij ook weinig in de wereld. Het is heiligheid en liefde.
 
 1\. Heiligheid. Weinig, dat wij goed besturen en genieten in de vreze des Heeren, als wij een goede consciëntie bewaren, volharden in de weg des plichts, en met het weinige dat wij hebben God getrouwelijk dienen, zal aangenamer zijn en meer voordeel opleveren, dan een grote schat en onrust daarbij. Merk hier Op:
+
 a. Het is dikwijls het lot van hen, die God vrezen, om slechts weinig van deze wereld te hebben, de armen nemen het Evangelie aan en nog zijn zij arm, Jakobus 2:5.
+
 b. Zij, die een grote schat hebben, hebben dikwijls onrust daarbij, hij draagt er zo weinig toe bij om hen gerust en rustig te doen zijn, dat hij integendeel hun zorg en onrust baart. De zatheid van de rijken laat hen niet slapen.
+
 c. Als een grote schat onrust teweegbrengt, dan is dit uit gebrek aan de vreze des Heeren. Indien zij, die grote bezittingen hebben, er hun plicht mee wilden doen, en ze dan aan God wilden toevertrouwen, dan zou er bij hun schat niet zoveel onrust zijn.
+
 d. Daarom is het veel beter en meer begerenswaardig om slechts weinig van de wereld te hebben, en daarbij een goede consciëntie, gemeenschap met God te onderhouden, er Hem in te genieten en te leven door het geloof, dan de grootste overvloed te hebben en zonder God in de wereld te leven.
 
 2\. Liefde. Na de vreze Gods, is vrede met alle mensen nodig voor behaaglijkheid in dit leven.
+
 a. Indien broeders eendrachtig samenwonen, indien zij vriendelijk en hartelijk en aangenaam zijn beide bij hun dagelijkse maaltijden en in hun meer plechtige bijeenkomsten ter maaltijd, dan zal dit een gerecht van groen moes tot een feestmaal maken, al zijn de spijzen ook grof, en al is het vermogen zo klein, dat zij geen betere kunnen verschaffen, zal de liefde toch alles verzoeten, en zij kunnen er even vrolijk bij zijn alsof zij lekkernijen hadden.
+
 b. Als er onderlinge vijandschap en twist is, kan er geen genot of genoegen zijn, al zou men ook een gehele os, een gemeste os, voor zijn middagmaal hebben, de zuurdesem van boosaardigheid, van haten en gehaat te worden, is genoeg om alles te verzuren. Sommigen passen het toe op hem, die de maaltijd geeft, beter is een schraal maal maar er hartelijk welkom aan te wezen, dan een rijk voorziene dis, waaraan men met een onvriendelijk oog ontvangen wordt.
 
 ## Spreuken 15:18 

@@ -76,6 +76,7 @@ Het is de dwaasheid van sommigen, dat zij gaarne naar buiten een groot aanzien h
 
 ## Spreuken 12:10 
 Zie hier:
+
 1\. In hoe hoge mate een Godvruchtige barmhartig is, hij heeft niet slechts medelijden met de menselijke natuur onder haar grootste vernedering of verlaging, maar hij geeft ook acht op het leven van zijn beesten, niet alleen omdat zij hem dienen, maar omdat zij Gods schepselen zijn, en in overeenstemming met Gods voorzienigheid, die mens en beest behoedt. De beesten die onder onze zorg zijn, moeten van het nodige worden voorzien, zij moeten geschikt voedsel en rust hebben, en nooit worden mishandeld of getiranniseerd. Bileam werd bestraft omdat hij zijn ezelin sloeg. De wet zorgde voor ossen. Diegenen dus zijn onrechtvaardige mensen, die niet rechtvaardig zijn tegenover het redeloos vee, zij, die woest en wreed tegen hen zijn, geven blijk van een gewoonte van barbaarsheid, en werken er toe mee dat het gehele schepsel zucht, Romeinen 8:22.
 
 2\. In hoe hoge mate een goddeloos man onbarmhartig is, zelfs zijn barmhartigheden zijn wreed, het natuurlijk medelijden, dat in hem is als mens, is verloren, en is door de kracht van het bederf veranderd in hardheid van hart, zelfs hetgeen zij voor medelijden willen doen doorgaan, is nog wreed, zoals Pilatus besluit betreffende Christus, de onschuldige: ik zal hem kastijden en loslaten. Hun voorgewende goedheid is slechts een dekmantel voor voorgenomen wreedheid.
@@ -114,9 +115,9 @@ Zie hier:
 ## Spreuken 12:16 
 Drift is dwaasheid: Een dwaas wordt gekend aan zijn toorn, zo lezen sommigen de zin. Niet dat een wijs man niet toornig kan zijn als er goede reden voor is, maar dan houdt hij zijn toorn in bedwang, hij is zijn toorn meester, terwijl de toorn van een dwaas hem beheerst. Hij, die, als hij getergd of geprikkeld wordt zich terstond lucht geeft in onbetamelijke uitdrukkingen, wiens drift zijn gelaat verwringt die woedend wordt zodat hij zichzelf vergeet, voorzeker, Nabal is zijn naam, en dwaasheid is met hem. De toorn van de dwazen wordt tenzelven dage bekend, hij maakt hem openlijk bekend, in welk gezelschap hij zich ook bevindt, of, hij wordt bekend op dezelfde dag wanneer hij geprikkeld wordt, hij kan er niet mee wachten om te tonen dat hij boos is. Zij, die spoedig toornig zijn, die door het minste vonkje terstond in vlam geraken, hebben de heerschappij niet over hun geest, die zij behoorden te hebben. Zachtmoedigheid is wijsheid. Die kloekzinnig is, bedekt de schande.
 
-a. Hij bedekt de hartstocht, die in zijn eigen binnenste woedt, als zijn geest bewogen, ontroerd is, zijn hart brandende in hem is, bewaart hij zijn mond als met een breidel, en onderdrukt, smoort zijn toorn. Toorn is schande, en hoewel een wijs man er niet volkomen vrij van is, schaamt hij er zich over, bestraft hij er zichzelf om, laat hij de boze geest niet aan het woord komen.
+1\. Hij bedekt de hartstocht, die in zijn eigen binnenste woedt, als zijn geest bewogen, ontroerd is, zijn hart brandende in hem is, bewaart hij zijn mond als met een breidel, en onderdrukt, smoort zijn toorn. Toorn is schande, en hoewel een wijs man er niet volkomen vrij van is, schaamt hij er zich over, bestraft hij er zichzelf om, laat hij de boze geest niet aan het woord komen.
 
-b. Hij bedekt de belediging, die hem is aangedaan ziet haar voorbij, bedekt haar zoveel als hij kan voor zichzelf, opdat hij in zijn toorn er over niet te ver zal gaan. Het is een vriendelijkheid jegens onszelf, en draagt veel bij tot de rust van ons eigen gemoed, om de beledigingen, die ons worden aangedaan, te verzachten en te verontschuldigen, inplaats van ze te verzwaren en ze nog erger voor te stellen dan zij zijn, waartoe wij maar al te veel geneigdheid hebben.
+2\. Hij bedekt de belediging, die hem is aangedaan ziet haar voorbij, bedekt haar zoveel als hij kan voor zichzelf, opdat hij in zijn toorn er over niet te ver zal gaan. Het is een vriendelijkheid jegens onszelf, en draagt veel bij tot de rust van ons eigen gemoed, om de beledigingen, die ons worden aangedaan, te verzachten en te verontschuldigen, inplaats van ze te verzwaren en ze nog erger voor te stellen dan zij zijn, waartoe wij maar al te veel geneigdheid hebben.
 
 ## Spreuken 12:17 
 Hier is:
@@ -127,6 +128,7 @@ Hier is:
 
 ## Spreuken 12:18 
 De tong is dood of leven, vergif of medicijn al naar zij gebruikt wordt.
+
 1\. Er zijn woorden, die snijden en doden die als steken zijn van een zwaard. Smadelijke woorden grieven het gemoed van hen tot wie zij gericht zijn, doorvlijmen hun het hart, laster zal als een zwaard de eer wonden van hen, van wie hij gesproken is, en misschien wel ongeneeslijk, fluisteringen en boze vermoedens zullen als een zwaard de banden van de liefde en vriendschap doorsnijden en scheiding maken tussen hen, die elkaar het dierbaarste waren.
 
 2\. Er zijn woorden, die genezend zijn, de tong van de wijzen is medicijn, de wonden helende, die door de achterklappende tong veroorzaakt werden, alles wederom wel makende, de vrede herstellende, en de geschillen bijleggende, de mensen bewegende tot verzoening. De wijsheid zal geschikte geneesmiddelen vinden tegen het kwaad, dat door laster en kwaadspreken aangericht werd.
@@ -170,21 +172,26 @@ Hier is:
 
 ## Spreuken 12:26 
 Zie hier:
+
 1\. Dat de Godvruchtigen hun eigen welvaren bevorderen, want zij hebben in zichzelf een voortreffelijk karakter, en zij verzekeren zich een voortreffelijk deel, en in beide overtreffen zij anderen. De rechtvaardige is overmoediger dan zijn naaste, aldus de lezing van de kanttekening. Hij is rijker, hoewel niet in het goed van deze wereld, maar in genade en vertroosting des Geestes, die de ware rijkdom is. Er is een wezenlijke voortreffelijkheid in de Godsdienst, hij adelt de mensen, boezemt hun edele beginselen in, maakt hen krachtig, het is een voortreffelijkheid, die in het oog van God, die de ware beoordelaar is van voortreffelijkheid, van grote waardij is. Zijn nabuur kan groter aanzien hebben in de wereld, kan meer toegejuicht worden, maar de rechtvaardige bezit de innerlijke waardij.
 
 2\. Dat goddeloze mensen in hun eigen nadeel handelen, zij wandelen op een weg, die hen verleidt. Hij schijnt hun toe niet slechts een aangename weg te zijn, maar de rechte weg, hij is zo aangenaam voor vlees en bloed, dat zij zich vleien met het denkbeeld, dat hij niet verkeerd kan wezen, maar het doel dat zij zich voorstellen zullen zij niet bereiken, het goed waarop zij hopen, zullen zij niet genieten, het is alles misleiding en bedrog, en daarom is de rechtvaardige wijzer en gelukkiger dan zijn naaste, die hem toch veracht en vertreedt.
 
 ## Spreuken 12:27 
 Hier is:
+
 1\. Hetgeen ons een haat kan inboezemen tegen bedrog. De bedrieger heeft gebraden vlees, maar wat hij braadt is niet zijn eigen jachtvangst, het is hetgeen, waar anderen zich moeite voor gegeven hebben, hij leeft en teert op de vrucht van hun arbeid, zoals de hommels in de bijenkorf. Of, indien luie, bedrieglijke mensen iets op jacht gevangen hebben (jagers zijn zelden mannen van zaken) braden zij het toch niet als zij het gevangen hebben, zij hebben geen genot of genoegen ervan misschien snijdt God in Zijn voorzienigheid het genot ervan af voor hen.
 
 2\. Hetgeen ons liefde kan inboezemen voor naarstigheid en eerlijkheid, namelijk dat het goed eens vlijtigen, hoewel misschien niet groot, toch kostelijk is. Het komt van Gods zegen, hij smaakt er genot in, het doet hem goed, hem en zijn gezin. Het is zijn eigen dagelijks brood, niet brood uit de mond van anderen genomen en daarom ziet hij dat God het hem geeft in verhoring van zijn gebed.
 
 ## Spreuken 12:28 
 De weg van de Godsdienst wordt ons hier aanbevolen:
+
 1\. Als een rechte, duidelijke, gemakkelijke weg, het is de weg van de gerechtigheid, Gods geboden (de regel waarnaar wij moeten wandelen) zijn allen heilig, rechtvaardig en goed, de Godsdienst heeft gezond verstand en billijkheid aan zijn zijde, het is een voetpad, een weg die God voor ons bereid heeft, Jesaja 35:8, het is een heirbaan, de koninklijke weg, een weg, die voor ons door al de heiligen werd betreden de goede oude weg, vol van de voetstappen van de kudde.
 
 2\. Als een veilige, aangename, lieflijke weg.
+
 a. Er is niet slechts leven aan het einde ervan, maar er is leven in die weg, alle ware vertroosting en voldoening. De gunst van God die beter is dan het leven, de Geest, die leven is.
+
 b. Er is niet slechts leven in, maar zo dat er de dood niet in is, geen droefheid van de wereld, die de dood werkt en een bitter bijmengsel is in onze tegenwoordige blijdschap en leven. Er is geen einde aan het leven, dat in het pad van de gerechtigheid is. Hier is er leven, maar er is ook dood. In het pad van de gerechtigheid is leven en geen dood, leven en onsterflijkheid.
 

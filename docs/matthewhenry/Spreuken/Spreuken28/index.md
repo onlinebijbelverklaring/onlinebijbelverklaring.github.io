@@ -47,7 +47,9 @@ Zij, die de goddelozen prijzen, doen hiermede blijken dat zij zelf de wet verlat
 
 ## Spreuken 28:5 
 Gelijk de heerschappij van de lusten en hartstochten van de mensen toe te schrijven is aan het duistere van hun verstand, zo is ook het duistere van hun verstand toe te schrijven aan de heerschappij van hun lusten en hartstochten. De kwade lieden verstaan het recht niet, onderscheiden niet tussen waarheid en leugen, recht en onrecht, ze verstaan de wet van God niet als de regel, hetzij van hun plicht, of van hun oordeel. En 
+
 a. Daarom is het dat zij kwade lieden zijn, hun boosheid is het gevolg van hun onwetendheid en dwaling, Eféze 4:18.
+
 b. Zij verstaan het recht niet, omdat zij kwade lieden zijn, hun bederf verblindt hun oordeel en vervult hen met vooroordelen, en omdat zij kwaad doen, haten zij het licht. Het is ook rechtvaardig in God om hun een kracht van de dwaling te zenden. Gelijk het zoeken van de Heer door mensen een goed teken is, dat zij veel verstaan, zo is het er ook een goed middel voor om meer te verstaan, ook dat zij alles verstaan wat voor hen nodig is. Zij, die zich Gods heerlijkheid voorstellen als hun doel, Zijn gunst als hun geluk, en Zijn Woord als hun regel, en zich bij alle gelegenheden door het gebed tot Hem wenden, zoeken de Heer, en Hij zal hun de geest van de wijsheid geven. Indien iemand wil deszelfs wil doen, die zal Zijn leer kennen. Zij zullen een goed verstand hebben, en nog een beter zullen zij hebben, die Zijn geboden doen, Psalm 111:10, 1 Korinthe 2:12, 15.
 
 ## Spreuken 28:6 

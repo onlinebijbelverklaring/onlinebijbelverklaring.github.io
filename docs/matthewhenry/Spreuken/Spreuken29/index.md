@@ -118,10 +118,15 @@ In de opvoeding van hun kinderen moeten de ouders bedenken:
 
 ## Spreuken 29:18 
 1\. Zie hier de ellende van het volk onder hetwelk geen vaste bediening is van de godsdienst. Waar geen profetie is, geen profeet om de wet te verklaren, geen priester of Leviet om de goede kennis van de Heer te onderwijzen, geen genademiddelen, het Woord van de Heer schaars is en er geen openbaar gezicht is, wordt het volk ontbloot, komt het volk om, dit woord heeft velerlei betekenissen, die allen hier van toepassing zijn.
+
 a. Het volk wordt ontbloot, beroofd van zijn wapenrusting, en aldus blootgesteld aan gevaar. Hoe kaal ziet een plaats er uit, als er geen bijbels en geen evangeliedienaren zijn, en hoe gemakkelijk een prooi wordt het volk dan voor de vijand van de zielen!
+
 b. Het volk rebelleert, niet alleen tegen God, maar tegen zijn vorst. Een goede prediking zou de mensen tot goede onderdanen maken maar daar deze ontbreekt, zijn zij woelziek en partijzuchtig, en verwerpen de heerschappij, o dat zij niet beter weten.
+
 c. Het volk is lui en ledig, of zij spelen, zoals scholieren doen als de onderwijzer afwezig is, zij doen niets met goed gevolg, maar staan de hele dag ledig op de markt, of spelen er, uit gebrek aan onderricht wat te doen en hoe het te doen.
+
 d. Ze zijn verstrooid als schapen, die geen herder hebben, omdat er geen meesters zijn van de verzamelingen om hen bijeen te roepen en bijeen te houden, Markus 6:34. Zij zijn verstrooid van God en van hun plicht door afval, van elkaar door verdeeldheden, God wordt ertoe gebracht hen te verstrooien door Zijn oordelen 2 Kronieken 15:3, 5.
+
 e. Ze komen om, zij zijn uitgeroeid, omdat zij zonder kennis zijn, Hoséa 4:6. Zie hoeveel reden wij hebben om dankbaar te zijn aan God voor het openbaar gezicht, dat onder ons is.
 
 2\. Het geluk van een volk, dat niet slechts een vaste evangeliebediening heeft, maar een voorspoedige, het volk, dat de wet hoort en bewaart, onder hetwelk de godsdienst bovenaan staat, welgelukzalig is zo’n volk en ieder afzonderlijk persoon onder hen. Het is niet het hebben van de wet, maar het gehoorzamen er aan, en het leven in overeenstemming ermede dat ons aanspraak geeft op welgelukzaligheid.

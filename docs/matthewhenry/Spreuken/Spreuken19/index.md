@@ -128,11 +128,15 @@ Hier is:
 Hier is:
 
 1\. Een omschrijving van de plicht van de barmhartigheid. Hij omvat twee dingen.
+
 a. Ontferming, die het innerlijk beginsel is van barmhartigheid in het hart. Het is zich te ontfermen over de armen, zij, die geen penning hebben voor de armen, kunnen toch medelijden met hen hebben, barmhartige belangstelling en medegevoel, en indien iemand al zijn goederen zou uitdelen tot onderhoud van de armen, en zou deze barmhartigheid, deze liefde niet hebben in zijn hart, het zou geen nuttigheid geven, 1 Korinthe 13:3. Wij moeten onze ziel openen voor de hongerige, Jesaja 58:10.
+
 b. Milddadigheid. Wij moeten niet alleen medelijden hebben met de armen, maar geven naar hun nooddruftigheid en ons vermogen, Jakobus 2:15,16. Zijn weldaad, en die bestaat in iets voor de armen te doen zowel als in hun iets te geven, en zo kunnen zij, als zij het gebruik hebben van hun ledematen en van hun zinnen, barmhartig voor elkaar zijn.
 
 2\. De aanmoediging tot barmhartigheid.
+
 a. Er zal een zeer vriendelijke uitlegging van gegeven worden. Wat aan de armen gegeven wordt, of wat voor hen gedaan wordt, zal God op de rekening plaatsen als aan Hem geleend, geleend op interest, dat is de betekenis van het woord. Hij neemt het vriendelijk op, als aan Hem gedaan, en Hij wil, dat wij daar het lieflijke van smaken, en er even tevreden en voldaan over zullen zijn als een geldschieter, wanneer hij een som gelds goed uitgezet heeft.
+
 b. Een zeer rijke beloning zal er voor gegeven worden, Hij zal hem zijn weldaad vergelden in tijdelijke, geestelijke en eeuwige zegeningen. Het geven van aalmoezen is de zekerste en veiligste weg tot voorspoed.
 
 ## Spreuken 19:18 

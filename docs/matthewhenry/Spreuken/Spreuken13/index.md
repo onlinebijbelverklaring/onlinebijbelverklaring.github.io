@@ -28,6 +28,7 @@
 Onder de kinderen van dezelfde ouders is het niets nieuws, dat sommigen zeer veel hoop geven veelbelovend zijn, en anderen het tegenovergestelde daarvan zijn, hier wordt ons geleerd te onderscheiden.
 
 1\. Er is veel hoop voor hen, die eerbied hebben voor hun ouders, en zich door hen willen laten raden en vermanen. Hij is een wijs zoon, en is goed op weg om nog wijzer te worden, die de tucht zijns vaders hoort, haar begeert te horen, er acht op slaat en haar niet slechts aanhoort, maar er zich aan onderwerpt en er zich naar gedraagt. 
+
 2\. Weinig hoop is er voor hen, die de bestraffing niet eens willen horen, maar het verachten om zich aan een regering, een bestuur, te onderwerpen, en smalen op hen, die getrouwelijk met hen handelen. Hoe kunnen diegenen een fout verbeteren, die niet willen dat men hen er op wijst, maar hen achten hun vijanden te zijn, die hun deze vriendelijkheid betonen? 
 
 ## Spreuken 13:2 

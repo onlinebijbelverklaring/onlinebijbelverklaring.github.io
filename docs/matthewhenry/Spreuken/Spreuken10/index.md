@@ -71,7 +71,9 @@ Hier wordt ons gezegd:
 Beiden de rechtvaardigen en de goddelozen moeten sterven als hun dagen vervuld zijn, in het graf is er tussen hun lichamen geen zichtbaar verschil, in de wereld van de geesten is er tussen hun zielen een zeer groot onderscheid, en dat is er ook, of behoort er te wezen, tussen hun nagedachtenis.
 
 1\. Als Godvruchtigen zijn heengegaan, wordt er goed van hen gesproken, en er behoort ook goed van hen gesproken te worden, dat is een van de zegeningen, die op het hoofd van de rechtvaardige komen, zelfs als zij hun hoofd hebben neergelegd. Gezegende mensen laten een gezegende gedachtenis van zich na.
+
 a. Het maakt een deel uit van de waardigheid van de heiligen, inzonderheid van hen, die uitmunten in deugd en in zeer hoge mate nuttig zijn voor anderen, dat zij met eerbied worden herdacht als zij gestorven zijn, hun goede naam, hun naam bij goede mensen vanwege goede dingen, is dan in zeer bijzondere zin als goede olie, Prediker 7:1. Hen, die God eren, zal Hij aldus eren, Psalm 112:3, 6, 9. Door het geloof hebben de ouden getuigenis bekomen, Hebreeën 11:2, en gestorven zijnde, wordt er nog van hen gesproken.
+
 b. Het behoort tot de plicht van de overlevenden, laat de gedachtenis van de rechtvaardigen in zegening zijn, aldus lezen het de Joden, en zij nemen het waar als een gebod, geen uitnemend rechtvaardige die gestorven is, noemende, zonder er bij te voegen: Zijn nagedachtenis zij gezegend. Het moet ons een genot en verlustiging zijn, om op eervolle wijze melding te maken van Godvruchtige mensen, die gestorven zijn, God voor hen te loven, en voor Zijn gaven en genade, die in hen geschitterd hebben, en inzonderheid moeten wij navolgers van hen zijn in hetgeen goed is.
 
 2\. Slechte mensen worden vergeten, en zullen vergeten worden, of er zal met minachting van hen gesproken worden. Als hun lichaam wegrot in het graf, zal ook hun naam verrotten. Het kan zijn dat hij in het geheel niet bewaard blijft, maar in vergetelheid wordt begraven. Er kan geen goeds van hen gezegd worden, en daarom is het de grootste vriendelijkheid, die men hun kan bewijzen, om maar niets van hen te zeggen, of wel zij zullen verfoeid worden, vermeld worden met de grootste afschuw, en deze regel van de ere: "De mortuis nil nisi bonum, zeg niets tot nadeel van de doden," zal hen niet beschermen. Waar de goddeloosheid algemeen bekend was, en wel vermeld moet worden, moet er met de grootste afschuw van worden gesproken.
@@ -81,8 +83,9 @@ b. Het behoort tot de plicht van de overlevenden, laat de gedachtenis van de rec
 
 2\. De schande en het verderf van de ongehoorzamen, die zich niet willen laten regeren, geen juk willen dragen, niet onderwezen willen worden, geen goede raad willen aannemen. Het zijn dwazen, want zij handelen tegen zichzelf, tegen hun eigen belang. Gewoonlijk zijn het praatachtige dwazen, zij zijn dwaas van lippen, vol van gepraat, maar vol van onzin, snoevende op zichzelf, boosaardig pratende tegen degenen, die hen vermanen, 3 Johannes : 10, en bewerende dat zij aan anderen raad moeten geven en hun de wet moeten stellen. Van alle dwazen zijn er geen zo lastig als de praatachtige dwazen, of die zich meer tentoonstellen, maar zij zullen vallen, in zonde vallen, in de hel vallen, omdat zij de geboden niet aannemen. Zij, die vervuld zijn van hun tong, geven zelden acht op hun voeten, en daarom struikelen en vallen zij.
 
-##Spreuken 10:9 
+## Spreuken 10:9 
 Hier wordt ons gezegd, en wij kunnen er staat op maken:
+
 1\. Dat der mensen oprechtheid hun veiligheid zal zijn, die in oprechtheid wandelt tegenover God en de mens, is aan beide getrouw, hij, die bedoelt wat recht is en meent wat hij zegt, wandelt zeker, hij is veilig onder de bescherming van God, kalm en stil in heilige gerustheid. Met nederige stoutmoedigheid gaat hij zijns weegs, welgewapend tegen de verzoekingen van Satan, de beroeringen van de wereld en de verwijten van de mensen. Hij weet op welke grond hij staat, welke gids hij volgt, door welke wacht hij omringd is, en naar welke heerlijkheid hij heengaat, en daarom gaat hij in volle verzekerdheid voorwaarts en heeft grote vrede. Jesaja 32:17, 33:15, 16. Sommigen vatten het op als behorende tot het karakter van een oprechte, dat hij zeker wandelt, in tegenstelling met een wandelen in de blinde of op goed geluk, hij durft niet doen hetgeen waarvan hij in zijn eigen geweten niet ten volle overtuigd is dat het wettig en geoorloofd is, maar in alles wil hij dat zijn weg volkomen vlak en duidelijk voor hem is.
 
 2\. Dat der mensen oneerlijkheid hun schande zijn zal. Die zijn wegen verkeert, die zich ter zijde afwendt op kromme wegen, die veinst tegenover God en de mensen, heen ziet naar de ene kant, en roept naar de andere kant, hoewel hij zich voor een tijd kan vermommen, een schone schijn kan aannemen, zal hij toch bekend worden voor wat hij is, duizend tegen een, of hij zal zichzelf vroeg of laat verraden. Hoe dit zij, God zal hem op de grote dag voor ieders oog ontdekken, hij, die zijn wegen verkeert, " documento erit, van hem zal een voorbeeld gemaakt worden", ter waarschuwing van anderen, aldus vatten sommigen het op. 
@@ -99,29 +102,34 @@ Hier wordt ons gezegd, en wij kunnen er staat op maken:
 
 ## Spreuken 10:12
 Hier is:
+
 1\. De grote tweedrachtstichter, en dat is boosaardigheid. Zelfs waar geen blijkbare aanleiding is tot strijd zal de haat zo’n aanleiding zoeken, en zo verwekt hij hem en doet hij het werk des duivels. Dat zijn wel de boosaardigste lieden, die men zich denken kan, die er genoegen in vinden om hun naasten tegen elkaar op te zetten door achterklap, kwade vermoedens uit te strooien en verkeerde voorstellingen te geven, de vonken van de twisting doende opvliegen en ze tot een vlam aanblazende, die onder de as begraven lagen, waaraan zij dan met een onverklaarbaar genoegen hun handen warmen.
 
 2\. De grote vredestichter, en dat is liefde die alle overtredingen toedekt, de beledigingen onder bloedverwanten, die onenigheden teweegbrengen. De liefde zal in stede van de belediging uit te bazuinen en haar te verzwaren haar zoveel dit maar mogelijk is, bedekken en verzachten. De liefde zal een belediging of een overtreding, die wij begaan door vergissing of onbedachtzaamheid, verontschuldigen als wij kunnen zeggen dat er geen kwaad bedoeld was, maar dat het een feil was, en dan hebben wij onze vriend in weerwil ervan lief en dit bedekt de feil. Zij zal de belediging die ons is aangedaan, ook voorbijzien, en haar aldus bedekken, er de beste uitlegging aan geven, hierdoor wordt twist voorkomen, of, indien hij reeds begonnen is, dan zal de vrede spoedig hersteld worden. De apostel haalt dit aan, 1 Petrus 4:8, De liefde zal menigte van zonden bedekken.
 
 ## Spreuken 10:13 
 Merk op:
+
 1\. Wijsheid en genade zijn de eer van de Godvruchtigen, hij, die verstand heeft, het goede verstand, dat zij hebben die de geboden doen op zijn lippen wordt wijsheid gevonden, er wordt ontdekt dat zij daar is, en bijgevolg dat hij er inwendig een goede schat van bezit, en vandaar wordt zij afgeleid tot nut en voordeel van anderen. Het is de eer eens mensen wijsheid te hebben, maar nog veel meer om het middel te zijn om anderen wijs te maken.
 
 2\. Dwaasheid en zonde zijn de schande van slechte mensen;  een roede is voor de rug van hem, die geen hart heeft, of aan wie een hart ontbreekt, hij stelt zich bloot aan de striemen van zijn eigen geweten, aan de geselingen van de tong, aan de afkeuring van de magistraten, en aan de rechtvaardige oordelen Gods. Zij, die dwaselijk en moedwillig voortgaan op boze wegen, bereiden zich roeden, waarvan de littekenen hun eeuwige schande zullen zijn. 
 
 ## Spreuken 10:14 
 Merk op:
+
 1\. Het is de wijsheid van de wijzen, dat zij een voorraad opdoen van nuttige wetenschap, dat hun bewaring zijn zal. In de lippen van de verstandigen wordt wijsheid gevonden, vers 13, omdat zij in hun hart is weggelegd, uit welke schat de goede heer des huizes nieuwe en oude dingen voortbrengt. Welke kennis of wetenschap ons te eniger tijd nuttig kan zijn, wij moeten haar wegleggen, omdat wij niet weten of wij haar niet op de een of andere tijd nodig zullen hebben. Wij moeten met dit wegleggen voortgaan zolang als wij leven, en er ons van verzekeren dat zij veilig weggelegd is, opdat wij haar niet behoeven te zoeken als wij haar nodig hebben.
 
 2\. Het is de dwaasheid van de dwazen, dat zij in hun hart kwaad wegleggen, dat zij gereed bij de hand hebben bij alles wat zij zeggen, en dat beide voor anderen en voor henzelf verschrikking en verwoesting werkt. Zij hebben woorden van verslinding lief, Psalm 52:6,, en die worden het eerst gesproken, hun mond is de verstoring nabij, daar zij de scherpe pijlen van bittere woorden altijd bij zich hebben, om ze om zich heen te werpen. 
 
 ## Spreuken 10:15 
 Dit kan opgevat worden op tweeërlei wijze.
+
 1\. Als een reden, waarom wij naarstig moeten zijn in ons beroep en bedrijf, ten einde de ontmoedigende onrust te vermijden, die de armoede meebrengt, en het voorrecht en welvaren te hebben van hen, die voorspoedig zijn in de wereld. Zich moeite geven is het middel om onszelf en ons gezin gemak en rust te bezorgen. Of liever: 
 
 2\. Als een voorstelling van de gewone vergissing beide van rijken en armen met betrekking tot hun uitwendige toestand.
 
 a. Rijke lieden denken dat zij gelukkig zijn, maar hierin vergissen zij zich. Des rijken goed is in zijn verbeelding een stad van zijn sterkte, terwijl het te zwak en volkomen ongenoegzaam is om hem tegen het ergste kwaad te beschermen. Het zal blijken dat zij niet zo veilig zijn als zij denken, ja hun rijkdom kan hen aan gevaar blootstellen.
+
 b. Arme lieden denken ongelukkig te zijn omdat zij arm zijn, maar dat is hun vergissing, de armoede van de geringen is hun verstoring, zij beneemt hun de moed, verstoort en vernietigt hun behaaglijkheid, terwijl men toch zeer aangenaam en goedsmoeds kan leven, al heeft men niet veel om van te leven, zo men slechts vergenoegd is, een goede consciëntie bewaart en leeft door het geloof. 
 
 ## Spreuken 10:16 
@@ -156,11 +164,15 @@ Hier worden wij vermaand met betrekking tot het in toom houden van onze tong, he
 Hier wordt ons geleerd hoe de mensen te schatten, niet neer hun rijkdom of hun hoge rang in de wereld, maar naar hun deugd.
 
 1\. Godvruchtige mensen zijn ergens goed voor, al zijn zij ook arm en zeer gering in de wereld, en al is het ook dat zij geen macht of rijkdom hebben om er goed mee te doen, maar zolang zij een mond hebben om te spreken, zal hen dit nuttig en van waarde maken, en deswege moeten wij hen eren, die de Heere vrezen, omdat zij uit de goede schat huns harten goede dingen voortbrengen.
+
 a. Dit maakt hen van waarde. De tong des rechtvaardigen is uitgelezen zilver zij zijn oprecht, vrij van het schuim van bedrog en kwade bedoelingen. Gods woorden worden vergeleken bij gelouterd zilver, Psalm 12:7, want men kan er op vertrouwen, en zo zijn ook de woorden van de rechtvaardigen. Zij zijn van gewicht en waardij, en zullen hen, die ze horen, verrijken met wijsheid, die beter is dan uitgelezen zilver.
+
 b. Het maakt hen nuttig, de lippen des rechtvaardigen voeden er velen, want zij zijn vol van het Woord van God, dat het brood des levens is, en van die gezonde leer, waarmee de zielen gevoed en versterkt worden. Een Godvruchtig gesprek is geestelijk voedsel voor de nooddruftigen, de hongerigen.
 
 2\. Slechte mensen deugen nergens toe.
+
 a. Men kan geen goed door hen verkrijgen. Het hart van de goddelozen is weinig waard, en daarom kan hetgeen uit de overvloed zijns harten voortkomt van niet veel waarde zijn. Zijn beginselen, zijn denkbeelden, zijn begrippen, zijn voornemens, alles waarvan hij vervuld is, wat hem beweegt, het is alles werelds en vleselijk, en daarom van generlei waardij. Die uit de aarde is voortgekomen, spreekt uit de aarde, en kan de dingen Gods noch verstaan noch waarderen, Johannes 3:31, l Corinthiërs 2:14. De goddeloze wendt voor dat, hoewel hij niet over de Godsdienst spreekt zoals de rechtvaardige, hij hem toch in zijn binnenste heeft, en hij dankt God dat zijn hart goed is, maar Hij, die het hart doorgrondt, zegt hier het tegendeel, namelijk dat het weinig waard is.
+
 b. Men kan hun geen goeddoen. Terwijl velen gevoed worden door de lippen van de rechtvaardigen, sterven de dwazen door gebrek aan verstand, en wel zijn zij dwaas, die sterven uit gebrek aan hetgeen zij zo gemakkelijk hadden kunnen verkrijgen. Dwazen sterven uit gebrek aan een hart, zo is het in het oorspronkelijke, zij komen om uit gebrek aan nadenken en vastberadenheid, zij hebben het hart niet om zichzelf goed te doen. Terwijl de rechtvaardigen anderen voeden laten dwazen zichzelf verhongeren.
 
 ## Spreuken 10:22 
@@ -181,7 +193,9 @@ Hier is:
 Hier wordt tot de rechtvaardigen gezegd, nogmaals gezegd dat het wel met hen zal wezen, en van de goddelozen: Wee hun, en deze worden tegenover elkaar geplaatst tot hun wederzijdse opheldering.
 
 1\. Het zal met de goddelozen zo slecht wezen als zij vrezen, en met de rechtvaardigen zo wel als zij slechts kunnen begeren.
+
 a. Het is waar, de goddelozen ondersteunen zich soms in hun goddeloosheid met ijdele hoop en verwachtingen, waarin zij teleurgesteld zullen worden, maar op andere tijden kan het wel niet anders, of zij moeten gekweld worden door gegronde vrees, en die vrees zal hen overkomen, de God, die zij getergd hebben, zal in alle opzichten zo schrikkelijk zijn als zij zich Hem in hun angsten hebben voorgesteld. Uw verbolgenheid is naardat Gij te vrezen zijt, Psalm 90:11. Goddeloze mensen vrezen de straf van de zonde, maar zij hebben de wijsheid niet om nut te trekken uit hun vrees door te ontkomen, en zo zal hetgeen zij vrezen over hen komen, en hun tegenwoordige verschrikkingen zijn een voorsmaak van hun toekomstige pijniging.
+
 b. Het is waar, ook de rechtvaardigen hebben soms hun vrees, hun angsten, maar hun begeerte is naar de gunst van God en gelukzaligheid in Hem, en die begeerte zal God geven. Naar hun geloof, niet naar hun vrees, zal hun geschieden, Psalm 37:4.
 
 2\. De voorspoed van de goddelozen zal spoedig een einde nemen, maar de gelukzaligheid van de rechtvaardigen zal nooit eindigen, vers 25. De goddelozen maken veel gedruis, jagen zichzelf en anderen voort als een wervelwind, die dreigt alles voor zich heen weg te vagen, maar als een wervelwind gaan zij spoedig voorbij, en wel voor altijd, zij zijn niet meer, allen om hen heen zijn gerust en blijde als de storm voorbij is, Psalm 37:10, 36, Job 20:5. De rechtvaardigen daarentegen maken geen vertoning, zij liggen verborgen gelijk een fondament, dat diep ligt en buiten het gezicht is, maar zij zijn vast in hun besluit om God aan te kleven, bevestigd in deugd, en zij zullen een eeuwige grondvest zijn, onwankelbaar goed, hij die heilig is, zal nog heilig zijn, en onwankelbaar gelukkig, zijn hoop is op een rots gegrond, en daarom niet geschokt door de storm, Mattheüs 7:24. De rechtvaardige is de pilaar van de wereld, zo lezen het sommigen, de wereld bestaat om hunnentwil, het heilig zaad is er de substantie van. 

@@ -36,6 +36,7 @@ Wij moeten doen wat prijzenswaardig is, en waarvoor zelfs vreemden ons kunnen pr
 
 ## Spreuken 27:3-4 
 Deze twee verzen tonen het ondraaglijk kwaad aan:
+
 1\. Van onbeteugelde hartstocht. De toorn van een dwaas, die, als hij geprikkeld wordt, zich niet bekommert om hetgeen hij zegt of doet, is zwaarder dan een grote steen, of een last van zand. Hij drukt zwaar op hemzelf. Zij, die geen heerschappij hebben over hun hartstocht, laten zich verzinken onder de last ervan. De toorn van een dwaas drukt zwaar op hen, op wie hij verwoed is, en aan wie hij gevaar loopt van kwaad te doen. Daarom is het onze wijsheid om een dwaas niet te prikkelen maar hem uit de weg te gaan als hij toornig is.
 
 2\. Van ingewortelde boosaardigheid, deze is in even hoge mate erger dan de vorige ondeugd, als gloeiende jeneverkolen heter zijn dan een vuur van doornen. Het is waar: toorn is wreed, en doet menige wrede daad, maar een verborgen vijandschap tegen de persoon van een ander, afgunst op zijn voorspoed, en een begeerte naar wraak wegens de een of andere belediging, zijn veel boosaardiger en schadelijker. Voor een plotseling opkomende drift kan men uit de weg gaan, zoals David aan Sauls werpspies ontkwam, maar als zij, gelijk die van Saul, groeit en toeneemt totdat zij een vastgewortelde afgunst is geworden, dan kan men er niet voor beslaan, zij zal vervolgen en achterhalen. Hij, die verdrietig is over het goed van een ander, zal plannen beramen om hem nadeel toe te brengen, en zal voor eeuwig de toorn behouden.
@@ -59,7 +60,9 @@ Evenals dikwijls in dit boek toont Salomo hier aan, dat in sommige opzichten de 
 1\. Hier wordt ons bevolen trouw te zijn aan onze vrienden, vertrouwelijk met hen te blijven en bereid te zijn hun alle goede diensten te bewijzen, die in onze macht zijn. Het is goed een vriend te hebben, een boezemvriend, met wie wij vrij kunnen omgaan, van wie wij raad kunnen ontvangen en aan wie wij raad kunnen mededelen. Deze vriend behoeft geen bloedverwant te zijn, hoewel het het gelukkigst is, als wij onder onze bloedverwanten een hebben, van wie wij een vriend kunnen maken. Petrus en Andréas waren broeders, en dat waren ook Jakobus en Johannes, maar Salomo maakt dikwijls verschil tussen een vriend en een broeder. Maar het is raadzaam om iemand tot onze vriend te kiezen, die in onze nabijheid woont opdat de bekendheid onderhouden kan worden en wederzijdse vriendelijkheid kan worden bewezen. Het is ook goed om inzonderheid acht te slaan op hen, die vrienden waren van onze familie: "Verlaat uw vriend niet, inzonderheid niet als hij ook uws vriend is geweest, laat niet na hem te dienen, en van hem gebruik te maken als er aanleiding toe is. Hij is een beproefd vriend hij kent uw zaken, hij stelt bijzonder belang in u, laat u dus door hem raden." Het is een plicht, die wij onze ouders verschuldigd zijn, om als zij heengegaan zijn hun vrienden lief te hebben en met hen te rade te gaan. Salomo’s zoon heeft zich in het verderf gestort door de raad van de vrienden zijn vaders te verlaten.
 
 2\. Een goede reden gegeven, waarom wij aldus ware vriendschap op prijs moeten stellen, en voor de keus ervan.
+
 a. Vanwege het aangename ervan. Er is zeer veel lieflijkheid in het omgaan met en het raadplegen van een hartelijke vriend, het is als olie en reukwerk, die zeer aangenaam zien zijn voor de geest, het verblijdt het half, de last van de zorgen wordt lichter door ons hart uit te storten voor een vriend, en het is ons een grote voldoening om zijn gevoelens omtrent onze zaken te kennen. De lieflijkheid van de vriendschap ligt niet in hartelijk lachen, maar in hartelijke raad, de raad van de ziel, getrouwe raad, in oprechtheid gegeven en zonder vleierij, de raad van de ziel, die ingaat in de zaak en doordringt tot het hart, raad omtrent zielsaangelegenheden, Psalm 66-17. Wij behoren die gesprekken het aangenaamst te vinden, die over geestelijke dingen gehouden worden en het welvaren van de ziel bevorderen.
+
 b. Vanwege het nut en voordeel ervan, inzonderheid op de dag van de tegenspoed, wanneer wij, naar ons hier wordt aangeraden, niet in het huis van een broeder moeten gaan, geen hulp moeten verwachten van een bloedverwant alleen maar omdat hij een bloedverwant is, want de verplichting daarvan gaat gewoonlijk weinig verder dan iemand neef te noemen, en faalt als het er op aankomt om een werkelijke vriendelijkheid te bewijzen, maar ons dan veeleer tot onze naburen te wenden, die dicht bij zijn en bereid zijn ons te helpen als de nood aan de man komt. Het is wijsheid om hen aan ons te verbinden door ons vriendelijke, hulpvaardige naburen te betonen, dan zullen wij daar het nut en voordeel van hebben als wij in benauwdheid zijn, daar wij hen dan vriendelijk en hulpvaardig zullen bevinden voor ons, Hoofdstuk 18:24.
 
 ## Spreuken 27:11 
@@ -135,15 +138,23 @@ Salomo had gezegd, Hoofdstuk 22:15 : De dwaasheid, die in het hart van de jongen
 
 ## Spreuken 27:23-27 
 1\. Hier wordt een gebod gegeven om naarstig te zijn in ons beroep. Het wordt gericht tot landbouwers en herders en hen, die in vee handelen, maar het kan uitgestrekt worden tot ieder ander wettig beroep, waarin ons werk ook bestaat, hetzij in huis of buitenshuis, wij moeten er ons met geheel ons hart op toeleggen. Dit gebod geeft te kennen:
+
 a. Dat wij enigerlei zaak om handen moeten hebben in deze wereld, en niet in luiheid en ledigheid moeten leven.
+
 b. Dat wij ons werk goed en ten volle moeten verstaan, moeten weten wat wij te doen hebben, en ons niet moeten inlaten met hetgeen waar wij geen verstand van hebben.
+
 c. Wij moeten er zelf het oog op hebben, en niet al de zorg ervan aan anderen overlaten, wij moeten zelf de toestand van onze kudde nagaan, het is het oog des meesters, dat ze vet maakt.
+
 d. Wij moeten voorzichtigheid en overleg hebben in het bestuur Onder zaken, van alles de toestand kennen, alles goed nagaan, opdat niets teloor ga, geen gelegenheid laten voorbijgaan maar alles op de bestemde tijd en orde doen ten einde er het meeste voordeel uit te trekken.
+
 e. Wij moeten vlijtig zijn en ons moeite geven, niet neerzitten en bedenken, maar opstaan en aan het werk gaan. "Stel uw hart op uw kudden als iemand, die in zorg er over is, sla uw handen aan het werk." 
 
 2\. De redenen om aan dit gebod kracht bij te zetten. Denk aan:
+
 A. De onzekerheid van wereldlijken rijkdom, vers 24. De schat is niet tot in eeuwigheid.
+
 a. Andere rijkdommen zijn niet zo duurzaam als deze. "Geef wel acht op uw kudden, op uw bezitting op het veld, want die zijn in erfopvolging tot in eeuwigheid, terwijl schatten in de handel, koopwaren, dit niet zijn, de kroon zelf is misschien niet zo vast in uw geslacht als het bezit uwer kudden".
+
 b. Zelfs deze bezitting zal teniet gaan als er niet goed voor gezorgd wordt. Al had men een kasteel met rijke inkomsten er bij, en men was verkwistend en onachtzaam, neen zou spoedig door die rijke bezitting heen komen, zelfs de kroon en de inkomsten ervan zouden schade lijden, en als men ze niet zeer goed bestuurt, zullen zij niet van geslacht tot geslacht blijven. Hoewel David de kroon door erfrecht in zijn geslacht heeft doen overgaan, heeft hij toch goed voor zijn kudden gezorgd, 1 Kronieken 27:19, 31.
 
 B. De milddadigheid van de natuur, of liever van de God van de natuur, en Zijn voorzienigheid, vers 25. Als het gras verdwenen is en het groen zich vertoont hebt gij voldoende voor uw levensonderhoud. Voor de verzorging van de kudden wordt geen zware arbeid vereist, geen ploegen of zaaien, hun voedsel is het spontane voortbrengsel van de grond, gij hebt niets anders te doen dan ze er des zomers heen te brengen, als het gras zich openbaart, en de kruiden van de bergen te verzamelen voor de winter. God heeft het zijn gedaan, gij zijt ondankbaar jegens Hem en weigert onrechtvaardig Zijn voorzienigheid te dienen indien gij het uw niet doet." Er is een gelegenheid, die waargenomen en gebruikt moet worden, een tijd, wanneer het gras zich openbaart, maar indien gij die tijd ongebruikt laat voorbijgaan, zal het zoveel erger zijn voor uw kudden. Evenals voor onszelf, moeten wij ook voor ons vee met de mier spijs bereiden in de zomer." 

@@ -162,10 +162,13 @@ In geschillen tussen magistraten en onderdanen en zulke geschillen ontstaan dikw
 
 ## Spreuken 17:27-28 
 Op tweeërlei manier kan iemand tonen een wijs man te zijn.
+
 1\. Door zijn goed humeur, de zachtheid en kalmte van zijn geest. Een man van verstand is kostelijk van geest, hij is iemand, die wel acht geeft op zijn geest, opdat hij zij zoals hij moet wezen, en zich aldus in een gelijkmatige gemoedstoestand houdt, gemakkelijk voor zichzelf en aangenaam voor anderen. Een Godvruchtige geest is een kostelijke geest en maakt een mens beminnelijk en voortreffelijker dan zijn naaste. Hij is van een koele geest, zo lezen het sommigen, niet verhit door hartstocht, niet in beroering of wanorde gebracht door het geweld van verdorven neigingen. Een koel hoofd en een warm hart is een uitnemende samenvoeging van eigenschappen.
 
 2\. Door het goede bestuur over zijn tong.
+
 a. Een wijs man zal een man zijn van weinig woorden, daar hij bevreesd is om verkeerd te spreken. Wie wetenschap weet, en poogt er goed mee te doen, beijvert zich om ter zake te spreken, en daarom zegt hij weinig, ten einde tijd te hebben om er over na te denken. Hij spaart zijn woorden, omdat het beter is ze te sparen dan ze verkeerd te gebruiken.
+
 b. Dit wordt in het algemeen voor zo’n stellig teken van wijsheid gehouden, dat een dwaas de naam kan verkrijgen van een wijs man te zijn, zo hij slechts verstand genoeg heeft om zijn lippen te sluiten, te horen en te zien, en weinig te zeggen. Als een dwaas zwijgt, zal men hem voor wijs aanzien, zolang het tegendeel niet blijkt, omdat men denkt dat hij let op hetgeen anderen zeggen, ervaring er door verkrijgt, en met zichzelf te rade gaat over hetgeen hij zal zeggen, ten einde met gepastheid te spreken. Zie hoe gemakkelijk het is de goede mening van de mensen te verkrijgen, en hen te misleiden. Maar, als een dwaas zwijgt, kent God zijn hart en de dwaasheid, die er in gebonden is, en daarom kan Hij zich niet bedriegen in Zijn oordeel over de mensen.
 
  
