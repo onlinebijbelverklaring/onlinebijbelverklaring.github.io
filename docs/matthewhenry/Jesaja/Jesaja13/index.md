@@ -39,6 +39,7 @@ De algemene titel van het boek was: Het gezicht van Jesaja, de zoon van Amoz, Ho
 I. De plaats, die aan het verderf gewijd is, is Babel die hier "de deuren van de prinsen wordt genoemd" vers 2, vanwege de vele vorstelijke verblijven, die er in waren, statige rijk versierde paleizen, die de vijand tot een inval zullen lokken in de hoop op een rijke buit. De deuren of poorten van de prinsen waren sterk en wel bewaakt, en toch zullen zij geen beschutting of verdediging wezen tegen hen, die met de opdracht kwamen om er Gods oordelen aan te volvoeren. Voor Zijn macht en Zijn toorn zijn paleizen niets meer dan stulpjes, ook "zijn niet alleen de deuren van de prinsen aan het verderf gewijd, maar het gehele land", vers 5, want hoewel de prinsen de leiders waren in het vervolgen en verdrukken van Gods volk, was toch het gehele land er mee aan schuldig.
 
 II. De personen, die samengebracht worden om Babel te verwoesten, worden hier genoemd:
+
 1\. "Gods geheiligden", vers 3, bestemd en aangewezen tot deze dienst, door de raad en de voorzienigheid Gods er voor afgezonderd, ontheven van ander werk, losgemaakt van andere plannen, opdat zij zich geheel en al aan dit werk kunnen geven, de zodanigen, die geschikt waren voor hetgeen, waartoe zij geroepen worden, want voor het werk, waarvoor God de mensen gebruikt, maakt Hij hen ook bekwaam. Het geeft ook te kennen dat het in Gods bedoeling, hoewel niet in de hun, een heilige oorlog was, zij hadden slechts de uitbreiding van hun eigen rijk op het oog, maar God bedoelde het ter verlossing van Zijn volk, en om een type te zijn van de verwoesting van het Nieuw-Testamentische Babel. Cyrus, de persoon, die er voornamelijk in betrokken was, wordt terecht een geheiligde genoemd, want hij was Gods gezalfde, Hoofdstuk 45:1, en hij was een type van Hem die komen zou. Het is jammer dat niet alle krijgslieden, inzonderheid die, welke gebruikt worden in de oorlogen van de Heer, in de strikten zin van het woord geheiligden zijn, het is een wonder dat zij onheiligen durven zijn, die toch ieder ogenblik aan de dood zijn blootgesteld.
 
 2\. Zij worden Gods helden genoemd, Zijn machtigen, omdat zij macht hadden van God en haar nu voor Hem stonden te gebruiken. Er wordt van Cyrus gezegd dat "in deze veldtocht God zijn rechterhand vat", Hoofdstuk 45:1. Gods geheiligden zijn Zijn helden, Zijn machtigen, als God roept maakt Hij bekwaam, en als Hij heilig maakt, dan maakt Hij sterk in de geest.
@@ -79,8 +80,11 @@ VIII. De vijand, die God tegen hen zal zenden, zal onverbiddelijk zijn, waarschi
 1\. Zij zullen zich niet laten omkopen, vers 17. Alles wat de mensen hebben, zouden zij geven voor hun leven, maar de Meden zullen het zilver niet achten, zij dorsten slechts naar bloed, niet naar goud, niemands rijkdom zal door hen als rantsoen voor zijn leven worden aangenomen.
 
 2\. Zij zullen geen medelijden betonen, vers 18, niet aan de jongelingen, die in de bloei van hun jaren zijn, ze zullen hen met hun bogen verpletteren - niet aan de leeftijd van de onschuld, zij zullen zich niet ontfermen over de vrucht van de buik, noch de kinderen verschonen, wier angstkreten, naar men zou denken, zelfs marmeren ogen tranen zouden doen storten en stenen harten zouden vermurwen. Sta hier een weinig stil, en verwonder u.
+
 a. Dat mensen aldus wreed en onmenselijk kunnen zijn, zo volkomen ontbloot van alle mededogen en zie er in hoe verdorven en ontaard de menselijke natuur is geworden.
+
 b. Dat de God van oneindige barmhartigheid het toelaat, ja meer, dat Hij het tot de uitvoering maakt van Zijn gerechtigheid, waaruit blijkt dat Hij, hoewel Hij genadig is, toch ook de God is, wie de wraak toekomt.
+
 c. Dat kleine kinderen die nooit schuldig waren aan werkelijke zonde, aldus mishandeld worden, waaruit blijkt dat er een erfschuld is, waardoor het leven verbeurd is reeds van dat het bestond. 
 
 ## Jesaja 13:19-22 
