@@ -29,6 +29,7 @@ III. Een andere krijg, gevoerd door het heerlijk hoofd der gemeente, en de uitsl
 
 ## Openbaring 19:1-4 
 In het voorgaande hoofdstuk was de val van Babylon besloten, geëindigd en onherstelbaar verklaard, dit vangt aan met een heiligen zegezang over haar, tengevolge van de oproeping daartoe in Hoofdstuk 18:20 : Bedrijft vreugde over haar, gij hemel, en gij heilige apostelen en gij profeten! Daaraan beantwoorden dezen met blijdschap, wij hebben hier: 
+
 1\. De vorm van hun dankzegging in dat hemelse, alles-omvattende woord: Hallelujah! Looft de Heere!, waarmee zij beginnen, voortgaan en eindigen, vers 4. Hun gebeden zijn nu in lofzeggingen veranderd, hun hosanna’s eindigen in halleluja’s. 
 
 2\. De oorzaak van hun dankzegging. Zij prijzen Hem om de waarachtigheid van Zijn woord en de rechtvaardigheid van Zijn voorzienige handelingen, voornamelijk in deze grote gebeurtenis, de verwoesting van Babylon, de moeder, de voedster, de verblijfplaats van afgoderij, zinnelijkheid en wreedheid, vers 2. Om dit treffend voorbeeld van Goddelijke gerechtigheid zingen zij: De zaligheid en de heerlijkheid en de eer en de kracht zij de Heere, onze God. 
@@ -39,23 +40,33 @@ In het voorgaande hoofdstuk was de val van Babylon besloten, geëindigd en onher
 
 ## Openbaring 19:5-10 
 Nu de zegezang geëindigd is, vangt een huwelijkslied aan, vers 6. Merk hier op: 
+
 I. De overeenstemming der hemelse muziek. Het koor was groot en luide: Een grote schare, en als een stem veler wateren en als een stem van sterke donderslagen. God is vreeslijk onder de lofzangen. Er is geen wanklank in de hemel, de morgensterren zingen tezamen, geen toon gaat vals, alles is zuivere en volmaakte muziek. 
 
 II. De aanleiding tot dit lied: de regering en heerschappij van de almachtige God, die de gemeente heeft gekocht met Zijn eigen bloed, en die nu gereed staat haar openlijk ten huwelijk te nemen. De bruiloft des Lams is gekomen, vers 7. Sommigen menen dat dit slaat op de bekering der Joden, welke zij geloven dat op de val van Babylon volgen zal, anderen passen het toe op de algemene opstanding, het eerste schijnt het waarschijnlijkste te zijn.
+
 1\. Wij hebben hier een beschrijving van de bruid, hoe haar voorkomen was: niet in vrolijke, opzichtige kleding als de moeder der hoererijen, maar in rein en blinkend fijn lijnwaad, de rechtvaardigmakingen der heiligen. In de lange gewaden van de rechtvaardigheid van Christus, gegeven ter rechtvaardigmaking en ingeplant ter heiligmaking, het witte kleed van vergeving, aanneming en vrijmaking, en van reinheid en algehele heiligheid. Zij had hare klederen gewassen en wit gemaakt in het bloed des Lams, en haar bruidstooi had zij niet gekocht voor enigen prijs van haar zelve, maar ontvangen als gave en geschenk van haar gezegende Heere. De bruiloft, welke, hoewel niet in bijzonderheden omschreven gelijk in Mattheus 22:4, gezegd wordt allen gelukzalig te maken, die er toe geroepen worden, zo geroepen dat zij de uitnodiging aannemen, een bruiloft gegrond op de beloften Gods. Deze zijn de waarachtige woorden Gods, vers 9. Deze beloften, geopend, toegepast, verzegeld en gewaarborgd door de Geest Gods. In heilige sacramenten, zijn de bruiloft, en het gehele lichaam van allen, die aan dit feest deelnemen. Is de bruid, de vrouw des Lams. Zij eten in een lichaam, zij drinken in een Geest, zij zijn niet alleen toeschouwers of gasten, maar zij vormen de echtgenote, zij zijn het mystieke lichaam van Christus. 
 
 2\. De aandoening van blijdschap, welke de apostel over zich voelde komen bij dat gezicht. Hij viel neer voor de voeten van de engel om hem te aanbidden. Hij onderstelde dat die meer was dan een bloot schepsel, of wel, zijn gedachten werden voor een ogenblik beneveld door de kracht zijner genegenheden. Merk hier op: 
+
 A. Welke eer hij de engel bracht. Hij viel aan zijn voeten om hem te aanbidden, dit neervallen was een gedeelte van uiterlijke verering, het was de houding van eigenlijke aanbidding. 
+
 B. Hoe de engel dit weigerde en niet zonder enig verwijt. Zie dat gij dat niet doet. Ik ben uw mededienstknecht en uwer broederen, die de getuigenis van Jezus hebben. Ik ben een schepsel, en gelijk in bediening, hoewel niet in natuur. Ik, als engel en boodschapper van God heb de getuigenis van Jezus, de opdracht om van Hem te getuigen en de getuigenis omtrent Hem te bevestigen, en gij, als apostel, die de Geest der profetie heeft, moet dezelfde getuigenis afleggen, en daarom zijn wij in dat opzicht broederen en mededienstknechten. 
+
 C. Hij wijst hem op het enige en ware voorwerp van godsdienstige verering, namelijk God. Aanbid God en Hem alleen. Dit veroordeelt ten volle de praktijken van de papisten, die brood en wijn aanbidden, benevens heiligen en engelen, en de praktijken van Socinianen en Arianen, die niet geloven dat Christus waarachtig en van nature God is en Hem toch Goddelijke verering brengen. En het toont aan welke ellendige vijgenbladeren al hun uitvluchten en verontschuldigingen zijn, die zij ter hunner verdediging bijbrengen. Hier staan zij door een engel van de hemel overtuigd van afgoderij. 
 
 ## Openbaring 19:11-21 
 Zodra het huwelijk tussen Christus en Zijn gemeente plechtig gevierd was door de bekering der Joden, werd het verheerlijkte Hoofd van de gemeente geroepen tot een nieuwe krijg. die zich voordoet als de groten slag van Armageddon, voorzegd in Hoofdstuk 16:16. 
 Merk hier op: 
+
 I. De beschrijving van de groten bevelhebber. 
+
 1\. De zetel van Zijn koninkrijk, de hemel, Zijn troon is daar en Zijn macht en gezag zijn hemels en Goddelijk. 
+
 2\. Zijn uitrusting, opnieuw wordt Hij beschreven als rijdende op een wit paard, hetgeen aantoont de zuiverheid van Zijn zaak en de zekerheid van Zijn overwinning. 
+
 3\. Zijn eigenschappen, Hij is getrouw en waarachtig, aan Zijn verbond en zijn beloften, Hij is rechtvaardig in al zijn handelingen als Rechter en Veldheer, Hij heeft doordringende kennis van al de kracht en de krijgskunde van Zijn vijand. Hij heeft grote en uitgestrekte heerschappij: vele koninklijke hoeden waren op Zijn hoofd, want Hij is de Koning der koningen en de Heere der heren. 
+
 4\. Zijn wapenrusting, een kleed, dat met bloed geverfd was, hetzij Zijn eigen bloed, waarmee Hij Zijn macht als Middelaar verwierf, hetzij het bloed van de vijanden, die Hij reeds onderworpen had. 5. Zijn naam: Het Woord Gods, een naam die niemand ten volle verstaat behalve Hij zelf. Wij weten alleen dat dit Woord was God geopenbaard in het vlees, maar Zijn volkomenheid kan geen schepsel ooit begrijpen. 
 
 II. Het leger dat Hij aanvoerde, vers 14. Een zeer groot leger, uit verscheidene troepen bestaande, engelen en heiligen volgden Zijn banier, en geleken op Hem in hun uitrusting en in hun wapening van reinheid en gerechtigheid, de uitverkorenen, geroepenen en gelovigen. 

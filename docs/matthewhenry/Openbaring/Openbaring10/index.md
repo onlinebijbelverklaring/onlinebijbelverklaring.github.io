@@ -22,10 +22,15 @@ IV. De opdracht aan de apostel gegeven en door hem vervuld, vers 8-11.
 
 ## Openbaring 10:1-7 
 Hier hebben wij de mededeling van een ander gezicht, waarmee de apostel begunstigd werd, tussen het blazen van de zesde en de zevende bazuin. En wij merken op: 
+
 I. De persoon, die voornamelijk bezig was met de mededeling van deze openbaring aan Johannes, een andere sterken engel, afkomende van de hemel, welke ons zo voorgesteld wordt dat men niet anders denken kan dan dat onze Heere Jezus Christus zelf ermee bedoeld wordt. 
+
 1\. Hij was bekleed met een wolk, Hij omsluiert zijn heerlijkheid, die te groot is om door stervelingen aanschouwd te worden, en Hij werpt een sluier over zijn beschikkingen. Wolken en donkerheid zijn rondom Hem. 
+
 2\. Een regenboog was boven Zijn hoofd. Hij is altijd gedachtig aan Zijn verbond en hoewel Zijn houding zeer geheimzinnig is, zo zijn toch al Zijn daden volmaakt en rechtvaardig en getrouw. 
+
 3\. Zijn aangezicht was als de zon, vol luister, glans en majesteit, Hoofdstuk 1:16. 
+
 4\. En zijn voeten waren als pilaren van vuur, al Zijn wegen, beide van genade en voorzienigheid, zijn zuiver en standvastig. 
 
 II. Zijn plaats en houding. Hij zette Zijn rechtervoet op de zee en de linker op de aarde, om aan te tonen de onbeperkte macht en heerschappij, welke Hij over de wereld heeft. En Hij had in zijn hand een boeksken, dat geopend was, waarschijnlijk hetzelfde dat tevoren verzegeld geweest was, maar nu geopend en dat trapsgewijs door Hem vervuld was. 
@@ -35,21 +40,30 @@ III. Zijn ontzagwekkende stem. Hij riep met een grote stem, gelijk een leeuw bru
 IV. Het verbod, dat aan de apostel gegeven werd van openbaar te maken wat de zeven donderslagen gesproken hadden. Hij moest dat verzegelen, vers 4. De apostel wilde bewaren en mededelen alles wat hij in deze verschijningen zag en hoorde, maar de tijd was nog niet gekomen. 
 
 V. De plechtige eed door dezen engel afgelegd. 
+
 1\. Zijn wijze van eedzweren. Hij hief zijn hand op naar de hemel en Hij zwoer bij Dien, die leeft in alle eeuwigheid; bij zich zelven, of bij God als God, op wie Hij als Heere, Verlosser en Regeerder van de wereld zich nu beroept. 
+
 2\. De inhoud van Zijn eed. Dat er geen tijd meer zijn zal. Dat is: 
+
 A. Dat de vervulling van de voorzeggingen, welke dit boek bevat, niet langer zal uitgesteld worden dan totdat de laatste engel de bazuin zou blazen, dat dan alles tot spoedige vervulling komen zou. Maar in de dagen der stem van de zevenden engel, wanneer hij bazuinen zal, zo zal de verborgenheid Gods vervuld worden, vers 7. Of: 
+
 B. Dat wanneer deze verborgenheid Gods vervuld is, dan de tijd zelf zal ophouden te bestaan, aangezien die de maat is voor de zichtbare, vergankelijke dingen, maar dan zullen ten laatste alle dingen in gevestigden toestand komen en dus de tijd opgaan in de eeuwigheid. 
 
 ## Openbaring 10:8-11 
 Hier hebben wij: 
+
 I. Een nauwkeurige last, die aan de apostel gegeven werd, en wel: 
+
 1\. Hij moet gaan en dat boeksken nemen uit de hand van de hiervoren genoemden sterken engel. Deze last werd gegeven niet door de engel zelven, die op de aarde stond, maar door dezelfde stem uit de hemel, die in het vierde vers hem verhinderd had op te schrijven hetgeen hij van de zeven donderslagen gehoord had. 
+
 2\. Het boeksken op te eten, dit gedeelte van de last werd hem door de engel zelven gegeven. Hierdoor werd de apostel te kennen gegeven dat hij, alvorens over te gaan tot de mededeling van hetgeen hem geopenbaard was, de voorzeggingen door en door moest in zich opnemen en er zelf behoorlijk belang in stellen. 
 
 II. Een mededeling van de smaak en de uitwerking, welke dit kleine boek hebben zou, wanneer de apostel het opgegeten had. Eerst in zijn mond, zou het zoet zijn als honing. Alle mensen hebben er vermaak in om in de toekomst te zien en aanstaande gebeurtenissen zich te horen voorzeggen, en alle Godvrezenden ontvangen gaarne het woord Gods, wat ook Zijn inhoud moge zijn. Maar wanneer dit profetisch boek meer nauwkeurig door de apostel gesmaakt zou zijn, dan zou hij bemerken dat de inhoud bitter was. Deze dingen waren zo ontzaglijk en vreeslijk, zulke drukkende vervolgingen van het volk Gods, zulk een ontvolking van de aarde, dat het vooruitzien en de voorwetenschap er van niet aangenaam, maar pijnlijk voor de geest des apostels zou zijn, evenals de profetie van Ezechiël het voor die profeet was, Ezechiël 3:3. 
 
 III. Des apostels vervulling van de plicht, waartoe hij geroepen was, vers 10. En ik nam het boeksken uit de hand des engels, en at dat op, en hij bevond de uitwerking daarvan gelijk hem gezegd was. 
+
 1\. Het betaamt de dienstknechten Gods in hun eigen zielen de boodschap op te nemen, die zij anderen in Zijn naam brengen moeten, en er zelf behoorlijk door aangedaan te zijn. 
+
 2\. Het betaamt hun elke boodschap over te brengen, waarmee zij belast worden, om het even of die aangenaam is of niet voor de mensen. Hetgeen het minst aangenaam is, kan het nuttigst zijn. In elk geval mogen de boodschappers Gods geen enkel deel van Zijn raad achterwege houden. 
 
 IV. De apostel wordt te kennen gegeven, dat dit boek der profetie, dat hij nu in zich opgenomen heeft, hem niet gegeven was om bloot zijn nieuwsgierigheid te voldoen, of om bij hem indruk van genoegen of van smart te verwekken, maar om door hem aan de wereld bekend gemaakt te worden. Zijn profetische zending schijnt hier vernieuwd te worden, en hem wordt bevolen zich voor een andere afvaardiging voor te bereiden, om deze openbaringen van de bedoeling en de wil Gods, die van het hoogste belang zijn voor de gehele wereld, en ook voor de hoogst-geplaatste en aanzienlijkste mensen, mede te delen, en dat moet gelezen en overgebracht worden in vele talen. Dat is inderdaad het geval. Wij hebben ze in onze taal, en zijn allen geroepen om ze nauwkeurig te aanvaarden, nederig naar haar bedoeling te onderzoeken, vast te geloven dat elk onderdeel op zijn eigen tijd zal vervuld worden, dat de bedoeling en de waarachtigheid er van zullen blijken, en dat de alwetendheid, macht en getrouwheid van de grote God verheerlijkt zullen worden. 
