@@ -104,6 +104,7 @@ Merk op, God heeft aller mensen harten in Zijn hand en kan ze neigen ten gunste 
 
 ## Jeremia 15:15-21 
 Als tevoren, hebben wij hier:
+
 I. De nederige bede van de profeet tot God, die beide een pleiten op Zijn gerechtigheid en een klacht over de harde bejegening, die hij daarom ondergaan moest, bevatte. Het is ons een oorzaak van troost, dat, wat ons ook ontbreekt, wij tot Hem mogen gaan, voor Hem onze zaak blootleggen en op Zijn alwetendheid ons beroepen, gelijk de profeet hier doet: "O Heere, Gij weet het: Gij kent mijn oprechtheid," die mensen niet willen toestemmen, Gij kent mijn ellende, waarvan mensen weigeren kennis te nemen. Merk hier op:
 
 1\. Waarom de profeet bidt, vers 15. 
@@ -137,7 +138,7 @@ b. Hij beklaagt zich, dat hij zo weinig vreugde van zijn arbeid had. Het was eer
 
 D. Hij werpt zich op Gods barmhartigheid en belofte in een hartstochtelijke ontboezeming, vers 18 :Waarom is mijn pijn steeds durende, en wordt er niets gedaan om ze te stillen? Waarom zijn de woorden, die mijn vijanden steeds aan mijn vrede en goede naam toebrengen, ongeneeslijk, wordt niets gedaan om of mijn pijn weg te nemen of mijn goede naam te herstellen? Ik heb weinig verwacht, zo veronachtzaamd te worden, zal God, die mij Zijn tegenwoordigheid beloofd heeft, "mij zijn als een leugenachtige," God, op Wien ik vertrouw mij zijn "als wateren, die niet bestendig zijn?" Wij zijn geneigd, deze woorden op zijn best op te vatten en ze te houden voor een beroep 
 
-a. Op Gods barmhartigheid: "Ik weet, dat Hij de pijn van Zijn dienaar niet eeuwig doet duren, maar ze lenigen zal, zijn wond niet ongeneeslijk zal doen zijn, maar weldra helen, en daarom zal ik niet wanhopen." 
+a. Op Gods barmhartigheid: "Ik weet, dat Hij de pijn van Zijn dienaar niet eeuwig doet duren, maar ze lenigen zal, zijn wond niet ongeneeslijk zal doen zijn, maar weldra helen, en daarom zal ik niet wanhopen". 
 
 b. Op Zijn trouw: "Zou gij mij ganselijk zijn als een leugenachtige?" Neen, ik weet, dat Gij dat niet zult zijn. God is geen mens, dat Hij zou liegen. De bron des levens zal nimmer zijn voor zijn volk "als wateren, die niet bestendig zijn." 
 

@@ -117,7 +117,7 @@ II. Een onderzoek, door het volk ingesteld naar de oorzaak van deze rampen, vers
 
 1\. Dat een zondaar twist met God en weigert bestraffing te ontvangen. Zij konden niet inzien, dat zij iets hadden gedaan, waardoor zij God tot toorn verwekt hadden. Zij durfden dat niet uitspreken, maar in hun hart beschuldigden zij God van onrechtvaardigheid, als had Hij groter ellende over hen gebracht dan zij verdienden. Zij zoeken naar de oorzaak van hun rampen, terwijl ze, als ze niet blind waren geweest, die gemakkelijk hadden kunnen zien. Of 
 
-2\. Van een zondaar, die tot God wederkeert. Als er maar enige tijd een boetvaardige gedachte in hun hart opkwam (bijvoorbeeld) "Wat heb ik gedaan?" Hoofdstuk 8:6. Waarom overkomt mij deze smart? Waarom twist God met mij?) dan neemt God daar nota van, en zijn Geest is gereed om die overtuiging te verdiepen, opdat men, de zonde ontdekt hebbende er berouw over hebbe.
+2\. Van een zondaar, die tot God wederkeert. Als er maar enige tijd een boetvaardige gedachte in hun hart opkwam (bijvoorbeeld) "Wat heb ik gedaan?" Hoofdstuk 8:6. Waarom overkomt mij deze smart? Waarom twist God met mij? dan neemt God daar nota van, en zijn Geest is gereed om die overtuiging te verdiepen, opdat men, de zonde ontdekt hebbende er berouw over hebbe.
 
 III. Een antwoord op dit onderzoek. God wordt gerechtvaardigd als Hij spreekt en zal ons er toe brengen, dat wij Hem rechtvaardigen, en daarom stelt Hij de zonde van de zondaars voor hun ogen, Psalm 50:21. Als zij vragen: "Waarom overkomt mij dit alles?" dan leren zij verstaan, dat dit alles hun eigen schuld is.
 
