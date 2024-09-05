@@ -131,7 +131,9 @@ VI. Dat met hun vijanden zal afgerekend, en dat ze ten onder gebracht zullen wor
 
 1\. Zeer verschrikkelijk, als een onweder, dat overvalt en onweerstaanbaar is.
 
-2\. Zeer smartelijk. "Het zal blijven op het hoofd van de goddelozen, zij zullen evenzeer gepijnigd als verschrikt worden." 3. Het zal hen vervolgen. Onweders zijn gewoonlijk kort van duur, maar dit zal een aanhoudend onweder zijn.
+2\. Zeer smartelijk. "Het zal blijven op het hoofd van de goddelozen, zij zullen evenzeer gepijnigd als verschrikt worden." 
+
+3\. Het zal hen vervolgen. Onweders zijn gewoonlijk kort van duur, maar dit zal een aanhoudend onweder zijn.
 
 4\. Het zal volbrengen, waartoe het gezonden is: "De hittigheid van des Heeren toorn zal zich niet afwenden, totdat Hij gedaan zal hebben. Het doel van Zijn toorn, zowel als dat van Zijn liefde, zal bereikt worden, Hij zal de gedachten Zijns harten volbrengen." 
 
