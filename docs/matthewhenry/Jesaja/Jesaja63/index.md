@@ -39,6 +39,7 @@ Deze overwinning op de Edomieten wordt hier ingevlochten als een voorbeeld van d
 I. Een vraag van verwondering tot de overwinnaar gericht, vers 1 en 2. Deze vraag wordt door de kerk gedaan, of door de profeet, namens de kerk. Hij ziet een machtige held terugkeren uit een bloedige ontmoeting, en verstout zich om hem twee vragen te doen:
 
 1\. Wie hij is. Hij ziet dat hij van het land van Edom komt, en dat wel in een uitrusting die voegt aan een dapper krijgsman, geen uitrusting opgesmukt met allerlei sieraad, maar bevlekt met bloed en stof. Hij bemerkt dat hij daar niet aankomt als iemand die verschrikt of vermoeid is, maar dat hij voorttrekt in zijn grote kracht, dus geheel en al ongebroken. De vraag: Wie is deze? heeft waarschijnlijk dezelfde bedoeling als de vraag, welke Jozua tot dezelfde persoon richtte toen hij hem met uitgetogen zwaard verscheen, Jozua 5:13. "zijt gij van ons of van uw vijanden?" Of wellicht dezelfde bedoeling als de vraag voor aanbidding, van Israël, Exodus 15:11 :"Wie is een God gelijk Gij?" 
+
 2\. De andere vraag is: Waarom zijt gij rood aan uw gewaad? In welke harde strijd zijt gij gewikkeld geweest, dat gij deze tekenen van inspanning en gevaar vertoont? Is het mogelijk dat iemand van zo vorstelijk en vreeswekkend voorkomen bezig zou geweest zijn in het lage dienstmerk om de wijnpers te treden? Zeker niet. Hetgeen bij de eerste oogopslag een verlaging voor de Verlosser schijnt te zijn, is in werkelijkheid zijn heerlijkheid. Het schijnt vernederend voor een machtig vorst om het werk van druiventreders te verrichten, maar Hij heeft de gesteltenis eens dienstknechts aangenomen en de kenmerken van Zijn dienstbaarheid gedragen.
 
 II. Een merkwaardig antwoord wordt gegeven.
@@ -58,6 +59,7 @@ B. Hij ondernam de strijd alleen door Zijn eigen ijver. Het was in Zijn toorn en
 Twee reden van deze ijver vuurden Hem aan:
 
 a. Hij had ijver tegen de vijanden van Hem en van Zijn volk. De dag van de wraak was in Mijn hart, vers 4, de dag in het eeuwig raadsbesluit vastgesteld om de wraak te nemen. Die was geschreven in Zijn hart, zodat Hij hem niet kon vergeten of die laten voorbijgaan, Zijn hart was er vol van, het lag op Zijn hart als een last, als een gewicht, en dat deed Hem deze heiligen oorlog met zoveel ijver voeren. Er is een dag voor de Goddelijke wraak bepaald, die mag schijnen lang uitgesteld te worden, maar zal ten laatste komen, en wij moeten gewillig zijn om er op te wachten, want ook onze Verlosser doet dat, ofschoon Zijn hart er op gesteld is.
+
 b. Hij heeft een ijver voor Zijn volk, en voor allen die bestemd zijn om in de bedoelde verlossing te delen. Het jaar Mijner verlosten was gekomen, het jaar, dat voor hun verlossing vastgesteld was. Er was een jaar vastgesteld voor de verlossing van Israël uit Egypte, en God houdt Zijn tijd nauwkeurig, Exodus 12:41. Evenzo was er een dag bestemd voor hun vrijlating uit Babel, Daniel 9:2. En ook was er een dag bestemd voor de komst van Christus om de werken des duivels te verbreken, en is er een dag voor elke verlossing van de kerk, en de Verlosser houdt die in het oog.
 
 Merk op. 

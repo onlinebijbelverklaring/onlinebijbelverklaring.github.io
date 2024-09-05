@@ -51,6 +51,7 @@ VII. De onmiddellijke vervulling van deze profetie in de ondergang van het Assyr
 
 ## Jesaja 37:1-7 
 Wij kunnen hier opmerken:
+
 1\. Dat het beste middel om de boosaardige plannen van onze vijanden tegen ons te verijdelen, hierin bestaat, dat wij er door gedreven worden tot God en onze plicht, en aldus spijze te verkrijgen uit de eter. Rabsaké’s doel was Hiskia van de Heere weg te schrikken, maar het bleek dat hij hem heenschrikte tot de Heere. In plaats dat de wind de mantel des reizigers van hem afrukte, maakte hij slechts dat hij er zich dichter in hulde. Hoe meer Rabsaké God smaadt, hoe meer Hiskia er zich op toelegt om Hem te eren door zijn klederen te scheuren wegens de smaad, Hem aangedaan, en in het heiligdom te gaan, ten einde Zijn wil te kennen.
 
 2\. Dat het de groten van de aarde wel voegt om de gebeden van de Godvruchtigen en van de vrome leraren te begeren. Hiskia zond boden, en wel zeer achtbare mannen, van de hoogste rang tot Jesaja, ten einde om zijn gebed te verzoeken, gedenkende hoezeer zijn laatste profetieën duidelijk heen wezen naar de gebeurtenissen, die thans plaats hadden, en waarschijnlijk heeft hij in vertrouwen daarop niet getwijfeld, of de uitkomst zou goed en troostrijk zijn, maar toch wilde hij dat die troostrijke uitkomst een antwoord zal zijn op het gebed, deze dag is een dag van de benauwdheid, derhalve, laat het een dag van het gebed wezen.
