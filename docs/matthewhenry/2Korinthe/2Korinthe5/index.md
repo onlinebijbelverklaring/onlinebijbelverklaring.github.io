@@ -28,6 +28,7 @@ waarna hij twee dingen noemt, die noodzakelijk zijn om in Christus te leven, nam
 
 ## 2 Korinthe 5:1-11 
 In deze verzen vervolgt de apostel de redenering van het vorige hoofdstuk betreffende de gronden van hun moed en geduld onder de verdrukkingen. 
+
 I. Hij noemt de verwachting van, begeerte naar, en verzekerdheid van eeuwige gelukzaligheid na de dood. Voornamelijk merken we hier op: 
 
 1\. De verwachting der gelovigen van eeuwige gelukzaligheid na de dood, vers 1. Hij weet niet alleen of is door het geloof wèlverzekerd van de waarheid en de werkelijkheid der zaak zelf, dat er een ander en gelukkig leven is wanneer dit leven geëindigd is; maar hij heeft door genade goede hoop op zijn aandeel in de eeuwigdurende zegeningen van de onzichtbare wereld. Wij weten dat wij een gebouw hebben van God, wij hebben een vaste en wèl-gegronde verwachting van de toekomstige gelukzaligheid. Laat ons hier nagaan: 
@@ -45,6 +46,7 @@ B. Er is een zuchten van verlangen naar de gelukzaligheid van het andere leven e
 3\. De verzekerdheid van de gelovige omtrent zijn aandeel in de toekomstige zaligheid; op dubbele grond. 
 
 A. Door de ondervinding van Gods genade, die hem bereid en geschikt maakt voor deze heerlijkheid. Die ons nu tot ditzelfde bereid heeft is God, vers 5. Allen, die bestemd zijn voor de hemel hiernamaals, worden hier voor de hemel bereid; de stenen van dien geestelijken tempel worden hier gefatsoeneerd en behouwen. En Hij, die er ons voor bereidt, is God; omdat niets minder dan Goddelijke macht een mens der Goddelijke natuur deelachtig maken kan; geen andere hand dan die van God kan ons daarvoor bewerken. Er is veel te doen om onze zielen voor de hemel te bereiden; en de toebereiding van het hart is van de Heere. 
+
 B. Het Onderpand des Geestes geeft hem die verzekerdheid, want onderpand is een deel der vervulling en verzekert de vervulling. De tegenwoordige genaden en vertroostingen van de Geest zijn het onderpand van eeuwige genade en vertroosting. 
 
 II. De apostel voegt hier een uitweiding tussen ten troost van de gelovigen in hun tegenwoordige toestand en staat in de wereld, vers 6-8. Merk hier op: 
@@ -54,6 +56,7 @@ II. De apostel voegt hier een uitweiding tussen ten troost van de gelovigen in h
 2\. Hoe getroost en moedig wij behoren te zijn in alle moeiten van dit leven en in de ure des doods. Daarom hebben wij, behoren te hebben, altijd goeden moed, vers 6; en wij hebben goeden moed en hebben meer behagen om uit het lichaam uit te wonen, vers 8. Ware Christenen, indien zij behoorlijk in aanmerking nemen het vooruitzicht van de andere wereld, dat het geloof hun geeft, en de goede redenen voor hun hoop op gelukzaligheid na de dood; behoren vertroost te zijn in de moeiten van dit leven en ondersteund zich te gevoelen in de ure des doods. Zij behoren een moed te grijpen bij de ontmoeting van de laatste vijand, en gewillig te zijn om liever te sterven dan te leven; wanneer het de wil Gods is dat deze aardse tabernakel verbroken wordt. Zij, die van boven geboren zijn, verlangen daar te wezen; dat is uit te wonen uit het lichaam, om zeer spoedig in te wonen bij de Heere; - te sterven om met Christus te zijn; - de ogen te sluiten voor de dingen dezer wereld om ze te openen in de wereld der heerlijkheid. Daar zal het geloof veranderd zijn in aanschouwen. 
 
 III. Hij gaat voort met zijn tussenrede om zichzelf en anderen op te wekken en te verlevendigen tot hun plicht, vers 9-11. Wèlgegronde hoop op de hemel zal nooit de geringste aanleiding geven tot slordigheid of zondige gerustheid; integendeel, ze zal ons aansporen tot de grootste zorg en de vurigste ijver in onze Godsverering. Daarom; omdat wij hopen met de Heere te zijn; arbeiden wij en verdragen moeiten, vers 9, philotimoe nietha. 
+
 Wij zijn zeer begerig en arbeiden zo vlijtig als de meest-begerige mensen, om te verkrijgen wat wij bedoelen. Merk hier op: 
 
 1\. Wat het was, waarnaar de apostel zo begerig was: Gode welbehagelijk te zijn. Wij zijn begerig, levende en stervende, in het lichaam of er uitwonende, Hem, de Heere, welbehagelijk te zijn; dat wij mogen behagen Hem, die ons verkoren heeft; dat onze grote Heere eens tot ons zal zeggen: Wèl gedaan! Dat beschouwden zij als de grootste gunst en de hoogste eer; dat was het toppunt van hun begeren. 
@@ -62,9 +65,11 @@ Wij zijn zeer begerig en arbeiden zo vlijtig als de meest-begerige mensen, om te
 
 ## 2 Korinthe 5:12-15 
 Merk hier op: 
+
 I. De apostel verdedigt zich en zijn medearbeiders tegen de schijn van zichzelf te prijzen, vers 12; en zegt hun: 
 
 1\. Het was niet om zichzelf te prijzen of voor hun eigen belang, dat hij in de vorige verzen gesproken had van hun getrouwheid en ijver; ook bedoelde hij niet hun goede gedachte over hem te verdenken. Maar: 
+
 2\. De ware reden was deze: hij wilde hun een verweermiddel geven om zijn beschuldigers te kunnen antwoorden, die ijdele eer najoegen en alleen in het aangezicht roemden; hij wilde hun een oorzaak van roem over hem geven, opdat ze zich verdedigen konden tegen hun tegenstanders. Het is de beste verdediging van de dienaren des Woords, wanneer zij belasterd en gesmaad worden, indien de mensen kunnen zeggen dat het Woord in hun gewetens geopenbaard is, en nuttig geweest is voor hun bekering en stichting. 
 
 II. Hij geeft goede redenen op voor hun groten ijver en toewijding. Sommigen van Paulus tegenstanders hadden, naar het schijnt, hem zijn ijver en vurigheid verweten alsof hij een krankzinnige ware, of in de taal onzer dagen: een dweper. Zij schreven het alles toe aan dweepzucht, gelijk de Romeinse rechter hem toevoegde: Uw grote geleerdheid brengt u tot razernij, Hand 26:24. Maar de apostel zegt hun: 
@@ -74,10 +79,12 @@ II. Hij geeft goede redenen op voor hun groten ijver en toewijding. Sommigen van
 2\. De liefde van Christus drong hen, vers 14. Zij hadden de heerlijkste en sterkste drangreden voor hun handelen. De liefde is de sterkste aansporing van dienaren en van alle Christenen, tot hun plicht. Onze liefde tot Christus heeft die kracht, en Christus’ liefde voor ons, die Hij betoonde door voor ons in de dood te gaan, zal dezelfde uitwerking op ons hebben, indien ze wèl beschouwd en beoordeeld wordt. Want merk op hoe de apostel de redelijkheid van deze drang der liefde handhaaft, door aan te tonen: 
 
 A. Wat wij vroeger waren en hadden moeten blijven, indien Christus niet voor ons gestorven ware. Wij waren dood. Indien een voor allen gestorven is, dan zijn zij allen gestorven; gestorven voor de wet; onder het vonnis des doods; dood in zonden en misdaden; geestelijk dood. Dat was de betreurenswaardige toestand van allen, voor welken Christus gestorven is; zij waren verloren, dood, verwoest; en hadden dat eeuwig moeten blijven indien Christus niet voor hen gestorven ware. 
+
 B. Wat zij behoren te doen, voor wie Christus stierf. Zij moeten Hem leven. Dat was wat Christus bedoelde, dat zij die leven, die door God door middel van Zijn dood levend gemaakt zijn, zouden leven Dien, die voor hen gestorven en opgewekt is; en dat zij niet meer zichzelf zouden leven, vers 15. Wij mogen niet onszelf, maar Christus, tot het doel van ons leven en onze daden stellen; het was het doel van Christus om door Zijn dood ons te genezen van onze zelfzucht, en ons altijd op te wekken om te handelen onder de onweerstaanbare invloed van Zijn liefde. Het leven van de Christen moet Christus gewijd zijn, en eerst dan leven wij gelijk het behoort, wanneer wij leven voor Christus, die voor ons stierf. 
 
 ## 2 Korinthe 5:16-21 
 In deze verzen noemt de apostel twee dingen op, die noodzakelijk zijn, zullen we voor Christus leven, welke beide de gevolgen zijn van Zijn sterven voor ons; namelijk wedergeboorte en verzoening. 
+
 I. Wedergeboorte, welke uit twee dingen bestaat. 
 
 1\. Ontwenning van de wereld. Wij kennen van nu aan niemand naar het vlees, vers 16. Wij hechten ons aan niemand, hebben niemand lief, en niets in deze wereld, om vleselijke doeleinden en uitwendig voordeel; door de Goddelijke genade zijn wij bekwaam gemaakt om niet te letten op de dingen dezer wereld of op deze wereld zelf, maar op het leven dat boven is. De liefde van Christus is in onze harten en de wereld onder onze voeten. Goede Christenen moeten de aangenaamheden van dit leven en hun betrekkingen in deze wereld genieten met heilige onverschilligheid. Zelfs indien wij ook Christus naar het vlees gekend hebben, zegt de apostel, nochtans kennen wij Hem nu niet meer naar het vlees. Het is niet te beslissen of Paulus Christus in het vlees gezien heeft. Evenwel de overige apostelen hadden dat gedaan, en wellicht ook sommigen van hen, aan wie hij schreef. Maar hij wilde niet, dat iemand zich daarop iets liet voorstaan, want zelfs de lichamelijke tegenwoordigheid van Christus behoort niet door Zijn discipelen begeerd te worden. Wij moeten leven door Zijn geestelijke tegenwoordigheid en de vertroosting welke deze aanbiedt. Zij, die afbeeldingen van Christus maken en die in hun eredienst gebruiken, gaan niet de weg, dien God aangewezen heeft ter versterking van het geloof en ter verlevendiging van de liefde; want het is Gods wil dat wij Christus niet meer naar het vlees kennen zullen. 
@@ -95,6 +102,8 @@ B. Hij heeft de bediening der verzoening gegeven, vers 18. De Schriften zijn ges
 2\. Van de verzoening wordt hier gesproken als van onze onafwijsbare plicht, vers 20. Indien God gewillig is om met ons verzoend te worden, behoren wij ons met God te laten verzoenen. En het is het grote einddoel van het Evangelie, het woord der verzoening zo op zondaren te doen inwerken; dat zij hun vijandschap tegen God afleggen. Getrouwe dienaren zijn gezanten van Christus, gezonden om met zondaren te onderhandelen over vrede en verzoening; zij komen in Gods naam, met Zijn aanbiedingen, en handelen in Christus’ plaats; doende hetzelfde wat Hij deed toen Hij op aarde was, en wat Hij verlangt dat gedaan zal worden nu Hij in de hemel is. Wonderbare inschikkelijkheid! Ofschoon God bij de vijandschap niets verliezen, bij de vrede niets winnen kan, bidt Hij door zijn dienaren zondaren om hun vijandschap af te leggen en de voorwaarden aan te nemen die Hij aanbiedt, waardoor zij met Hem verzoend kunnen worden, en met al Zijn eigenschappen, al Zijn wetten, al Zijn voorzienigheid; om te geloven in de Middelaar; de verzoening aan te nemen, in te stemmen met het Evangelie, in al zijn delen en zijn gehele bedoeling. En tot onze aanmoediging om dat te doen, voegt de apostel er bij wat wij goed weten en zeer in aanmerking nemen moeten, vers 21. 
 
 A. De reinheid van de Middelaar: Hij heeft geen zonde gekend. 
+
 B. De offerande door Hem gebracht: Hij is zonde voor ons gemaakt; niet een zondaar, maar zonde, een zondoffer, een offer voor de zonde. 
+
 C. Het doel van dit alles: dat wij zouden worden rechtvaardigheid Gods in Hem; zouden gerechtvaardigd worden om niet door de genade Gods door de verzoening, welke is in Christus Jezus. Indien Christus, die Zelf geen zonde gekend heeft, zonde gemaakt is voor ons, dan worden wij, die geen rechtvaardigheid in onszelf hebben, rechtvaardigheid Gods gemaakt in Hem. Onze verzoening met God is alleen door Jezus Christus en ter wille van Zijn verdiensten; op Hem alleen moeten we ons dus verlaten en alleen in Zijn rechtvaardigheid roemen. 
 

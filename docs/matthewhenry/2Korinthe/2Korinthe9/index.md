@@ -35,6 +35,7 @@ II. Het schijnt dat hij zich verdedigt over de zending aan hen van Titus en de a
 
 ## 2 Korinthe 9:6-15 
 Hier hebben wij:  
+
 I. Duidelijke aanwijzingen, die in acht te nemen zijn omtrent de rechte en aangename wijze van het oefenen van weldadigheid. Het is van groot belang, dat wij niet alleen doen hetgeen van ons geëist wordt, maar ook dat we het doen gelijk ons bevolen werd. Omtrent de wijze, waarop de apostel wilde dat de Corinthiërs zouden geven, merken wij op: 
 
 1\. Het moest in zegening (met ruime hand) zijn. In vers 5 was reeds aangeduid dat er verwacht werd een ruime bijdrage, een zegen, niet een vrekheid; en nu geeft hij hun te overwegen dat zij, die een goeden oogst verlangen, niet zuinig en spaarzaam met het zaad zijn, want de oogst staat in verhouding tot het zaaisel, vers 6. 
@@ -53,6 +54,7 @@ B. God is machtig om onze weldadigheid tot ons voordeel te doen strekken, vers 8
 
 C. De apostel zendt een voorbede tot God op, dat zij de winners en niet de verliezers mogen zijn, vers 10, 11. Let hier op:
 Hem aan Wie de bede gericht is, God, die het zaad de zaaier verleent, en die door Zijn voorzienigheid zulk een vermeerdering van de vruchten der aarde geeft, dat wij niet alleen brood genoeg hebben om dit jaar van te leven, maar nog zaad genoeg overhouden voor een volgende voorraad. Dus: God geeft ons niet alleen een genoegzaam deel voor onszelf, maar ook nog zoveel dat wij in de behoeften van anderen voorzien kunnen; en dat is als zaad om te zaaien. 
+
 Waar om gebeden wordt: Er zijn verscheidene dingen, die hij voor hen begeert; namelijk: dat ze mogen hebben brood tot spijze; hun eigen genoegzaam deel; hun voldoende voedsel, en dat God vermenigvuldige hun gezaaisel; dat zij steeds meer gelegenheid mogen hebben om goed te doen; en dat er moge zijn vermeerdering van de vruchten hunner gerechtigheid; dat zij zelf rijkelijk mogen oogsten; en de beste en geschiktste vergelding van hun weldadigheid ontvangen; opdat zij in alles rijk worden tot alle goeddadigheid; dat ze ten slotte ondervinden mogen dat zij de winners, en niet de verliezers zijn. Werken van liefdadigheid zijn er zo ver van af dat ze ons verarmen zouden, dat ze juist de rechte middelen zijn om ons te verrijken, waarlijk rijk te maken. 
 
 2\. Terwijl zij geen verliezers zouden wezen, zouden de arme beproefde heiligen de winners zijn; want deze dienst vervult hun gebrek, vers 12. Wanneer wij bedenken dat zij heiligen zijn, die wij als huisgenoten des geloofs mogen beschouwen, wier behoeften zo groot zijn, hoe bereid zullen wij dan zijn om hun wel te doen! Onze goedheid kan niet tot God reiken, maar wel tot de heiligen, die op de aarde zijn, en aan wie wij dus kunnen tonen dat tot hen al onze lust is. 

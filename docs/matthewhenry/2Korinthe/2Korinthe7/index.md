@@ -21,6 +21,7 @@ In dit hoofdstuk begint een opwekking tot voortgaan in de heiligheid en verplich
 
 ## 2 Korinthe 7:1-4 
 Deze verzen bevatten een dubbele aanmaning: 
+
 I. Om te vorderen in heiligheid, of te voleindigen de heiligmaking in de vreze Gods, vers 1. Deze aanmaning wordt gegeven met de tederste toegenegenheid tot hen, die hij innig liefheeft; en aangedrongen met sterke beweegredenen; zoals de beschouwing van de buitengewoon grote en dierbare beloften, welke in het vorige hoofdstuk vermeld zijn, en waaraan de Corinthiërs hun deel en gerechtigheid hadden. De beloften Gods zijn sterke aansporing tot heiligmaking, en wel in twee opzichten daarvan; namelijk: 
 
 1\. Om te sterven aan de zonde; om onze lusten en verdorvenheden te doden; om onszelf te reinigen van alle besmetting des vleses en des geestes. Zonde is besmetting, en besmetting beide van lichaam en ziel. Er zijn zonden des vleses, die met het lichaam bedreven worden; en zonden des geestes, geestelijke ondeugden; en wij moeten ons reinigen van de besmetting van beide, want God moet verheerlijkt worden in ons lichaam en in onze ziel beide. 
@@ -39,6 +40,7 @@ In het vijfde vers schijnt de aanknoping te zijn aan Hfdst. 2:13, (waar de apost
 I. Hoe hij bedroefd was, vers 5. Hij was ontroerd toen hij Titus niet te Troas vond, en ook later toen hij hem gedurende enigen tijd niet in Macedonië ontmoette; dat was hem tot droefheid, want nu kon hij niet te weten komen hoe deze te Corinthe ontvangen was en hoe het met hun zaken ging. En bovendien overkwamen hem andere moeilijkheden door voortdurende uitbarstingen van vervolging; er was van buiten strijd, door aanhoudende twisten met en tegenstand van Joden en heidenen; en er was van binnen vrees, en grote bezorgdheid over hen, die het Christelijk geloof omhelsd hadden, dat die niet zouden verdorven of verleid worden, en aanstoot geven aan anderen of zelf te schande worden. 
 
 II. Hoe hij vertroost was, vers 6, 7. Merk hier op: 
+
 1\. De komst van Titus was hem enigszins troostend. Het was een reden van blijdschap hem te zien, naar wie hij lang verlangd en gewacht had. Alleen reeds de komst van Titus en zijn reisgenoten, van Titus die hem dierbaar was als zijn eigen zoon in het geloof, Tit. 1:4, was een grote vertroosting voor de apostel in al zijn moeiten en tochten. Maar: 
 
 2\. Het goede nieuws ten opzichte van de Corinthiërs, dat Titus hem bracht, was reden van nog groter vertroosting. Hij bevond dat Titus was vertroost geworden door hen, en dat vervulde hem met troost; vooral toen deze hem mededeelde hoe ernstig zij begeerden de apostel tevreden te stellen in de zaken, waarover hij hun geschreven had; en hoe bedroefd zij waren over het schandaal, dat in hun midden gebeurd was, en de grote ergernis, die zij anderen gegeven hadden; zowel als hoe vurig hun liefde voor de apostel was, die zo getrouw jegens hen gehandeld had door hun fouten te bestraffen. Zo juist is de opmerking van Salomo, Spr. 28:23: Die een mens bestraft, zal achterna gunst vinden, meer dan die met de tong vleit. 

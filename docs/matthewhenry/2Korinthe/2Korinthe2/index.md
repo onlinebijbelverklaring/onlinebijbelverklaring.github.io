@@ -26,13 +26,18 @@ In deze verzen:
 1\. Gaat de apostel voort met het opsommen der redenen, waarom hij niet naar Corinthe gekomen is, gelijk verwacht was; namelijk omdat hij bevreesd was hen te bedroeven of door hen bedroefd te worden, vers 1, 2. Hij had voorgenomen, dat hij niet wederom in droefheid tot hen komen zou; hetgeen het geval zou geweest zijn indien hij, komende, schandalen onder hen gevonden had, die niet behoorlijk bestraft werden. Dat zou een reden van droefheid geweest zijn, beiden voor hem en voor hen; want bij een ontmoeting zouden zowel vreugde als droefheid wederkerig zijn. Indien hij hen bedroefd had, dan zou dat voor hemzelf een oorzaak van droefheid zijn; want er zou niemand geweest zijn om hem blijde te maken. Maar zijn begeerte was een vriendelijke ontmoeting met hen te hebben, en hen niet verbitterd te zien door enige ongelukkige aanleiding of ontstemming. 
 
 2\. Hij zegt hun, dat hij met datzelfde doel zijn eersten brief geschreven heeft, vers 3. 
+
 A. Opdat hij komende, niet zou droefheid hebben van degenen, van welken hij verblijdmoest worden; en dat hij hun had geschreven in vertrouwen dat zij doen zouden hetgeen vereist werd tot hun voordeel en zijn vertroosting. Uit het volgende vers blijkt dat de bijzondere zaak, die hij bedoelt, die van de hoereerder was, over wie hij in de vorige brief, Hfdst. 5, geschreven had. Ook was de apostel in deze verwachting niet teleurgesteld. 
+
 3\. Hij verzekert hun, dat hij de bedoeling niet had hen te bedroeven, maar hun zijn liefde te bewijzen, en dat hij hun geschreven had in vele verdrukking en benauwdheid des harten, en met grote toegenegenheid voor hen. Hij had geschreven met vele tranen, opdat zij de liefde zouden verstaan, die hij overvloedig tot hen had. 
-A. Ook in bestraffingen, vermaningen en handelingen van tucht betonen getrouwe dienaren hun liefde. 
+
+A. Ook in bestraffingen, vermaningen en handelingen van tucht betonen getrouwe dienaren hun liefde.
+
 B. Noodzakelijke tucht en de uitoefening daarvan tegen overtreders zijn een oorzaak van droefheid voor teerhartige dienaren en worden met droefheid toegepast. 
 
 ## 2 Korinthe 2:5-11 
 In deze verzen behandelt de apostel de zaak van de hoereerder, op wie de ban toegepast was; en naar het schijnt was dit een der hoofdredenen voor het schrijven van deze brief. Hier merken we op: 
+
 1\. Hij zegt hun dat het misdrijf van die man ten dele hem bedroefd had; en dat hij dus ten dele met hen bedroefd was, die, ofschoon die schande onder hen gevonden werd, opgeblazen waren en geen leed gedragen hadden, 1 Korinthe 5:2. Hij was echter onwillig een te zware last op de gehele gemeente te leggen, vooral omdat zij zich in deze zaak gerechtvaardigd had door de vroeger door hem gegeven voorschriften te volgen. 
 
 2\. Hij zegt hun dat de straf, op de overtreder toegepast, voldoende geweest is, vers 6. De begeerde uitwerking was verkregen; want de man was verootmoedigd en zij hadden bewijs gegeven van gehoorzaamheid aan zijn voorschriften. 
@@ -40,6 +45,7 @@ In deze verzen behandelt de apostel de zaak van de hoereerder, op wie de ban toe
 3\. Daarom vraagt hij hun thans, zo spoedig mogelijk de persoon die in de ban gedaan was te herstellen en weer in hun gemeenschap op te nemen, vers 7, 8. Dit wordt op verscheidene wijzen herhaald. Hij verzoekt hen hem te vergeven; dat is de ban op te heffen, want zij konden de schuld en belediging tegen God niet kwijtschelden; maar in vele gevallen spruit de vertroosting van boetelingen voort niet alleen uit hun verzoening met God, maar evenzo met de mensen, die zij geschandvlekt of beledigd hebben. Die moeten hen evengoed van hun liefde verzekeren, dat is: zij moeten bewijzen dat hun bestraffingen en afwijzingen voortkomen uit liefde tot de persoon evenzeer als uit haat tegen de zonde, en dat het doel was hen te verbeteren, niet te verwoesten. Of anders: indien zijn val hun liefde voor hem verzwakt had, zodat ze niet zoveel welgevallen in hem konden hebben als vroeger. Maar nu hij door berouw weer hersteld was, moesten zij hem hun liefde vernieuwen en bevestigen. 
 
 4\. Hij gebruikt verscheidene gewichtige beweegredenen om hen daartoe over te halen. 
+
 A. De toestand van de boeteling pleitte er voor, want deze liep gevaar door al te grote droefheid verslonden te worden, vers 7. Hij voelde zijn overtreding zo diep en was zo bedroefd over de straf, dat hij gevaar liep van tot wanhoop te vervallen. Wanneer droefheid onmatig wordt doet zij kwaad; en zelfs droefheid over onze zonden is te groot, wanneer zij ongeschikt voor onze plichten maakt, of tot wanhoop drijft. 
 
 B. Zij hadden gehoorzaamheid aan zijn voorschriften getoond door de ban toe te passen op de overtreder; nu verlangde hij dat zij die gehoorzaamheid volkomen zouden maken door volgens zijn begeerte hem weer aan te nemen, vers 9. 
@@ -56,7 +62,9 @@ I. Paulus’ onvermoeibare arbeid en ijver in zijn werk, vers 12, 13. Hij reisde
 II. de zegen op zijn werk: een deur was geopend in de Heere, vers 12. Waar hij ook kwam, daar had hij veel werk te verrichten, en daar werd zijn werk gezegend, want God gaf getuigenis door hem van de reuk zijner kennis, vers 14, in elke plaats waar hij kwam. Hij vond alom gelegenheid om de mond te openen, en God opende de harten zijner hoorders, gelijk dat van Lydia, Hand. 16:14, en de apostel vermeldde dat als een reden van dankzegging aan God en van blijdschap voor zijn ziel. Gode zij dank, die ons te allen tijde doet triomferen in Christus. Alle triomfen van een gelovige zijn in Christus. In onszelf zijn wij zwak, en hebben blijdschap noch overwinning; maar in Christus mogen wij ons verheugen en zegevieren. 
 
 1\. Ware gelovigen hebben voortdurend oorzaak om in Christus te triomferen, want zij zijn meer dan overwinnaars door Hem, die hen liefgehad heeft, Rom. 8:37. 
+
 2\. God geeft hun oorzaak om in Christus te triomferen. Het is God, die ons de reden van triomf in Christus geeft en de harten daarvoor. Hem zij daarvoor de dank en de heerlijkheid van allen. 
+
 3\. De zegepraal van het Evangelie is een goede reden voor des Christens vreugde en blijdschap. 
 
 III. De vertroosting, welke de apostel en zijn medearbeiders vonden in hun werk, ook zelfs wanneer het Evangelie niet voorspoedig was tot zaligheid van sommigen, die het hoorden, vers 15-17. Merk hier op: 
@@ -70,6 +78,8 @@ B. Voor anderen is het Evangelie een reuk des levens ten leven. Voor nederige en
 2\. De ontzagwekkende indruk, welken deze waarheid maakt op de geest van de apostel, en evenzeer behoort te maken op ons. Wie is tot deze dingen bekwaam? vers 16. Tis hikanos, dat is: wie is waardig tot zulk gewichtig werk geroepen te worden; een werk van zo uitgebreide belangrijkheid omdat het zulke ontzaglijke gevolgen heeft? Wie is bekwaam om zo gewichtig werk te verrichten, dat zoveel bekwaamheid en kundigheid vereist? Het werk is groot en onze kracht is klein; ja, in onszelf hebben wij in ‘t geheel geen kracht. Al onze bekwaamheid is uit God. Indien men ernstig in het oog vatte welke grote belangen van de verkondiging des Evangelies afhangen en hoe moeilijk het werk der bediening is, dan zou men zeer voorzichtig zijn, om er zich toe te begeven, en zeer behoedzaam in de uitoefening. 
 
 3\. De troost, die de apostel had onder deze ernstige beschouwing. 
+
 A. Dat de getrouwe dienaren door God aangenomen worden, wat ook de uitslag van hun werk moge zijn. Wij zijn, indien we getrouw zijn, Gode een goede reuk van Christus, vers 15, in hen die zalig worden en in hen die verloren gaan. God zal onze oprechte bedoelingen en eerlijke pogingen aannemen, ofschoon velen daarvan geen goede uitslag hebben. De dienaren zullen worden aangenomen en beloond, niet naar de vrucht, maar naar de getrouwheid van hun werk. Israël zal zich niet verzamelen laten, nochtans zal ik verheerlijkt worden in de ogen des Heeren, Jes. 49:5. 
+
 B. Omdat zijn geweten getuigenis gaf van zijn getrouwheid, vers 17. Ofschoon menigeen het Woord Gods te koop droeg, getuigde het geweten van de apostel van zijn getrouwheid. Hij mengde niet zijn eigen denkbeelden onder de leringen en instellingen van Christus; hij voegde niets toe aan en nam niets af van het Woord Gods; hij was getrouw in de uitdeling des Evangelies, zoals hij het ontvangen had van de Heere, en had geen bijzondere belangen te dienen; zijn doel was zich Gode aangenaam te maken, in gedachtenis houdende dat diens oog altijd op hem was; en daarom sprak en handelde hij steeds als voor het aangezicht Gods, dus in oprechtheid. Wat wij in de godsdienst verrichten is niet van God, komt niet van God en wordt door God niet aangenomen, tenzij wij het doen in oprechtheid en als voor Zijn aangezicht. 
 
