@@ -31,6 +31,7 @@ V. Vernieuwing van de opdracht aan Timotheüs, vers 18. Hymeneüs en Alexander, 
 ## 1 Timotheüs 1:1-4 
 
 Hier hebben wij: 
+
 I. Het opschrift van de brief; door wie hij gezonden werd: Paulus, een apostel van Jezus Christus, aangesteld tot apostel naar het bevel van God en de Heere Jezus Christus, welke onze Hoop is. Zijn geloofsbrieven waren onbetwistbaar. Hij had niet alleen een aanstelling, maar een bevel; niet alleen van God onze Zaligmaker, maar ook van Jezus Christus; hij was een verkondiger van het Evangelie van Christus en een dienaar in het koninkrijk van Christus. God is onze Zaligmaker. Jezus Christus is onze hoop. Jezus Christus is de Hoop van een Christen, onze hoop is in Hem; al onze hoop voor het eeuwige leven is op Hem gebouwd; Christus is in ons de Hoop der heerlijkheid, Col. 1:27. 
 Paulus noemt Timotheüs zijn zoon, omdat hij het middel tot zijn bekering geweest was, en omdat deze hem als een zoon gediend had; gediend met hem in het Evangelie, Phil. 2:22. Timotheüs was niet tekort geschoten in de plicht van een zoon voor Paulus, en Paulus had overvloedig de zorg en de tederheid van een vader voor hem. 
 
@@ -43,7 +44,9 @@ III. Paulus zegt Timotheüs met welke bedoeling hij hem tot deze bediening aange
 2\. Ten tijde der apostelen waren er mensen, die trachtten het Christendom te vervalsen. ( Wij dragen niet, gelijk velen, het woord Gods te koop, 2 Cor. 2:17. Ware dat niet het geval geweest, dan zou Timotheüs deze opdracht niet ontvangen hebben. 
 
 3\. Hij moest niet alleen zorgdragen dat hijzelf geen andere leer verkondigde, maar hij moest de anderen bevelen geen eigen denkbeelden bij het Evangelie te voegen, of er iets aan te ontnemen, maar het zuiver en onverminkt te verkondigen. Evenzeer moest hij voorkomen, dat ze zich begaven tot fabelen en oneindelijke geslachtsrekeningen en woordentwisten. Dat wordt dikwijls herhaald in deze beide brieven, 4:7; 6:4; 2 Tim. 2:23, en evenzo in de brief aan Titus. Gelijk er onder de Joden waren, die het Judaïsme in het Christendom brachten, zo vond men er onder de heidenen, die het Christendom met het heidendom vermengden. "Wees tegen deze op uw hoede", zegt hij; "waakt tegen hen; of zij zullen het bederf en de ondergang van de godsdienst onder u zijn, want zij brengen meer twistvragen dan stichting voort." 
+
 De twistvragen der dienaren stichten niet; en hetgeen aanleiding geeft tot oneindige woordenwisseling werpt de gemeente neer in plaats van haar op te bouwen. En naar mijn mening moeten, bij wijze van vergelijking, alle andere vragen, welke dienaren opwerpen, in plaats van door Gods Woord te stichten, door ons verworpen en zonder deelneming voorbijgegaan worden, zoals een onafgebroken opvolging van de bediening van de apostelen tot op onze tijd; de besliste noodzakelijkheid van bisschoppelijke ordening; de overtuiging van de dienaar ten aanzien van de waarde en werking der sacramenten, die hij bedient. Die zijn alle even slecht als Joodse fabelen en oneindelijke geslachtsrekeningen, want zij leiden ons in onoplosbare moeilijkheden en dienen alleen om de grondslagen van de hoop der Christenen te schokken en hun harten te vervullen met ontmoedigende twijfelingen en vrezen. Goddelijke stichting is het doel, dat de dienaren beogen moeten met al wat zij spreken, opdat de Christenen mogen toenemen in godsvrucht en opwassen tot betere gelijkenis van de gezegenden God. 
+
 Merk verder op, dat de Goddelijke stichting moet zijn in het geloof; het Evangelie is het fondament waarop gebouwd moet worden; en het is door het geloof in de eerste plaats, dat wij tot God komen, Hebr. 11:6; wij worden ook in dezelfde weg en door hetzelfde beginsel des geloofs opgebouwd. Verder moeten de dienaren zoveel mogelijk vermijden alles, wat aanleiding geven kan tot twistgesprekken; en moeten vooral ingaan op de grote en praktische onderwerpen van de godsdienst, omtrent welke geen verschil van gevoelen kan bestaan. Want zelfs twistgesprekken over grote en noodzakelijke waarheden trekken de geesten af van het hoofddoel van het Christendom, dat bestaat in wandel en gehoorzaamheid zowel als in geloof; opdat wij niet de waarheid in ongerechtigheid ten onder houden, maar de verborgenheid des geloofs in een rein geweten bewaren mogen. 
 
 ## 1 Timotheüs 1:5-11 
@@ -61,8 +64,11 @@ B. Een goed geweten, waarin wij ons dagelijks moeten oefenen, niet alleen om het
 C. Een ongeveinsd geloof moet haar vergezellen, want de liefde moet ongeveinsd zijn, en dus moet het geloof, dat door de liefde werkt, dezelfde natuur hebben, ongeveinsd en oprecht. Sommigen van hen, die zich uitgaven voor leraren van de wet, verwijderden zich van dat doel der wet; zij werden beschouwd als redetwisters, maar hun woorden waren ijdel geklank; zij gingen door voor leraren, doch zij beweerden anderen te onderwijzen hetgeen zij zelf niet begrepen. Indien de gemeente door zulke leraren bedorven wordt, moeten wij daar niets vreemds in zien, want wij bemerken hier dat het van de beginne reeds zo was. Merk hier op: 
 
 a. Indien mensen, voornamelijk dienaren, zich afkeren van de grote wet der liefde, die het einde der wet is, dan zullen zij zich begeven tot zinledig geklap; wanneer iemand zijn doel mist, is het niet te verwonderen dat elke stap die hij doet op de verkeerden weg gezet wordt. 
+
 b. Twistend gebabbel, voornamelijk in de godsdienst, is onnut; het is nadelig en nutteloos voor al wat ons ten goede moet strekken, en het is zeer verderfelijk en nadelig, en toch bestaat de godsdienst van menigeen uit weinig meer dan ijdel getwist. 
+
 c. Zij, die graag over nutteloze vragen twisten, zijn er gewoonlijk op uit om leraren van anderen te zijn; zij begeren (dat is, zij hebben vermaak in) de dienst der leer. 
+
 d. Het komt maar al te dikwijls voor, dat mensen het werk der bediening aanvaarden, hoewel zij geheel onwetend zijn omtrent de dingen, waarover zij spreken; zij verstaan zo min hetgeen zij zeggen als hetgeen zij bevestigen; en met zulke geleerde onwetendheid stichten zij ongetwijfeld de harten hunner hoorders zeer! 
 
 2\. Het gebruik der wet, vers 8. De wet is goed, zo iemand die wettelijk gebruikt. De Joden gebruikten haar onwettelijk; als een machine om de gemeente te verdelen; als een bedekking voor de goddeloze tegenkanting, die zij het Evangelie aandeden; zij gebruikten haar voor hun rechtvaardigmaking, dus onwettelijk. Wij moeten er dus niet aan denken haar terzijde te zetten, maar haar wettelijk gebruiken, om de zonde te weerstaan. Het misbruik, dat velen van de wet gemaakt hebben, neemt haar gebruik niet weg, maar wanneer een Goddelijke inzetting misbruikt wordt, roept zij terug tot het rechte gebruik en afschaffing van het misbruik. De wet is nog zeer nuttig als regel des levens; hoewel wij niet onder het verbond der werken zijn, is zij goed om ons te leren wat zonde en wat plicht is. Zij is niet de rechtvaardigen gesteld; dat is: niet hun, die op haar letten; want indien wij de wet konden houden, dan zou de rechtvaardigheid uit de wet zijn, Gal. 3:24; maar zij is gegeven voor de godlozen, om hen te weerhouden, te belemmeren, en paal en perk te stellen aan de ondeugd en godloosheid. De genade Gods verandert de harten; maar de verschrikkingen der wet kunnen dienen om de handen te binden en de tongen te beteugelen. Een rechtvaardig man heeft deze breidels niet nodig, die voor de godlozen noodzakelijk zijn; en tenminste is de wet niet oorspronkelijk en voornamelijk gegeven voor de rechtvaardigen, maar voor de zondaren van allerlei soorten, grotere en kleinere, vers 9, 10. In deze zwarte lijst van zondaren noemt hij bepaald de overtreders van de tweede tafel der wet, van de plichten, die wij tegenover onze naasten hebben; tegen het vijfde en zesde gebod: vadermoorders, moedermoorders, doodslagers; tegen het zevende: hoereerders, dien die bij mannen liggen; tegen het achtste: mensendieven; tegen het negende: leugenaars en meinedigen; en hij besluit de opnoeming met: en zo er iets anders tegen de gezonde leer is. Sommigen verstaan dit als een instelling van de macht der burgerlijke overheid om wetten te maken tegen zulke openbare zondaren als hier opgenoemd worden, en om deze wetten in werking te brengen. 
@@ -107,24 +113,36 @@ B. Hier maakt hij melding van de overvloedige genade van Jezus Christus, vers 14
 In het slot van dit vers zegt Paulus van zichzelf: Waarvan ik de voornaamste ben. Paulus was een zondaar van de eersten rang; hij erkende dat zelf; omdat hij was blazende (ademende) dreiging en moord tegen de discipelen des Heeren, Hand. 9:1, 2. Vervolgers zijn soms de slechtste der zondaren, en Paulus was een hunner. Of, waarvan ik een hoofd ben, van de zondaren, die vergeving ontvingen, stond hij bovenaan. Het is een uitdrukking van zijn grote nederigheid; hij, die zich op een andere plaats noemt de minsten van al de heiligen, Ef. 3:8, noemt zich hier de voornaamsten der zondaren. Merk hier op: 
 
 a. Christus Jezus is in de wereld gekomen; de profetieën betrekkelijk Zijn komst zijn nu vervuld; 
+
 b. Hij kwam om zondaren zalig te maken; Hij kwam om zalig te maken hen, die zichzelf niet konden redden en helpen; 
+
 c. Godslasteraars en vervolgers zijn de grootste zondaren; als zodanig beschouwde Paulus hen; 
+
 d. De voornaamste der zondaren kan de voornaamste der heiligen worden; zo ging het deze apostel, want hij was in geen ding minder dan de voornaamste apostelen. 2 Cor. 11:5; Christus kwam om de grootste zondaren zalig te maken. 
+
 e. Dit is een zeer grote waarheid; een getrouw woord, het zijn ware en getrouwe woorden, waar men zich op verlaten kan. 
+
 f. Het verdient door ons allen aangenomen en geloofd te worden, tot onze troost en bemoediging. 
 
 C. De barmhartigheid, welke Paulus bij God vond, niettegenstaande zijn grote goddeloosheid vóór zijn bekering. Daarvan zegt hij het volgende: 
 
 a. Ter aanmoediging van anderen om berouw te hebben en te geloven. Maar daarom is mij barmhartigheid geschied, opdat Jezus Christus in mij, die de voornaamste ben, al zijn lankmoedigheid zou betonen, tot een voorbeeld dergenen, die in Hem geloven zullen ten eeuwigen leven, vers 16. Het was een openbaring van de lankmoedigheid van Christus, dat Hij zo handelde met iemand, die Hem zó beledigd had; en dat was ten voorbeeld voor anderen, opdat zelfs de grootste zondaren nooit zouden wanhopen aan de barmhartigheid van God. Merk hier op: 
+
 Ten eerste. Onze apostel was een van de grootste zondaren vóór zijn bekering tot het Christendom. 
+
 Ten tweede. Hij werd bekeerd en verkreeg barmhartigheid, zowel terwille van anderen als voor hemzelf; hij werd een voorbeeld voor anderen. 
+
 Ten derde. De Heere Jezus Christus toont grote lankmoedigheid in de bekering van grote zondaren. 
+
 Ten vierde. Zij, die barmhartigheid verkrijgen, geloven in de Heere Jezus Christus, want zonder geloof is het onmogelijk Gode te behagen, Hebr. 11:6. 
+
 Ten vijfde. Zij, die in Christus geloven, geloven in Hem ten eeuwigen leven, zij geloven tot zaligheid der ziel, Hebr. 10:39. 
 
 b. Hij vermeldt het ter verheerlijking Gods; na gesproken te hebben van de barmhartigheid, die God hem bewezen had, kon hij niet goed voortgaan met het schrijven van deze brief, indien hij hier niet een dankbare erkenning van Gods goedheid jegens hem ingelast had. de Koning nu der eeuwen, de onverderflijken, de onzienlijken, de alleen-wijzen God, zij eer en heerlijkheid in alle eeuwigheid. Amen! vers 17. 
 Merk hier op: 
+
 Ten eerste. Gode komt de eer toe voor de genade, waarvan wij de troost genieten. Zij, die gevoel hebben voor hun verplichting aan de barmhartigheid en genade van God, zullen hun harten uitbreiden tot zijn heerlijkheid. Hier wordt Hem ere gegeven als de Koning der eeuwen, de onverderflijken en onzienlijken God. 
+
 Ten tweede. Wanneer wij ondervonden hebben dat God goed is, moeten wij niet vergeten uit te spreken dat Hij groot is, en Zijn vriendelijke gedachten over ons mogen in geen enkel opzicht onze hoge gedachten over Hem verminderen, maar moeten die veelmeer doen toenemen. God had in bijzondere mate op Paulus neergezien en hem barmhartigheid betoond en zich met hem in gemeenschap gesteld; en nu noemt Paulus Hem de Koning der eeuwen. Gods genadige handelingen met ons moeten ons vervullen met bewondering voor Zijn heerlijke eigenschappen. Hij is eeuwig, zonder begin van dagen en zonder einde des levens of verandering van tijd. Hij is de Oude van dagen, Dan. 7:9. Hij is onsterflijk en de bron der onsterflijkheid; Hij alleen bezit de onsterflijkheid, 1 Tim. 6:16; want Hij kan niet sterven. Hij is onzienlijk, want Hij kan niet gezien worden met sterflijke ogen; Hij woont in het licht dat geen mens naderen kan; die geen mens gezien heeft of zien kan, 1 Tim. 6:16. Hij is de alleenwijze God, Judas vers 25; Hij alleen is oneindig wijs en de fontein van alle wijsheid. Hem zij eer en heerlijkheid in alle eeuwigheid; of: ik wil altijd bezig zijn met Hem eer en heerlijkheid te geven, zoals duizendmaal duizenden doen, Openb. 5:12, 13. 
 
 ## 1 Timotheüs 1:18-20 
@@ -132,13 +150,20 @@ Ten tweede. Wanneer wij ondervonden hebben dat God goed is, moeten wij niet verg
 Hier is het gebod aan Timotheüs om met beslistheid zijn werk voort te zetten, vers 18. Het Evangelie is een gebod, aan de dienaren gegeven; het is hun toevertrouwd en hun wordt geboden het plichtmatig te gebruiken naar de bedoeling en mening van de grote Bewerker. Het schijnt dat er profetieën omtrent Timotheüs waren gegeven, dat hij tot de bediening moest toegelaten worden en zich daarin voorbeeldig betonen zou, en dat moedigde Paulus aan om hem het gebod te geven. Merk op: 
 
 1\. De bediening is een strijd; een goede strijd tegen zonde en Satan, onder de banier van de Heere Jezus, die de overste Leidsman onzer zaligheid is, Hebr. 21:10. In Zijn dienst en tegen Zijn vijanden zijn de dienaren op bijzondere wijze aangesteld. 
+
 2\. De dienaren moeten deze goeden strijd strijden; moeten hun roeping ijverig en moedig vervullen, niettegenstaande tegenwerking en ontmoediging. 
+
 3\. De profetieën, die omtrent Timotheüs voorgegaan waren, worden hier genoemd als een reden om hem aan te sporen tot ijverige en moedige vervulling van zijn dienst. Zo moet de goede verwachting, die anderen van ons koesteren, ons prikkelen om onze plicht te doen. Opdat gij de goeden strijd moogt strijden. 
+
 4\. Wij moeten het geloof en een goed geweten behouden. Houdende het geloof en een goed geweten, vers 19. Zij, die een goed geweten niet behouden, zullen spoedig schipbreuk lijden van het geloof. Laat ons leven naar de voorschriften van een vernieuwd, verlicht geweten en een onergerlijk geweten behouden, Hand. 24:16; een geweten dat niet gedwarsboomd wordt door enige ondeugd of zonde; dat zal het middel zijn om een gezond geloof te bewaren. Wij moeten op het een zowel als op het ander letten; want de verborgenheid des geloofs moet in een rein geweten gehouden worden, 3:9.
+
 Van hen, die schipbreuk des geloofs geleden hebben, noemt hij er twee: Hymeneus en Alexander; die het Christelijk geloof beleden, maar die belijdenis verlaten hadden. Paulus had hen overgegeven aan de Satan; had hen verklaard te behoren tot het rijk des Satans, en hen, naar sommigen menen, door een buitengewone macht overgeleverd om door Satan verschrikt en gepijnigd te worden, opdat zij zouden leren niet meer te lasteren; of de leer van Christus en Zijn goede wegen niet meer tegen te spreken en te onteren. De oorspronkelijke bedoeling van de hoogste kerkelijke tucht was het voorkomen van zonde en het terugroepen van de zondaar. In dit geval was het tot verderf des vleses, opdat de geest mocht behouden worden in de dag van de Heere Jezus, 1 Cor. 5:5. 
 Merk op: 
 
 A. Zij, die de dienst en het werk van de Satan liefhebben, worden rechtvaardig overgeleverd aan de Satan; die ik de Satan overgegeven heb. 
+
 B. God kan, indien het Hem behaagt, werken door hetgeen Hem tegenstaat; Hymeneus en Alexander werden aan de Satan overgegeven, opdat zij zouden leren niet meer te lasteren; terwijl men zou denken dat zij van Satan zouden leren voortdurend nog meer te lasteren. 
+
 C. Zij, die een goed geweten verworpen en van het geloof schipbreuk geleden hebben, zullen voor geen ding staan; zelfs lastering niet uitgezonderd. 
+
 D. Laat ons dus het geloof en een goed geweten houden, indien wij vrij blijven willen van lastering, want indien wij een van die beide verliezen, weten wij niet waar het einde zal zijn. 

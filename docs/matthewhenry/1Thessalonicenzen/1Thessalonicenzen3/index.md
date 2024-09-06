@@ -28,7 +28,8 @@ Om u te versterken en u te vermanen van uw geloof, vers 2. Paulus had hen bekeer
 
 III. De beweegreden, die Paulus had om Timotheüs tot dat doel te zenden, was een heilige vrees en jaloersheid, dat niemand hunner van het geloof van Christus mocht bewogen worden, vers 3. Hij wenste dat niemand hunner zou worden bewogen of geschokt, en dat zij niet zouden afvallen van of wankelen in het geloof. 
 
-1\. Hij zag daar gevaar voor en vreesde voor de gevolgen. 
+1\. Hij zag daar gevaar voor en vreesde voor de gevolgen.
+
 A. Er was gevaar: 
 
 a. Door de verdrukkingen en vervolgingen ter wille van het Evangelie, vers 3. Deze Thessalonicensen zagen welke verdrukkingen de apostelen en verkondigers van het Evangelie overkwamen, en dat zou hen kunnen afschrikken. Ook werden ongetwijfeld alle belijders van het Evangelie en ook dus deze Thessalonicensen verdrukt. 
@@ -75,5 +76,7 @@ A. Dat zij overvloedig gemaakt worden in de liefde, vers 12; in liefde tot elkaa
 B. Dat zij mogen bevestigd worden onberispelijk in heiligheid, vers 13. Deze geestelijke zegening wordt vermeld als een gevolg van het toenemen en overvloedig worden in de liefde. Opdat Hij (de Heere) uw harten versterke. Hoe meer wij groeien en overvloedig worden in de genade, en voornamelijk in de genade der liefde, des te meer zullen wij er in bevestigd en vastgesteld worden. Heiligheid wordt vereist in allen, die ten hemel willen gaan, en daarin moeten wij onberispelijk zijn; dat is: wij moeten in alle dingen zo handelen, dat wij in geen enkel opzicht in tegenspraak zijn met onze belijdenis van heiligheid. Ons verlangen moet zijn, dat onze harten worden bevestigd in heiligheid voor God; en bewaard worden tot de toekomst van onze Heere Jezus Christus; en dat wij mogen onberispelijk zijn voor God de Vader en eenmaal onbestraflijk gesteld voor de troon Zijner genade, wanneer de Heere Jezus zal komen met al zijn heiligen. Merk op: 
 
 a. De Heere Jezus zal zeker komen, en komen in zijn heerlijkheid; 
+
 b. Wanneer Hij komt, zal Hij komen met al Zijn heiligen; zij zullen met Hem in heerlijkheid verschijnen; 
+
 c. Dan zal de voortreffelijkheid zowel als de noodzakelijkheid van heiligheid aan het licht treden; omdat zonder deze onze harten in die dag niet zullen kunnen bestaan, of iemand onbestraflijk zijn en de eeuwige veroordeling ontkomen. 

@@ -78,16 +78,22 @@ II. De goede wetten, die naar aanleiding daarvan gegeven worden, bevatten veel w
 A. zijn bevelen en aanwijzingen aan de gehele gemeente betreffen: 
 
 a. Hun gedrag jegens de ongeregelde personen, die onder hen waren; daarvan zegt hij: dat gij u aan hen onttrekt, vers 6. En later: tekent hem, en vermengt u niet met hem, opdat hij beschaamd worde. En houdt hem niet als een vijand, maar vermaant hem als een broeder, vers 14, 15. De aanwijzingen van de apostel voor ons gedrag tegenover zulke personen behoren nauwkeurig overwogen te worden. Wij moeten zeer voorzichtig zijn in de toepassing van kerkelijke tucht.
+
 Wij moeten ten eerste tekenen de man, die verdacht wordt of beschuldigd wordt het Woord Gods niet te gehoorzamen, of tegen dat Woord in te wandelen; dat is, wij moeten voldoende bewijzen voor zijn overtreding hebben, alvorens verder te handelen. 
+
 Ten tweede moeten wij hem op vriendelijke wijze vermanen; wij moeten hem zijn zonde en zijn plicht voorhouden, en dat onder vier ogen doen. Matth. 18:15. 
+
 Wanneer hij daaraan geen gehoor geeft, moeten wij ten derde, ons aan hem onttrekken, geen gemeenschap met hem houden: dat is: wij moeten gemeenzame omgang met hem vermijden, en wel om twee redenen. En wel opdat wij zijn boze wegen niet leren, want hij, die ijdele en ledige personen volgt en met hen omgaat, loopt gevaar hun gelijk te worden. En ook om hem te beschamen en daardoor te verbeteren; opdat de ongeregelde personen zien mogen, dat hun verkeerde praktijken door wijze en goede mensen afgekeurd worden, en zij, daardoor beschaamd, geregeld mogen gaan wandelen. Hebt daarom uw verkeerd handelende broederen lief, hoewel u hun ondeugden haat. En dat moet de reden wezen waarom wij ons aan hen onttrekken. Zelfs zij, die onder de kerkelijke tucht liggen, mogen niet als vijanden beschouwd worden, vers 15, omdat, zo zij door die tucht worden verbeterd, herkrijgen zij het vertrouwen en alle rechten der kerk, als broeders. 
 
 b. Hun algemeen gedrag en hun houding behoren te zijn overeenkomstig het goede voorbeeld door de apostelen en hun medearbeiders gegeven. Gijzelf weet hoe men ons behoort na te volgen, vers 7. Zij, die de gemeente onder hen gesticht hadden, waren hun met een goed voorbeeld voorgegaan; de dienaren van het Evangelie behoren voorbeelden der kudde te zijn. Het is de roeping der Christenen te wandelen niet alleen volgens de inzettingen en de leer, die de apostelen hun overgeleverd hebben, maar ook volgens het goede voorbeeld door hen gegeven. Zijt onze navolgers, gelijk wij van Christus. In dit geval was het goede voorbeeld, dat de apostel noemt, hun vlijt, die zo verschillend was van het gedrag dergenen, die ongeregeld wandelden. 
+
 Want wij hebben ons niet ongeregeld gedragen onder u, vers 7; wij hebben onze tijd niet doorgebracht in ledigheid, in ijdele bezoeken, ijdele gesprekken en ijdele liefhebberijen. Zij namen moeite in hun bediening, in de prediking van het Evangelie en in de inrichting van hun levenswijze. 
+
 Wij hebben geen brood gegeten bij iemand voor niet, vers 8. hoewel hij hun billijk om onderstand kon gevraagd hebben, omdat zij, die het Evangelie verkondigen, recht hebben van het Evangelie te leven. 
 Dat zijn de gemeenten aan hun dienaren verschuldigd, en de apostel had de bevoegdheid en de macht om dat te vragen, vers 9. Maar hij had afstand gedaan van zijn recht uit genegenheid tot hen, en ter wille van het Evangelie, en daarin gaf hij hun een voorbeeld ter navolging, vers 9; opdat zij mochten leren hun tijd goed te besteden en alzo bezig te zijn in enig werk, waaruit nut voortkwam. 
 
 B. Hij beveelt hun, die ongeregeld leven, zich te beteren en aan het werk te gaan en geeft hun daartoe voorschriften. Hij had te die aanzien bevelen gegeven zowel als een goed voorbeeld, toen hij bij hen was. Want ook toen wij bij u waren, hebben wij u dit bevolen, dat zo iemand niet wil werken, hij ook niet ete, vers 10. Het was een spreekwoord onder de Joden: Die niet wil werken, mag ook niet eten. De arbeider is zijn brood waardig; maar wat is de leegloper waard? Het is Gods wil dat ieder mens een roeping zal hebben en daarin bezig zijn, en dat niemand nutteloos op aarde leven zal. Lediglopers doen al wat ze kunnen om het woord krachteloos te maken: In het zweet uws aanschijns zult gij uw brood eten. 
+
 Het was geen eigen goeddunken van de apostel, wanneer hij altijd druk werkzaam was en anderen ook daartoe aanspoorde, maar het was volgens het bevel van de Heere Jezus Christus, dat wij met stilheid werkende ons eigen brood eten, vers 12. De mensen moeten op de een of andere wijze in hun levensonderhoud voorzien, anders eten zij niet hun eigen brood. Er moet werk en bezigheid zijn in plaats van ledigheid; en er moet stilheid zijn in plaats van een zich bemoeien met anderer zaken. Wij moeten leren in stilheid ons eigen werk te doen. Het is uitnemend, maar komt niet dikwijls voor, dat iemand zeer druk werkt en toch stil is; druk in zijn eigen werk en stil in andermans zaken. 
 
 C. Hij vermaant hen: En gij, broeders, vertraagt niet in goed te doen, vers 13, alsof hij zeggen wilde: Werkt en wees voorspoedig: De Heere is met u, zo gij met Hem zijt. Wat u ook goeds moogt doen, ziet dat gij daarin volhardt. Blijf in uw eigen weg en dat tot het einde. Gij moet nooit uw werk afgeven of er een afkeer van krijgen. Er zal tijd genoeg zijn in de hemel om te rusten; in de eeuwige ruste die overblijft voor het volk van God. 
@@ -97,9 +103,13 @@ C. Hij vermaant hen: En gij, broeders, vertraagt niet in goed te doen, vers 13, 
 In dit besluit van de brief hebben wij des apostels zegen en gebeden voor hen. Laat ons die begeren voor ons en onze vrienden. Drie zegeningen worden over hen uitgesproken of begeerd. 
 
 I. Dat God hun vrede geve. 
+
 1\. Vrede is de uitgesproken of begeerde zegen. Door vrede mogen wij hier verstaan alle soorten van voorspoed; voornamelijk vrede met God, vrede in hun eigen zielen en gewetens en vrede met alle mensen. 
+
 2\. Deze vrede wordt voor hen begeerd te allen tijde, of in elke zaak, en hij wenst dat zij altijd alles goeds mogen hebben. 
+
 3\. Vrede in allerlei wijze; dat gelijk zij al de middelen der genade mochten genieten, zij ook alle middelen en vormen van vrede zouden hebben. Want vrede is dikwijls moeilijk, maar altijd begeerlijk. 
+
 4\. De God, die hun die vrede geven moet, is de Heere des vredes. Indien wij enige begeerlijke vrede zullen hebben, moet God die geven; Hij is de bewerker van de vrede en heeft de eendracht lief. Wij zullen nooit zelf vredelievende gezindheid hebben, of ondervinden dat de mensen vrede met ons hebben, tenzij God hun en ons vrede geeft. 
 
 II. Dat Gods tegenwoordigheid altijd met hen zij. De Heere zij met u allen. Wij hebben niets meer nodig voor onze veiligheid en ons geluk, en kunnen ook niets beters begeren voor onszelf of voor onze vrienden, dan dat Gods genadige tegenwoordigheid met ons en met hen zij. Die zal ons leiden en bewaren op al onze wegen, en ons in al onze omstandigheden vertroosten. Het is de tegenwoordigheid Gods, die de hemel tot hemel en de aarde gelijk de hemel maakt. Het doet er niet toe waar wij ons bevinden, indien God slechts met ons is; en wie van ons verwijderd is, indien Hij slechts tegenwoordig is. 

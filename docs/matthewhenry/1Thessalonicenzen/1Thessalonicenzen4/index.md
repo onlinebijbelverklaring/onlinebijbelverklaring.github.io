@@ -30,7 +30,9 @@ I. een vermaning om toe te nemen in heiligheid; daarin meer en meer overvloedig 
 1\. De wijze, waarop de vermaning gegeven wordt, is zeer liefderijk. De apostel behandelt hen als broederen; hij noemt hen zo en heeft hen als zodanig lief. Omdat hij hen zo innig liefheeft, is zijn vermaning zo ernstig. Wij bidden en vermanen u. De apostel wenste geen weigering te ontvangen en herhaalt daarom zijn vermaning telkens en telkens. 
 
 2\. De reden van deze vermaning; dat zij meer overvloedig mogen worden in heiligen wandel; of uitnemend in alle dingen, die goed zijn. Hun geloof was terecht alom beroemd; en zij waren reeds voorbeelden der gemeenten; toch wenste de apostel dat zij nog uitnemender mochten worden en nog groter vorderingen in heiligheid maken. 
+
 A. Ook de uitnemendsten komen tekort in volmaking. Juist de besten onder ons moeten de dingen vergeten, die achter zijn, en zich uitstrekken naar de dingen, die voor zijn. 
+
 B. Het is niet genoeg dat wij blijven in het geloof des Evangelies; wij moeten overvloedig worden in de werken des geloofs. Wij moeten niet alleen volharden tot het einde; maar wij moeten beter worden en meer en meer in gemeenschap met God wandelen. 
 
 3\. De argumenten, waarmee Paulus deze vermaning aandringt. 
@@ -79,6 +81,7 @@ B. De Thessalonicensen gaven goede bewijzen, dat zij door God geleerd waren, doo
 II. Stilheid en ijver in hun beroep. Merk op: 
 
 1\. De apostel vermaant tot deze plichten, dat zij zich zouden benaarstigen om stil te zijn, vers 11. Het is zeer begeerlijk een kalme en rustige gemoedsgesteldheid te hebben, en zich vredelievend en stil te gedragen. Dit helpt veel tot het geluk van onszelf en van anderen, en Christenen moeten zich benaarstigen rustig te zijn. Wij moeten ijverig zijn om kalm en rustig van geest te worden; onze zielen in lijdzaamheid te bezitten en kalm tegenover anderen te zijn; van een zachte, vriendelijke en vredelievende aard, die twist en strijd vermijdt. Satan is zeer bezig om ons te verontrusten, en er is veel in onze harten, dat ons geschikt maakt om verontrust te worden; laat ons daarom ons benaarstigen om rustig te zijn. 
+
 Er volgt: en uw eigen dingen te doen. Wanneer wij daarbuiten gaan, stellen wij ons aan zeer veel verontrusting bloot. Bemoeiallen, die zich altijd in de zaken van anderen mengen, hebben slechts weinig rust in hun zielen en veroorzaken grote verontrusting aan hun naasten. En dikwijls letten zij zeer weinig op de vermaning om ijverig te zijn in hun eigen zaken, en te werken met hun eigen handen; hetgeen de apostel hun juist krachtig aanbeval en hetgeen ook van ons geëist wordt. Het Christendom ontslaat ons niet van het werk en de plichten van ons eigenaardig beroep, maar verlangt dat wij daarin ijverig zullen zijn. 
 
 2\. De vermaning wordt aangedrongen met een dubbele beweegreden. 

@@ -28,7 +28,9 @@ Timotheüs moest het niet vreemd vinden, dat er in de gemeente slechte mensen ge
 I. Timotheüs moest weten, dat in de laatste dagen, vers 1, in de tijd des Evangelies, zware tijden ontstaan zullen. hoewel de tijd des Evangelies in vele opzichten een tijd van hervorming was, moest hij toch bedenken dat er in die tijd zware tijden komen zouden; niet zozeer door de vervolgingen als wel door het bederf. Het zouden moeilijke tijden zijn, waarin het zwaar zou vallen een goed geweten te bewaren. Hij zegt niet: Zware tijden zullen komen, want Joden en heidenen zullen samenspannen om het Christendom uit te roeien; maar zware tijden zullen komen door hen, die een gedaante van Godzaligheid hebben, vers 5; zij zullen bedorven en boos zijn en veel schade aan de gemeente doen. Twee verraders in een garnizoen doen meer kwaad dan duizend belegeraars. Zware tijden zullen komen, want de mensen zullen boos zijn. 
 
 1\. Zonde maakt de tijden zwaar. Indien er een algemeen bederf van manieren en van de gemoederen der mensen is, maakt dat de tijden gevaarlijk om in te leven; want het is moeilijk onze oprechtheid te bewaren te midden van algemeen bederf. 
+
 2\. Het komen van zware tijden is een bewijs voor de waarheid van de voorspellingen der Schrift; wanneer in dit opzicht de gang der gebeurtenissen niet aan de profetie beantwoordde, zouden wij in verzoeking komen om de Goddelijkheid des Bijbels te betwijfelen. 
+
 3\. Het is ons aller belang dit te weten, te geloven en in aanmerking te nemen, opdat wij niet verrast worden wanneer wij zien dat de tijden zwaar zijn. "En weet dit!" 
 
 II. Paulus deelt Timotheüs mede, waardoor de tijden zo zwaar zouden worden, en wat de kentekenen zullen zijn, waaraan men die tijden herkennen kan, vers 2 en v.v. 
@@ -58,7 +60,9 @@ II. Paulus deelt Timotheüs mede, waardoor de tijden zo zwaar zouden worden, en 
 12\. Vooral zijn de tijden zwaar wanneer de mensen, niettegenstaande dat alles een gedaante van Godzaligheid hebben, vers 5; Christenen genoemd worden; de Christelijke doop ontvangen hebben; vertoon van godsdienstigheid maken, maar hoe aannemelijk hun vorm van Godzaligheid ook zij, haar kracht verloochend hebben. Wanneer zij de gedaante aannemen, die de kracht met zich behoorde te brengen, maar wanneer zij scheiden wat God verenigd heeft; wanneer zij de gedaante der Godzaligheid aannemen om vrij te blijven van bestraffing, maar niet haar kracht zich toe-eigenen om vrij te blijven van de zonde. Merk op: 
 
 A. De mensen zijn soms zeer goddeloos en slecht onder een gedaante van Godzaligheid; zij kunnen liefhebbers van zichzelf enz. zijn en toch zich zeer godsdienstig voordoen. 
+
 B. De vorm van Godzaligheid is geheel iets anders dan haar kracht; iemand kan de enen hebben en geheel van de andere ontbloot zijn; ja die zelfs verloochenen, ten minste in zijn bijzonder leven. 
+
 C. Aan dezulken moeten ware Christenen zich onttrekken. 
 
 III. Paulus waarschuwt Timotheüs op zijn hoede te zijn tegen zekere verleiders; niet alleen om zelf niet door hen medegetrokken te worden, maar ook om tegen hun verleiding gewapend te zijn voor degenen, die aan zijn zorg toevertrouwd werden. 
@@ -70,13 +74,17 @@ III. Paulus waarschuwt Timotheüs op zijn hoede te zijn tegen zekere verleiders;
 3\. Hij zegt dat er aan hun toenemen paal en perk gesteld zal worden, vers 8 en 9, en vergelijkt hen met de Egyptische tovenaars, die Mozes tegenstonden, en die hier Jannes en Jambres genoemd worden; alhoewel deze namen niet in het Oude Testament te vinden zijn, worden zij door sommige oude Joodse schrijvers zo genoemd. Toen Mozes met een Goddelijk bevel kwam om Israël uit Egypte te doen vertrekken, wederstonden deze tovenaars hem. Zo staan ook deze ketters de waarheid tegen, en gelijk zij waren ze mensen, verdorven van verstand; mensen, die hun verstand verdorven, verlaagd en tegen de waarheid ingenomen hadden. Zij waren verwerpelijk aangaande het geloof; verre van ware Christenen te zijn. Maar zij zullen niet meerder toenemen; of niet veel vorderen, zoals sommigen lezen. Merk op: 
 
 A. Verleiders zoeken verborgen plaatsen en beminnen de duisternis; zij zijn bevreesd voor openbaarheid en sluipen daarom de huizen in. Bovendien vallen zij bij voorkeur aan degenen, die het minst instaat zijn om zich te verdedigen, onnozele en slechte vrouwen. 
+
 B. Verleiders zijn in alle eeuwen dezelfden. Hun kenmerken zijn dezelfde: mensen met een verdorven verstand; hun gedrag is hetzelfde: zij staan de waarheid tegen gelijk Jannes en Jambres Mozes tegenstonden; en hun teleurstelling zal ook dezelfde zijn. 
-C. Zij, die de waarheid tegenstaan, zijn schuldig aan dwaasheid, ja aan ergerlijke dwaasheid, want groot is de waarheid en zij overwinnen. 
+
+C. Zij, die de waarheid tegenstaan, zijn schuldig aan dwaasheid, ja aan ergerlijke dwaasheid, want groot is de waarheid en zij overwinnen.
+
 D. hoewel de geest der dwaling voor een tijd mag losgelaten worden: God houdt de keten in handen. Satan kan de volken en de gemeenten niet langer bedriegen dan God het hem toelaat. Zij zullen niet meerder toenemen; het zal openbaar worden dat zij bedriegers zijn en ieder zal hen verlaten. 
 
 ## 2 Timotheüs 3:10-17 
 
 Teneinde Timotheüs te doen volharden in de weg, die hij bewandelt, gaat de apostel over: 
+
 I. Om hem zijn eigen voorbeeld aan te tonen, dat Timotheüs lang voor ogen gehad had, want hij was geruime tijd bij Paulus geweest, vers 10. Maar gij hebt achtervolgd mijn leer. Hoe beter wij de leer van Christus en de apostelen kennen, des te meer zullen wij haar aanhangen; de reden waarom menigeen er zo los van is, is dat hij haar niet genoegzaam kent. De apostelen van Christus hadden geen andere vijanden dan mensen, die hen niet kenden of niet genoeg kenden; zij, die hen het best kenden, beminden en eerden hen het meest. Wat had Timotheüs nu zo goed van Paulus gekend en achtervolgd? 
 
 1\. De leer, die hij verkondigde. Paulus hield niets voor zijn hoorders terug, maar verkondigde hun de gehelen raad Gods, Hand. 20:27, zodat het zijn schuld niet was als zij die niet geheel kenden. Timotheüs had het grote voorrecht gehad, dat hij opgeleid was door zulk een onderwijzer en doordrongen te zijn van de leer, die hij verkondigde. 
@@ -90,11 +98,15 @@ I. Om hem zijn eigen voorbeeld aan te tonen, dat Timotheüs lang voor ogen gehad
 5\. Hij wist dat hem kwaad aangedaan was omdat hij goed gedaan had, vers 11. mijn vervolgingen, mijn lijden, dat als mij overkomen is, enz. (hij noemt die op, welke hij ondergaan had toen Timotheüs bij hem was) te Antiochië, in Iconium en in Lystre; en hij moest dus niet verwonderd zijn wanneer vervolgingen over hem kwamen; het was niet meer dan hij zelf verduurd had. 
 
 6\. Hij wist hoeveel zorg God voor hem gedragen had: En de Heere heeft mij uit alle verlost. Gelijk hij nooit de goede zaak verlaten had, zo had God hem niet verlaten. Gij weet ten volle mijn vervolgingen. Wanneer wij de droefenissen van godvrezende mensen slechts ten dele kennen, zijn zij voor ons verzoekingen om de zaak te verlaten, waarvoor zij lijden; wanneer wij alleen de moeiten kennen, die zij om Christus’ wil verdragen; kunnen wij er toe komen om te zeggen: Wij laten de zaak, die ons waarschijnlijk zo duur zal komen te staan als wij haar omhelzen, voor hetgeen zij is. Maar wanneer wij ten volle kennen de vervolgingen, niet alleen wat zij lijden, maar ook hoe zij onder hun lijden ondersteund en vertroost worden, dan zullen wij, in plaats van er door ontmoedigd te worden, ons aangespoord gevoelen, voornamelijk omdat ons voorzegd is dat wij op zulke dingen rekenen moeten, vers 12. 
+
 Allen, die Godzalig willen leven in Christus Jezus, die zullen vervolgd worden. Niet allen evenveel, in die tijd waren zij, die het geloof in Christus beleden, meer aan vervolging blootgesteld dan in andere tijden; maar in alle tijden zullen zij, die Godzalig willen leven in Christus Jezus, meer of minder vervolgd worden. Zij moeten verwachten veracht te worden, en dat hun godsdienst hun voortdurend in de wereld zal in de weg staan; zij, die Godzalig willen leven, moeten daarop rekenen, vooral zij die Godzalig willen leven in Christus Jezus, dat is: overeenkomstig de strenge regelen van de Christelijke godsdienst; zij, die de livrei en de naam van hun Goddelijke Verlosser dragen willen. Allen, die hun belijdenis in hun leven tonen willen, die niet alleen Godzalig willen zijn, maar ook Godzalig willen leven, moeten vervolging verwachten, vooral wanneer zij vastbesloten zijn. Merk hier op: 
 
 A. Het leven van de apostel was zeer voorbeeldig door drie dingen: door zijn leer, die was overeenkomstig de wil van God; door zijn leven, dat was overeenkomstig zijn leer; en door zijn vervolgingen en zijn lijden. 
+
 B. Zijn leven was een leven vol groot nut, maar ook vol groot lijden, en ik houd het er voor dat niemand de grote Meester zo nabij kwam in uitnemende diensten en in zwaar lijden als Paulus; hij leed bijna in alle plaatsen; de Heilige Geest getuigde hem dat banden en verdrukkingen aanstaande waren, Hand. 20:23. Hier vermeldt hij zijn vervolgingen en zijn lijden tn Antiochië, in Iconium en in Lystre; maar hoeveel leed hij buitendien! 
-C. De apostel zegt dat de Heere hem uit al deze verlost heeft; Timotheüs en ons tot aanmoediging in al ons lijden. 
+
+C. De apostel zegt dat de Heere hem uit al deze verlost heeft; Timotheüs en ons tot aanmoediging in al ons lijden.
+
 D. Hier is de praktijk en de behandeling van alle ware Christenen: zij leven Godzalig in Jezus Christus, dat is hun praktijk; en zij lijden vervolgingen, dat is de behandeling, die zij van de wereld moeten verwachten. 
 
 II. Hij waarschuwt Timotheüs voor het vreeslijk einde van de verleiders; als een reden waarom wij ons dicht zullen houden bij de waarheid, zoals die in Jezus Christus is. Doch de boze mensen en bedriegers zullen tot erger voortgaan, verleidende en wordende verleid, vers 13. Gelijk goede mensen door de genade Gods van beter tot beter voortgaan, zo worden boze mensen, door de listigheid des Satans en door hun eigen verdorvenheid, al slechter en slechter. Het pad der zonde is een hellend vlak; het gaat van kwaad tot erger: verleidende en wordende verleid. Zij, die anderen verleiden, verleiden slechts zichzelf; die anderen in dwaling trekken, lopen zelf al meer en meer in hun verderf en zullen het aan het einde ondervinden. 
@@ -106,6 +118,7 @@ Wordt niet omgevoerd met verscheidene en vreemde leringen, want het is goed dat 
 1\. Het is een groot geluk de zekerheid te weten van de dingen, waarin wij onderwezen zijn, Luk. 1:4, niet alleen de waarheid te kennen, maar te weten dat zij van ontwijfelbare zekerheid zijn. Wij moeten trachten meer en meer verzekerd te worden van hetgeen wij geleerd hebben, opdat wij, gegrond in de waarheid, gewapend mogen zijn tegen dwaling, want zekerheid in de godsdienst is van groot belang en voordeel. Gij hebt geweten, enz. 
 
 A. Gij hebt goed onderwijs gehad. Denk er aan van wie gij het geleerd hebt, niet van slechte mensen en verleiders, maar van goede mensen, die zelf de macht der waarheid ondervonden hadden, welke zij onderwezen, en die geleerd hadden er voor te lijden en daardoor het sprekendste bewijs van hun geloof in die waarheid te leveren. 
+
 B. Wetende vooral het vaste fondament, waarop gij gebouwd hebt, namelijk dat der Schrift, vers 15: Dat gij van kindsaf de Heilige Schriften geweten hebt. 
 
 2\. Zij, die bekend willen worden met de dingen Gods en er van verzekerd zijn, moeten de Heilige Schriften kennen, want die zijn de samenvatting van de Goddelijke openbaring. 
@@ -119,11 +132,17 @@ A. Wat de voortreffelijkheid van deze Schriften is: Zij is ingegeven door God, v
 B. Welk nut het voor ons zal hebben. 
 
 a. Zij kunnen ons wijs maken tot zaligheid; dat is, zij zijn een zekere gids op onze weg naar het eeuwige leven. Zij zijn waarlijk wijs, die wijs zijn tot zaligheid. Die Schriften zijn nuttig om ons waarlijk wijs te maken, wijs voor onze zielen en de toekomende wereld. Zij maken u wijs tot zaligheid door het geloof. De Schriften zullen ons wijs maken tot zaligheid, indien zij gemengd zijn met het geloof; anders niet, Hebr.4:2. Want indien wij haarwaarheid en goedheid niet geloven, zullen zij ons geen nut doen. 
+
 b. Zij zijn nuttig voor ons in alle dingen van het Christelijke leven; tot lering, tot weerlegging, tot verbetering, tot onderwijzing, die in de rechtvaardigheid is. Zij beantwoorden aan elk deel van de Goddelijke openbaring. Zij onderwijzen ons in de waarheid; zij bestraffen ons in hetgeen verkeerd is; zij leiden ons in hetgeen goed is. Zij zijn nuttig voor allen, want wij allen hebben behoefte aan lering; vermaning en verbetering. Zij zijn voornamelijk nuttig voor dienaren, want die moeten leren, vermanen en verbeteren; en hoe kunnen zij dat beter doen dan door de Schriften! 
+
 c. Opdat de mens Gods volmaakt zij, vers 17. De Christen en de dienaar zijn de mensen Gods. Een mens Gods wordt in deze wereld gevormd door de Schriften. Door haar worden wij tot alle goed werk volmaakt toegerust. In de Schriften is in alle gevallen en toestanden voorzien. Welke plichten wij te vervullen hebben, welke diensten van ons vereist worden; in de Schriften vinden wij genoeg om er ons toe instaat te stellen. 
 
 C. Alles samen genomen zien wij hier: 
+
 a. Dat de Schriften verschillend nut hebben en beantwoorden aan verschillende doeleinden. Zij zijn nuttig tot lering, tot weerlegging, tot verbetering van alle dwalingen in ons oordeel en in ons leven; en tot onderwijzing, die in de rechtvaardigheid is. 
+
 b. De Schrift is een volmaakte regel voor geloof en leven, en is bedoeld voor de mens Gods, de dienaar zowel als de Christen, die Gode gewijd zijn, want zij is nuttig tot lering, enz. 
+
 c. Zo wij de Schrift raadplegen, die door God ingegeven is, en haar voorschriften volgen, zullen wij mensen Gods gemaakt worden, volmaakt en tot alle goed werk volmaakt toegerust. 
+
 d. Geen wijsgerige geschriften, geen rabbijnse fabelen, geen paapse legenden, geen ongeschreven overleveringen, kunnen ons volmaakte mensen Gods maken; alleen de Schrift is daartoe instaat. O, dat wij meer onze Bijbel liefhebben, en dichter bij hem ons houden dan ooit! Dan zullen wij ondervinden welke zegen en welk voordeel daarin gelegen is, en eindelijk de gelukzaligheid verkrijgen, die ons in hem beloofd en verzekerd is. 

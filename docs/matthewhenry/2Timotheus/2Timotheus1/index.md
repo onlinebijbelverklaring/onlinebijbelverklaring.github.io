@@ -26,22 +26,29 @@ III. Hij spreekt over Fygellus en Hermogenes, en anderen, en daarna over Onésif
 
 ## 2 Timotheüs 1:1-5 
 
-Hier vinden wij:  
+Hier vinden wij: 
+
 I. Het opschrift van de brief. Paulus noemt zich een apostel van Jezus Christus door de wil van God; geheel door het welbehagen Gods en zijn genade, welke hij zichzelf onwaardig belijdt te zijn. Naar de belofte des levens, dat in Christus Jezus is, of naar het Evangelie. Het Evangelie is de belofte des levens in Christus Jezus; het leven is het doel en Christus is de weg, Joh. 14:6. Het leven is in de belofte gelegd, en beide zijn verzekerd in Christus Jezus, de getrouwe getuige; want al de beloften Gods in Christus Jezus zijn ja en amen, 2 Cor. 1:20. Hij noemt Timotheüs zijn geliefden zoon. Paulus gevoelde de tederste liefde voor hem, zowel omdat hij het middel voor zijn bekering geweest was, als omdat hij gelijk een zoon zijn vader met hem gediend had in het Evangelie. 
 
 1\. Paulus was een apostel van Jezus Christus, door de wil van God, want hij had het Evangelie niet ontvangen van een mens, en was er niet in onderwezen, maar hij had het door openbaring van Jezus Christus, Gal. 1:12; zodat zijn zending als apostel niet was door de wil van een mens, maar van God. In de vorige brief had hij gezegd: naar het bevel van God, onze Zaligmaker; en hier zegt hij: door de wil van God. God riep hem om apostel te zijn. 
+
 2\. Wij hebben de belofte des levens; God zij er voor gezegend: In de hoop des eeuwigen levens, welke God, die niet liegen kan, beloofd heeft vóór de tijden der wereld, Tit. 1:2. Het is de belofte om er de vrijheid en de zekerheid van te ontdekken. 
 
 3\. Deze, zowel als alle andere beloften, zijn in en door Jezus Christus, zij ontspringen alle uit de barmhartigheid Gods in Christus; en zij zijn zeker, zodat wij er veilig op kunnen vertrouwen. 
+
 4\. De genade, barmhartigheid en vrede, welke zelfs Paulus’ geliefde zoon Timotheüs nodig had, komen van God de Vader en onze Heere Jezus Christus; en daarom is de een zowel als de ander de gever van deze zegeningen en behoren beiden er om aangeroepen te worden. 
+
 5\. De besten behoeven deze zegeningen, en zij zijn de beste, die wij voor onze teergeliefde vrienden vragen kunnen; dat zij genade mogen ontvangen om hen te helpen in tijd van nood, en barmhartigheid om hun gebreken te vergeven, en zo vrede mogen hebben met God de Vader en met onze Heere Jezus Christus. 
 
 II. Paulus’ dankzegging aan God voor Timotheüs’ geloof en heiligheid; hij dankt God wanneer hij Timotheüs gedenkt in zijn gebeden. Wat wij ook goeds doen en welke goeden dienst wij onze vrienden ook mogen bewijzen, God moet er de heerlijkheid van hebben en wij moeten er Hem voor danken. Hij is het, die het ons in het hart geeft om onze vrienden in onze gebeden te gedenken. Paulus was veel in het gebed; hij bad dag en nacht; in al zijn gebeden gedacht hij zijn vrienden; voornamelijk bad hij voor goede dienaren; hij bad voor Timotheüs, en was zijner gedachtig in zijn gebeden nacht en dag; hij deed dat zonder ophouden; bidden was zijn voortdurende bezigheid; en nooit vergat hij zijn vrienden in zijn gebeden, gelijk wij dikwijls doen. Paulus diende God van zijn voorvaderen af in een rein geweten. Het was een troost voor hem, dat hij geboren was in Gods huis, en het zaad was van mensen, die God dienden, evenals dat hij Hem gediend had met een rein geweten, overeenkomstig het licht dat hij had; hij had zijn geweten onergerlijk bewaard en maakte het tot zijn dagelijkse oefening om dat te doen, Hand. 24:16. 
 Hij was zeer begerig om Timotheüs te zien, uit liefde voor hem, opdat hij met hem mocht omgaan; hij gedacht aan zijn tranen bij hun laatste afscheid. Timotheüs was bedroefd toen hij Paulus moest verlaten, hij weende bij het afscheid; en daarom begeerde Paulus hem weer te zien, aangezien hij had bemerkt hoeveel liefde hij voor hem had. Hij dankte er God voor dat Timotheüs de godsvrucht zijner voorouderen behield, vers 5. De godsdienst werd Timotheüs overgebracht van moeders zijde; hij had een goede moeder en een goede grootmoeder; zij geloofden, maar zijn vader geloofde niet, Hand. 26:1. Het is heerlijk wanneer kinderen het geloof en de heiligheid van hun godvrezende ouders navolgen en in hun voetstappen wandelen, 3 Joh. vers 4. 
+
 Hetwelk eerst gewoond heeft in uw grootmoeder Loïs en in uw moeder Eunice, en ik ben verzekerd dat het ook in u woont. Paulus had zeer liefderijke gedachten over zijn vrienden, en was altijd geneigd het beste omtrent hen te hopen; en inderdaad had hij veel reden om van Timotheüs alles goeds te denken, want hij had niemand, die alzo gezind was, Phil. 2:20. Merk hier op: 
 
 1\. Wij moeten, als Paulus, God dienen met een rein geweten; dat deed hij en dat deden zijn vrome voorvaderen; dat is toegaan met een waarachtig hart, in volle verzekerdheid des geloofs, de harten gereinigd zijnde van het kwaad geweten, Hebr. 10:22. 
+
 2\. In onze gebeden moeten wij zonder ophouden onze vrienden gedenken, voornamelijk de getrouwe dienaren van Christus. Paulus herdacht zijn geliefden zoon Timotheüs in zijn gebeden nacht en dag. 
+
 3\. Het geloof, dat in ware gelovigen woont, is ongeveinsd; het is zonder huichelarij; het is een geloof, dat de proef doorstaan kan en dat in hen woont als een levend beginsel. Dat was de oorzaak van Paulus’ dankzegging, dat Timotheüs het geloof gezien had in zijn moeder Eunice en zijn grootmoeder Loïs, en het moet ons een reden van dank zijn wanneer wij iets dergelijks zien; wij moeten ons verheugen altijd als wij de genade Gods zien. Dat deed Barnabas, Hand. 11:23, 24. Ik ben grotelijks verblijd wanneer ik zie, dat uw kinderen in de waarheid wandelen, 2 Joh. : 4. 
 
 ## 2 Timotheüs 1:6-14 
@@ -58,12 +65,17 @@ II. Hij vermaant hem op moeilijkheden te rekenen en zich daarvoor bereid te houd
 1\. Het Evangelie van Christus is iets, dat ons geen reden geeft om ons te schamen. Wij behoren ons ook niet te schamen voor hen, die ter wille van het Evangelie lijden. Timotheüs moest zich niet schamen voor de goeden, ouden Paulus, hoewel hij nu in banden was. Gelijk hij voor zichzelf niet bevreesd moest zijn om te lijden, zo moet hij niet bevreesd zijn om hen te erkennen die voor de zaak van Christus leden. 
 
 A. Het Evangelie is de getuigenis onzes Heeren; daardoor en daarin getuigt Hij van zichzelf, en door onze toestemming en belijdenis getuigen wij van en voor Hem. 
+
 B. Paulus was de gevangene des Heeren, Zijn gevangene, Ef. 4:1. Om zijnentwil was hij met een keten gebonden. 
+
 C. Wij hebben geen reden om ons te schamen voor de getuigenis onzes Heeren of voor zijn gevangenen; indien wij hier voor een van beiden beschaamd zijn, zal Christus hiernamaals zich voor ons schamen. Maar lijd verdrukkingen met het Evangelie, naar de kracht Gods, dat is: verwacht verdrukkingen ter wille van het Evangelie; bereid er u op voor; reken er op; wees gewillig om uw aandeel te aanvaarden in het lijden der heiligen in deze wereld. 
+
 Lijd verdrukkingen met het Evangelie; of, gelijk men ook kan lezen: Deel in de verdrukkingen van het Evangelie; heb niet alleen gemeenschap met hen, die er voor lijden, maar wees bereid om gelijk zij en met hen te lijden. Indien te eniger tijd het Evangelie in verdrukking komt, dan moet hij, die hoopt door dat Evangelie te leven en zalig te worden, bereid zijn om die verdrukking mede te ondergaan. Merk hier op: 
 
 a. Alleen dan zullen wij instaat zijn die onderdrukkingen te dragen, wanneer wij kracht en moed daarvoor putten uit God, die ze ons te dragen geeft. Lijd verdrukkingen met het Evangelie, naar de kracht Gods. 
+
 b. Alle Christenen, maar vooral de dienaren, moeten verdrukkingen en vervolgingen ter wille van het Evangelie verwachten. 
+
 c. Deze zullen evenredig zijn aan de kracht Gods, die ons gegeven wordt, 1 Cor. 10:13. 
 
 2\. De vermelding van God en het Evangelie doet hem spreken van de grote dingen, die God voor ons door het Evangelie gedaan heeft, vers 9, 10. Om hem in het lijden aan te moedigen, geeft hij twee beschouwingen. 
@@ -95,6 +107,7 @@ III. Hij vermaant hem om te houden het voorbeeld der gezonde woorden, vers 13.
 1\. Wij kunnen ook lezen: Heb een vorm der gezonde woorden; een korte inhoud, een catechismus, een uittreksel van de eerste beginselen van de godsdienst, volgens de Schrift; een schema van gezonde woorden; een kort begrip van het Christelijk geloof, in eenvoudige taal, door uzelf voor eigen gebruik uit de Heilige Schrift getrokken. Doch wellicht wordt met de gezonde woorden de Heilige Schrift zelf bedoeld. 
 
 2\. Hebbende dat, houd het; herinner het u, houd er aan vast. Houd het vast in tegenstelling tegen alle ketterijen en valse leerstellingen, die het Christelijk geloof bederven. Houd het vast, dat gij van mij gehoord hebt. Paulus was Goddelijk geïnspireerd. Het is goed ons te houden aan de gezonde woorden en vormen, die wij in de Schrift vinden, want daarvan zijn wij zeker dat ze Goddelijk ingegeven zijn. Dat is gezonde taal, die niet verwerpelijk is, Tit. 2:8. Maar hoe moeten wij ze vasthouden? In geloof en liefde; dat is: wij moeten toestemmen dat het een getrouw woord is, en het welkom heten als aller aanneming waardig. Houd het vast in een goed hart; dat is de ark des verbonds, waarin de tafelen beide van wet en Evangelie het veiligst en het voordeligst bewaard worden, Ps. 119:11. Geloof en liefde moeten samengaan, het is niet genoeg de gezonde woorden te behouden en er instemming mede te betuigen, maar wij moeten ze liefhebben, hun waarheid geloven en hun goedheid liefhebben; en wij moeten de vorm der gezonde woorden in liefde verbreiden, sprekende de waarheid in liefde, Ef. 4:15. 
+
 Geloofde en liefde, die in Christus Jezus zijn; het moet Christelijk geloof en liefde zijn; geloof en liefde gegrond in Christus Jezus, door wie God spreekt tot ons en wij spreken tot Hem. Timotheüs, als dienaar, moest de gezonde woorden houden, ten voordele van anderen. Of helende woorden; zo kan men het ook lezen; er is genezende kracht in het Woord van God; Hij zendt Zijn woord en heelt hen. 
 Hetzelfde wordt bedoeld in vers 14: Bewaar het goede pand, dat u toevertrouwd is, door de Heilige Geest, Die in u woont. Dat goede pand was de vorm der gezonde woorden, de Christelijke leer, die Timotheüs was toevertrouwd in zijn doop en opvoeding als Christen, en in zijn ordening als dienaar. Merk hier op: 
 
@@ -106,6 +119,7 @@ B. De Heilige Geest woont in alle goede dienaren en Christenen; zij zijn Zijne t
 ## 2 Timotheüs 1:15-18 
 
 Na, vers 13 en 14, Timotheüs te hebben vermaand om het goede pand te bewaren: 
+
 I. Vermeldt de apostel de afval van sommigen van de leer van Christus, vers 15. Het schijnt, dat in de beste en zuiverste jaren der gemeente sommigen het Christelijk geloof omhelsd hadden, die later weer afvielen; ja dat er velen waren. Hij zegt niet dat zij afweken van de leer van Christus (ofschoon dit wel het geval schijnt te zijn geweest) maar dat ze zich van hèm afgewend, hèm de rug toegekeerd hadden; en hem verloochenden in de tijd zijner beproeving. En zullen wij ons daarover verwonderen, wetende dat zovelen Hem verlieten, die meer was dan Paulus, de Heere Jezus Christus? Joh. 6:66. 
 
 II. Hij vermeldt de standvastigheid van een die hem getrouw bleef, namelijk Onesiphorus; want hij heeft mij dikmaals verkwikt en heeft zich mijner keten niet geschaamd, vers 16. 
@@ -117,11 +131,17 @@ II. Hij vermeldt de standvastigheid van een die hem getrouw bleef, namelijk Ones
 III. Hij bidt voor Onesiforus zelf zowel als voor zijn gezin: dat hij barmhartigheid vinde bij de Heere in die dag; in de dag des doods of des gerichts, wanneer Christus alles wat aan Zijn arme leden gedaan is zal rekenen als aan Hemzelf gedaan. 
 
 1\. De dag des doods of van het oordeel is een ontzagwekkende dag, die met recht die dag mag genoemd worden. 
+
 2\. Wij behoeven niets meer te begeren om ons gelukkig te maken, dan dat wij in die dag barmhartigheid mogen vinden bij de Heere, wanneer zij, die geen barmhartigheid bewezen hebben, een onbarmhartig oordeel zullen ondergaan. 
+
 3\. De beste Christenen zullen in die dag barmhartigheid behoeven, de barmhartigheid van onze Heere Jezus Christus ten eeuwigen leven, Judas vers 21. 
+
 4\. Wanneer gij dán barmhartigheid wilt vinden, moet gij nu zoeken die van de Heere te verkrijgen. 
+
 5\. Het is van en door de Heere, dat wij barmhartigheid moeten verkrijgen, want indien de Heere ons geen barmhartigheid betoont, zal het medelijden van mensen en engelen ons niet baten. 
+
 6\. Wij moeten barmhartigheid zoeken en vragen van de Heere, die er de gever en uitdeler van is; want de Heere Jezus Christus heeft aan de gerechtigheid voldaan, zodat de barmhartigheid kon openbaar worden. Wij mogen toegaan tot de troon der genade, om barmhartigheid te verkrijgen en genade te vinden om geholpen te worden ter bekwamer tijd. 
+
 7\. Het beste dat wij vragen kunnen, zowel voor onze vrienden als voor onszelf, is dat de Heere ons wil rekenen onder degenen, die barmhartigheid van de Heere mogen ontvangen in die dag, wanneer wij uit de tijd in de eeuwigheid moeten overgaan en deze wereld moeten verruilen tegen een andere, en verschijnen voor de rechterstoel van Christus; de Heere geve ons allen, dat wij barmhartigheid bij de Heere mogen vinden in die dag. 
 
 

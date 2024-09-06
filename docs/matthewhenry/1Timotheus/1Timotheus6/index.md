@@ -33,13 +33,19 @@ VII. Een opdracht aan Timotheüs, vers 20, 21.
 ## 1 Timotheüs 6:1-5 
 
 Hier wordt de plicht der dienstknechten behandeld. De apostel had tevoren gesproken over kerkelijke betrekkingen; hier gaat hij over tot huiselijke verhoudingen. Er wordt gesproken van dienstknechten, die onder het juk zijn; dat ziet beiden op onderwerping en op arbeid; zij zijn onder het juk om te werken, en niet om ledig te zijn. Indien het Christendom dienstknechten onder het juk vindt, laat het hen daaronder blijven; want het Evangelie verandert niet de verplichtingen, die op iemand rusten, hetzij door de wet der natuur of door wederzijdse overeenkomst. Zij moeten hun meesters eerbiedigen (hun heren alle eer waardig achten) omdat zij hun meesters zijn; alle eer, opmerkzaamheid, gedienstigheid, welke de meesters met recht van hun dienstknechten kunnen verwachten. Zij mochten niet doen alsof ze niet in die verhouding stonden; maar als hun meesters moesten zij hen alle eer waardig achten die hun toekwam, opdat de naam van God en de leer niet gelasterd worde. Indien dienstknechten, die het Christendom omhelsden, onbeschoft en hun meesters ongehoorzaam werden, zou de leer van Christus om hunnentwil er op aangezien worden alsof die de mensen slechter maakte dan ze vóór de komst van het Evangelie geweest waren. Zo de belijders van de godsdienst zich misdragen, zijn de Naam van God en Zijn leer in gevaar van gelasterd te worden door hen, die gelegenheid zoeken om kwaad te spreken van de heerlijken naam, die over ons aangeroepen is. En dat is een goede reden waarom wij allen ons wèl gedragen moeten, opdat wij mogen voorkomen de gelegenheid, die menigeen zoekt en gereed staat om te gebruiken, van om onzentwil van de godsdienst kwaad te spreken. Maar onderstelt dat de meester een Christen en gelovige was evenals de dienstknecht, zou dit hem dan verontschuldigen, omdat in Christus geen dienstknecht of vrije is? 
+
 In geen geval, want Jezus Christus is niet gekomen om de maatschappelijke banden los te maken, maar om die te versterken. Die gelovige heren hebben, zullen hen niet verachten omdat zij broeders zijn; want die broederschap betreft alleen de geestelijke voorrechten en geen uitwendige waardigheid of voordelen. Zij misverstaan en misbruiken hun godsdienst, die er een voorwendsel van maken om hun plichten in hun betrekkingen te verwaarlozen. 
+
 Zij moeten hen te meer dienen omdat zij gelovig en geliefd zijn, als die deze weldaad mede deelachtig zijn. Zij moeten zich te meer verplicht achten om hen te dienen, omdat het geloof en de liefde hen als Christenen verbindt hun goed te doen, en dat is alles waaruit hun dienst bestaat. Het is een grote aanmoediging voor ons in het verrichten van onze plicht jegens onze betrekkingen, wanneer wij mogen geloven dat zij ook gelovig en geliefd zijn, en die weldaad mede deelachtig, de weldaad van het Christendom. Daarenboven, gelovige heren en dienstknechten zijn broederen en beiden deelgenoten aan die weldaad, want in Christus is geen dienstknecht en vrije; zij zijn allen één in Christus Jezus, Gal. 3:28. 
+
 Timotheüs wordt vermaand: Leer en vermaan deze dingen. Dienaren moeten niet slechts in het algemeen de plichten der mensen prediken, maar ook in de bijzonderheden der betrekkingen afdalen. 
 
 II. Paulus waarschuwt Timotheüs zich te onttrekken aan degenen, die de leer van Christus bederven en haar maken tot een onderwerp van strijd, twistgesprekken en tegenspraak. Indien iemand een andere leer brengt, vers 3-5; niet practisch predikt, niet predikt en opwekt tot bevordering van ware Godzaligheid; indien hij niet toestemt in de gezonde woorden, de woorden die de gezondheid der ziel ten doel hebben; indien hij daarmee niet overeenkomt, hoewel ze de woorden van onze Heere Jezus Christus zijn. Wij mogen met geen woorden overeenkomen dan met de gezonde woorden van onze Heere Jezus Christus; maar aan deze moeten wij dan ook onze oprechte instemming geven; zij zijn de leer, die naar de Godzaligheid is. De leer van onze Heere Jezus Christus is een leer naar de Godzaligheid; zij heeft de rechtstreekse bedoeling om de mensen Goddelijk te maken. 
+
 Maar hij, die niet overeenkomt met de woorden van Christus, is opgeblazen, vers 4, en twistziek en onwetend, en doet daardoor aan de gemeente veel schade. Gewoonlijk zijn zij het hoogmoedigst, die het minste weten, want met al hun kennis kennen zij zichzelf niet. Die raast omtrent twistvragen en woordenstrijd. 
-Zij, die afvallen van de duidelijke, praktische leerstellingen van het Christendom, begeven zich tot tegenspraak, die het leven en de macht van de godsdienst verteren; zij bedenken twistvragen en woordenstrijd, welke de gemeente grotelijks benadelen, en nijd, twist, lasteringen en kwade overdenkingen veroorzaken. Wanneer de mensen niet tevreden zijn met de woorden van de Heere Jezus Christus en met de leer, die naar de Godzaligheid is, dan zullen zij zelf stellingen bedenken en voorstellen, en dat in hun eigen woorden, die de menselijke wijsheid leert, en niet in woorden, die de Heilige Geest leert, 1 Cor. 2:13, en daardoor het zaad van allerlei zonden in de gemeente strooien 
+
+Zij, die afvallen van de duidelijke, praktische leerstellingen van het Christendom, begeven zich tot tegenspraak, die het leven en de macht van de godsdienst verteren; zij bedenken twistvragen en woordenstrijd, welke de gemeente grotelijks benadelen, en nijd, twist, lasteringen en kwade overdenkingen veroorzaken. Wanneer de mensen niet tevreden zijn met de woorden van de Heere Jezus Christus en met de leer, die naar de Godzaligheid is, dan zullen zij zelf stellingen bedenken en voorstellen, en dat in hun eigen woorden, die de menselijke wijsheid leert, en niet in woorden, die de Heilige Geest leert, 1 Cor. 2:13, en daardoor het zaad van allerlei zonden in de gemeente strooien.
+
 Daaruit komen voort verkeerde krakelingen van mensen, die een verdorven verstand hebben, vers 5; twistgesprekken vol spitsvondigheid en zonder enige degelijkheid. Mensen, die een verdorven verstand hebben, zijn van de waarheid beroofd. De oorzaak, waardoor het verstand van de mensen verdorven wordt, is dat zij niet blijven bij de waarheid, zoals die is in Jezus. Zij menen dat de Godzaligheid een gewin is; zij maken van de godsdienst een zaak voor hun eigen belang. Timotheüs wordt gewaarschuwd zich aan dezulken te onttrekken. Wij merken hier op: 
 
 1\. De woorden van onze Heere Jezus Christus zijn gezonde woorden; zij zijn de meest geschikte om de wonden der gemeente te voorkomen of te genezen, zowel als om het gewonde geweten te genezen; want Christus heeft een tong der geleerden, om ter rechter tijd een woord tot de vermoeiden te spreken, Jes. 50:4. De woorden van Christus zijn de geschiktste om scheuringen in de gemeente te voorkomen, want niemand, die het geloof in Hem belijdt, zal de gepastheid en het gezag der woorden van zijn Heere en Leraar betwisten; en het is nooit die gemeente goed gegaan, die voor de woorden van mensen een even groot, ja een groter recht eiste. 
@@ -59,18 +65,23 @@ Daaruit komen voort verkeerde krakelingen van mensen, die een verdorven verstand
 Uit de vermelding van het misbruik, dat sommigen van de godsdienst maken, door die hun bijzondere belangen te laten dienen, komt de apostel: 
 
 I. Tot het bespreken van de voortreffelijkheid der tevredenheid en het kwade van de gierigheid. 
+
 1\. De uitnemendheid van tevredenheid of vergenoegdheid, vers 6-8. Sommigen achten het Christendom een voordelige belijdenis voor deze wereld. In de zin zoals zij het bedoelen, is dat niet waar; en toch is het ontwijfelbaar waar, dat hoewel het Christendom de slechtste handelszaak is, het de beste roeping is. Zij, die er koophandel van maken, alleen om er hun voordeel in deze wereld mede te bevorderen, zullen teleurgesteld worden en slechte zaken doen. Maar zij, die het als hun roeping beschouwen en daar hun werk van maken, zullen het een winstgevende roeping vinden, want het heeft de belofte des tegenwoordigen en des toekomenden levens. 
 
 A. De waarheid, waarop hij de aandacht vestigt, is dat de Godzaligheid een groot gewin is met vergenoeging. Sommigen lezen hier: Godzaligheid met genoegzaamheid; dat is: indien iemand slechts weinig in de wereld heeft, zo het maar toereikend is om hem door dit leven heen te helpen, dan begeert hij niets meer; zijn Godzaligheid met dat weinige zal hem een groot gewin zijn. Want het weinige, dat de rechtvaardige heeft, is beter dan de overvloed veler goddelozen, Ps. 37:16. Wij lezen het: Godzaligheid met vergenoeging; Godzaligheid op zichzelf is een groot gewin; zij is nuttig voor alle dingen; en waar ware Godzaligheid is, daar zal ook vergenoeging zijn; want zij, die met Godzaligheid het verstgevorderd zijn in vergenoeging, zijn zeker de gelukkigste mensen ter wereld. 
+
 Godzaligheid met vergenoeging; dat is Christelijke vergenoeging die uit de beginselen der Godzaligheid ontspruit, is een groot gewin en overtreft alle weelde der wereld. Hij, die Goddelijk zeker is dat hij in de toekomende wereld gelukkig zijn zal, heeft, zo hij zich tevreden schikt naar zijn toestand in deze wereld, altijd genoeg. Wij zien hier: 
 
 a. Het gewin van een Christen, dat is Godzaligheid met vergenoeging; dat is de zekerste weg om dat gewin te verkrijgen, ja het is het gewin zelf. 
+
 b. Het gewin van een Christen is groot; het is niet gelijk de kleine winsten der wereldlingen, die zo gesteld zijn op een weinig wereldse voorspoed. 
+
 c. Godzaligheid gaat in meerdere of mindere mate altijd gepaard met vergenoeging; alle ware Godzaligen hebben met Paulus geleerd vergenoegd te zijn in hetgeen zij zijn, Phil. 4:11. Zij zijn vergenoegd met hetgeen God over hen beschikt, wel wetende dat dit het beste voor hen is. Laat ons daarom altijd trachten naar Godzaligheid met vergenoeging. 
 
 B. De reden, die hij er voor aangeeft: Want wij hebben niets in de wereld gebracht; het is openbaar, dat wij ook niet kunnen iets daar uit dragen, vers 7. Dat is de reden, waarom wij met weinig tevreden moeten zijn. 
 
 a. Omdat wij niets als een schuld kunnen eisen, want wij kwamen naakt in de wereld. Wat wij ook sinds dat ogenblik hebben, is te danken aan de Goddelijke voorzienigheid; maar Hij die geeft mag ook nemen wat en wanneer het Hem behaagt. Wij hadden ons wezen, ons lichaam, ons leven (die meer zijn dan voedsel en kleding) toen wij in de wereld kwamen, doch wij kwamen naakt en brachten niets mede; zullen wij dan niet tevreden zijn indien ons leven verlengd wordt, hoewel wij niet alles hebben wat wij zouden begeren? Wij brachten niets mee in de wereld, en toch voorzag God ons, droeg zorg voor ons; wij zijn levenslang door Hem gevoed tot op deze dag, en daarom, al worden we in de grootste moeilijkheden gebracht, wij kunnen niet armer zijn dan toen wij in de wereld kwamen; en toen werden wij van al het nodige voorzien, laat ons daarom op God vertrouwen voor het overige deel van onze pelgrimsreis. 
+
 b. Wij zullen ook niets uit deze wereld uitdragen. Een lijkkleed, een doodkist, een graf; meer kan ook de rijkste niet verkrijgen van al zijn wereldse schatten! Waarom zullen wij naar meer gieren? Waarom zullen wij niet met een weinig tevreden zijn, omdat wij, hoeveel wij ook mogen bezitten, toch alles zullen moeten achterlaten, Pred. 5:15, 16. 
 
 C. Hier voegt hij aan toe: Maar als wij voedsel en deksel hebben, wij zullen daarmee vergenoegd zijn, vers 8. Voedsel en deksel; het laatste bedoelt woning zo goed als kleding. Wanneer God ons het nodige levensonderhoud geeft, moeten wij daarmee vergenoegd zijn, al ontbreken ons de genoegens en weelde van het leven. De natuurlijke mens behoort met weinig tevreden te zijn, maar de begenadigde niet minder; hoewel wij geen keur van spijzen en geen fraaie klederen hebben, moeten wij tevreden zijn met geschikt voedsel en kleed. Agur bad: Armoede of rijkdom geef mij niet, voed mij met het brood mijns bescheiden deels, Spr. 30:8. Hier zien wij: 
@@ -82,14 +93,19 @@ b. De noodzakelijkheden des levens zijn de grens van begeerte van een waar Chris
 2\. Het kwaad der gierigheid. Doch die rijk willen worden;- zij, die hun hart gesteld hebben op de weelde der wereld, en besloten hebben dat zij het, goedschiks of kwaadschiks, zullen verkrijgen; vallen in verzoeking en in de strik, vers 9. Er wordt niet gezegd: die rijk zijn, maar: die rijk willen worden; dat is: die hun geluk stellen in de weelde der wereld; die daarnaar onredelijk begeren; en ijverig en woest zijn in het najagen daarvan. Zulke vallen in verzoeking en in de strik; onvermijdelijk; want, zodra de duivel ziet in welke weg hun begeerten hen leiden, zal hij daar zijn lokaas uithangen. Hij wist hoe begerig Achan naar een gouden haak was, en daarom hield hij hem er een voor. Zij vallen in vele dwaze en schandelijke begeerlijkheden. Merk hier op: 
 
 A. De apostel onderstelt dat: 
+
 a. Sommigen rijk willen worden; zij zijn daartoe besloten; niets minder dan grote overvloed zal hen voldoen. 
+
 b. deze zullen niet veilig of onschuldig blijven; zij zullen in gevaar komen van zichzelf voor eeuwig te verwoesten; zij vallen in verzoeking en strikken. 
+
 c. Wereldse begeerlijkheden zijn dwaas en schandelijk, want zij trekken de mensen in verderf en ondergang. 
+
 d. Het is nuttig voor ons te letten op het gevaar van wereldse, vleselijke lusten. Zij zijn dwaas, en daarom moeten wij er ons voor schamen; schandelijk, en daarom moeten wij er voor bevreesd zijn; vooral omdat ze in zo hoge mate schandelijk zijn, dat zij de mensen in verderf en ondergang trekken. 
 
 B. De apostel bevestigt dat de geldgierigheid is de wortel van alle kwaad, vers 10. Tot welke zonden worden de mensen al niet verleid door geldgierigheid! Zij was de voorname oorzaak van de afval van het Christelijk geloof van velen; omdat zij geldgierig waren, dwaalden zij af van het geloof; verlieten het Christendom, en doorstaken zichzelf met vele smarten. Merk op: 
 
 a. De wortel van alle kwaad is de liefde tot het geld. Men mag geld bezitten, maar het niet liefhebben, want indien wij het onredelijk liefhebben, zal het ons tot allerlei kwaad verleiden. 
+
 b. Geldgierige personen zullen het geloof verlaten, zodra zij daardoor geld kunnen machtig worden. Tot welke sommigen lust hebbende, zijn afgedwaald van het geloof. Demas heeft mij verlaten, hebbende de tegenwoordige wereld liefgekregen, 2 Tim. 4:10. Want de wereld was hem dierbaarder dan het Christendom. Zij, die van het geloof afdwalen, doorsteken zichzelf met vele smarten. Die God verlaten leggen zich toorn als een schat op. 
 
 II. Hij gebruikt deze gelegenheid om Timotheüs te waarschuwen, en hem te raden te blijven in de weg van God en van zijn plicht; en vooral om zijn plichten als dienaar te vervullen. Hij noemt hem mens Gods. Dienaren zijn mensen Gods, en behoren zich in alles als zodanig te gedragen; zij zijn mensen in Gods dienst, meer onmiddellijk aan zijn eer gewijd. De profeten van het Oude Testament werden mannen Gods genoemd. 
@@ -103,8 +119,11 @@ II. Hij gebruikt deze gelegenheid om Timotheüs te waarschuwen, en hem te raden 
 4\. Hij vermaant hem: Grijp naar het eeuwige leven. Merk hier op: 
 
 A. Het eeuwige leven is de kroon, die ons voorgehouden wordt, tot onze aanmoediging in de strijd, en om de goeden strijd des geloofs vol te houden. 
+
 B. Daar moeten wij naar grijpen, als dezulken die bevreesd zijn haar te verliezen. Grijp er naar, grijp het, en: Houd wat gij hebt, dat niemand u uw kroon ontneme, Openb. 3:11.
+
 C. Wij worden opgeroepen om te strijden en het eeuwige leven te grijpen. 
+
 D. De belijdenis, die Timotheüs en alle getrouwe dienaren afgelegd heeft voor vele getuigen, is een goede belijdenis; want zij belijden en verbinden zich de goede strijd des geloofs te strijden en naar het eeuwige leven te grijpen; hun roeping en hun eigen belijdenis verplichten hen daartoe. 
 
 ## 1 Timotheüs 6:13-21 
@@ -122,22 +141,31 @@ Merk op: De Heere Jezus Christus zal verschijnen; en het zal een luisterrijke ve
 1\. Betreffende Christus en God de Vader zegt de apostel hier grote dingen. 
 
 A. God is de alleen-machtige Heere; de macht van aardse vorsten is alleen door Hem verleend en hangt geheel van Hem af. De machten, die er zijn, zijn door God verordend, Rom. 13:1. Hij is de enige Macht, die volkomen vrij en onafhankelijk is. 
+
 B. Hij is de zalige en alleen-machtige Heere; oneindig gelukkig, en niets kan in enig opzicht Zijn gelukzaligheid verminderen. 
+
 C. Hij is de Koning der koningen en de Heere der heren. Al de koningen der aarde ontlenen hun macht aan Hem; Hij geeft hun hun kronen; zij hebben die onder Hem, en Hij heeft vrijmachtige heerschappij over hen. Dit is de naam van Christus, geschreven op Zijn kleed en op zijn dij; want Hij heeft een naam boven alle koningen der aarde. 
+
 D. Die alleen onsterflijkheid heeft. Hij alleen is onsterflijk in zichzelf, en heeft de onsterflijkheid als een fontein in zich, want de onsterflijkheid van engelen en geesten is door Hem gegeven. 
+
 E. Die een ontoegankelijk licht bewoont: een licht, dat niemand naderen kan, geen mens kan ten hemel ingaan, dan die het Hem behaagt daar te brengen en in Zijn koninkrijk toe te laten. 
+
 F. Hij is onzichtbaar. Die geen mens gezien heeft of zien kan. Het is onmogelijk dat sterflijke ogen het licht der Goddelijke heerlijkheid zouden verdragen. Niemand kan God zien en leven. 
 
 2\. Na deze heerlijke hoedanigheden beschreven te hebben, besluit hij met een lofverheffing: Welke zij eer en eeuwige kracht. Amen! Aangezien God alle kracht en eer in zichzelf heeft, is het onze plicht Hem alle eer en kracht toe te schrijven. 
 
 A. Welk een kwaad is de zonde, begaan tegen zulk een God, de gezegende en alleen-machtige Heere! De snoodheid is groter naarmate de waardigheid van hem, tegen wie gezondigd werd, groter is. 
+
 B. Groot is zijn nederbuiging, om zich te bemoeien met zulke lage en slechte schepselen als wij zijn. Wie zijn wij, dat de zalige God, de Koning der koningen en de Heere der heren, naar ons omziet! 
+
 C. Gezegend zijn zij, die toegelaten worden om te wonen bij deze grote en alleen-machtigen Heere. Gelukzalig zijn uw mannen; zei de koningin van Scheba tot de koning Salomo, welgelukzalig deze uw knechten, die gedurig voor uw aangezicht staan, die uw wijsheid horen! 1 Kon. 10:8. Hoeveel meer gelukzalig zijn zij die mogen staan voor de Koning der koningen! 
+
 D. Laat ons die grote God liefhebben, verheerlijken en prijzen, want: Wie zou U niet vrezen, Heere, en uwen naam niet verheerlijken? Want Gij alleen zijt heilig! Openb. 15:4. 
 
 IV. Bij wijze van naschrift voegt de apostel hier een les voor de rijken bij, vers 17-19. 
 
 1\. Timotheüs moest bevelen, dat de rijken op hun hoede moesten zijn tegen verzoekingen, en de gelegenheden van hun voorspoedige toestand goed gebruiken. 
+
 A. Hij moest hen waarschuwen op hun hoede te zijn tegen hoogmoed. Dat is de zonde, die zich lichtelijk meester maakt van rijke lieden, die de gehele wereld toelacht. Beveel hen dat zij niet hoogmoedig zijn; dat zij zich niet bovenmate hoog schatten; niet door hun rijkdom opgeblazen worden. 
 
 B. Hij moest hen waarschuwen tegen een ijdel vertrouwen op hun schatten. Beveel hen, dat zij niet hun hoop stellen op de ongestadigheid des rijkdoms. Niets is onzekerder dan de rijkdom dezer wereld; velen hebben schatten bezeten en waren de volgende dag straatarm. Rijkdommen maken zich vleugelen en vliegen weg als arenden, Spr. 23:5. 
@@ -149,6 +177,7 @@ D. Hij moet hen bevelen goed te doen met hetgeen zij hebben; want wat is de waar
 E. Hij moet hen bevelen aan de andere wereld te denken en zich daarvoor door werken van liefdadigheid voor te bereiden. Leggende zichzelf weg tot een schat een goedfondament tegen het toekomende, opdat zij het eeuwige leven verkrijgen mogen. 
 
 2\. Hierbij mogen wij opmerken: 
+
 A. Dienaren moeten niet bevreesd zijn voor de rijken; al zijn ze nog zo rijk, zij moeten met hen spreken en hen bevelen. 
 
 B. Zij moeten hen waarschuwen tegen hoogmoed en ijdel vertrouwen op hun rijkdommen; opdat zij niet hoogmoedig zijn en hun hoop stellen op de ongestadigheid des rijkdoms. Zij moeten hen aansporen tot goede werken van liefdadigheid. Dat zij weldoen, enz. 

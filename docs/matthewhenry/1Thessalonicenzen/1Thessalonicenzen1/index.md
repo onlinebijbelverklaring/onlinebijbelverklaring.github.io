@@ -17,6 +17,7 @@ In deze inleiding hebben wij:
 ## 1 Thessalonicenzen 1:1 
 
 In deze inleiding hebben wij: 
+
 I. Het opschrift, en daarin
 
 1\. De personen, van wie de brief kwam, of door wie hij geschreven was. Paulus was de geïnspireerde apostel en schrijver van deze brief, hoewel hij geen melding maakt van zijn apostelschap, hetgeen door de Thessalonicenzen niet betwijfeld werd of onder hen door valse leraren bestreden. Hij voegt Silvanus (of Silas) en Timotheüs bij zich (die nu tot hem gekomen waren met een verslag van de voorspoed der gemeenten van Macedonië); en toont daardoor zijn nederigheid en hoe begerig hij was om ook die dienaren van Christus te eren, die van lager rang waren dan hij. Dat is een goed voorbeeld voor de dienaren, die van groter invloed en bekendheid zijn dan de anderen. 
@@ -42,13 +43,20 @@ B. Hun liefde en de arbeid der liefde. Liefde is een van de voornaamste genaden;
 C. Hun hoop en de verdraagzaamheid van die hoop. Wij zijn in hope zalig. De hoop wordt vergeleken bij de helm van de krijgsman en het anker van de zeevaarder, en is ons van groot nut in tijden van gevaar. Waar een wèlgegronde hoop op het eeuwige leven is, daar zal ze zich openbaren in verdraagzaamheid, in het geduldig dragen van de bezwaren van de tegenwoordige tijd en een lijdzaam wachten op de heerlijkheid, die geopenbaard zal worden. Want indien wij hopen hetgeen wij niet zien, zo verwachten wij het met lijdzaamheid, Rom. 8:25. 
 
 2\. De apostel vermeldt niet alleen deze drie grote gaven, geloof, hoop en liefde, maar evenzo spreekt over: 
+
 A. Het voorwerp en de oorsprong van deze genaden, namelijk onze Heere Jezus Christus. 
+
 B. Van hun oprechtheid: voor God onze Vader. De grote beweegreden voor oprechtheid is de wetenschap, dat Gods oog altijd op ons rust; en het is een teken van onze oprechtheid, wanneer wij tonen dat wij in alles Gode welbehagelijk wensen te zijn, en dat ons recht is wat in Gods ogen recht is. Dan zijn het werk des geloofs, de arbeid der liefde en de verdraagzaamheid der hoop oprecht, wanneer ze geschieden als onder Gods oog. 
+
 C. Hij noemt de bron, waaruit deze genaden vloeien, namelijk Gods verkiezende liefde. Wetende, geliefde broeders, uw verkiezing van God, vers 4. Hij gaat terug tot de oorsprong van de stroom, en die is Gods eeuwige verkiezing. Sommigen verstaan onder deze verkiezing enkel hun tijdelijke afzondering van de ongelovige Joden en heidenen, door hun bekering, maar die geschiedde toch naar het voornemen desgenen, die alle dingen werkt naar de raad van zijn wil, Ef. 1:11. Sprekende van hun verkiezing noemt hij hen: geliefde broeders; want de oorsprong van de broederschap der Christenen en van de betrekking, die zij op elkaar hebben, is hun verkiezing. En er is een goede reden, waarom wij elkaar moeten liefhebben, in gelegen, want wij zijn allen geliefden Gods, en werden door Hem in Zijn raad geliefd alvorens in ons nog iets was om lief te hebben. De verkiezing van de Thessalonicensen was aan de apostel bekend, en daarom mocht zij henzelf bekend zijn; en dat wel door haar vruchten en uitwerkselen; hun oprecht geloof en hoop en liefde, door de gezegende verkondiging van het Evangelie onder hen. 
 Merk op: 
-a. Allen, die in de volheid des tijds werkelijk geroepen en geheiligd worden, waren van eeuwigheid verkoren tot zaligheid. 
+
+a. Allen, die in de volheid des tijds werkelijk geroepen en geheiligd worden, waren van eeuwigheid verkoren tot zaligheid.
+
 b. De verkiezing Gods is naar Zijn welbehagen en genade; en niet om enige verdiensten onzerzijds werden wij verkozen. 
+
 c. De verkiezing Gods wordt aan de vruchten kenbaar. 
+
 d. Wanneer wij God dankzeggen voor zijn genade, ons en anderen bewezen, moeten wij opgaan tot de bron, en God danken voor Zijn verkiezende liefde, die ons onderscheiden heeft. 
 
 3\. Een andere reden voor des apostels dankzegging is gelegen in de zegen op zijn bediening onder hen. Hij was dankbaar zowel om hunnentwil, als om zijnentwil, dat hij niet vergeefs onder hen gewerkt had. Hij had daarin het zegel en bewijs van zijn apostelschap, en grote aanmoediging in zijn werk en lijden. Hun gewillige aanneming en naleving van het door hem verkondigde Evangelie was een bewijs, dat zij door God verkoren waren. Daardoor wist hij hun verkiezing. Het is waar, dat hij in de derden hemel geweest was, maar daar had hij niet de dingen der eeuwigheid doorzocht of hun verkiezing gevonden; die kende hij aan de vruchten van het Evangelie onder hen, vers 5; en hij nam dat met dankbaarheid aan. 
@@ -67,6 +75,7 @@ I. Zij waren zorgvuldig in hun heiligen wandel om het voorbeeld van de apostelen
 
 II. Hun ijver groeide zo aan, dat zijzelf voorbeelden geworden waren voor allen rondom hen, vers 7, 8. 
 Merk hier op: 
+
 1\. Hun voorbeeld was zeer nuttig om goeden indruk op anderen te maken. Zij waren tupoi, stempels of werktuigen om indrukken mede te maken. Zij hadden zelf een goede indruk ontvangen van de prediking en de wandel der apostelen; en nu maakten zij een goeden indruk en hun voorbeeld had invloed op anderen. Christenen behoren zo goed te zijn, dat hun voorbeeld invloed op anderen heeft. 
 
 2\. Dat was zeer uitgebreid en reikte buiten de grenzen van Thessalonica, zelfs tot de gelovigen van geheel Macedonië, ja verder, in Achaje. De Filippensen en anderen, die het Evangelie vroeger ontvangen hadden dan de Thessalonicensen, werden door hun voorbeeld gesticht. Sommigen, die het laatst in de wijngaard gehuurd zijn, munten uit boven hen, die er vóór hen waren en worden de voorbeelden van die vroegere. 
@@ -76,7 +85,9 @@ Merk hier op:
 A. De bereidheid van hun geloof was allerwegen beroemd. Deze Thessalonicensen namen het Evangelie aan zodra het hun verkondigd werd, zodat het de aandacht trok van allen welke ruime deur de apostel daar geopend was, bijvoorbeeld geheel anders dan te Filippi, waar het geruime tijd duurde alvorens veel vrucht gezien werd. 
 
 B. De uitwerking van hun geloof was beroemd. 
+
 a. Zij verlieten de afgoderij; zij keerden hun afgoden de rug toe en verlieten allen valse godsdienst, waarin zij opgevoed waren. 
+
 b. Zij gaven zichzelf aan God, aan de levende God en wijdden zich aan Zijn dienst. 
 
 C. Zij verwachtten de Zoon van God uit de hemel, vers 10. Dit is een van de bijzonderheden van onze heilige godsdienst, de wederkomst van Christus te verwachten, als mensen die geloven dat hij komen zal en tot hun vreugde komen zal. De gelovigen onder het Oude Testament wachtten op de komst van de Messias; en de gelovigen van deze bedeling wachten op Zijn wederkomst; Hij is wederkomende. En er is goede reden om te geloven dat Hij wederkomen zal, want God heeft Hem van de doden opgewekt en daardoor verzekering gegeven aan alle mensen dat Hij ten gerichte komen zal, Hand. 17:31. En wij hebben goede reden om te hopen en te wachten op die wederkomst, omdat Hij ons van de toekomende toorn verlost heeft. Hij kwam om verlossing te verwerven, en zal bij zijn wederkomst verlossing medebrengen, gehele en volkomen bevrijding van zonden en dood, en hel, en van de toorn, die is op de ongelovigen en die eens gekomen op hen blijft, want het is een eeuwig vuur, dat de duivel en zijn engelen bereid is, Matth. 25:41. 
