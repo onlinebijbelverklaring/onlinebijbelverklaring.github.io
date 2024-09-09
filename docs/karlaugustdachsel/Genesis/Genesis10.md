@@ -1,6 +1,6 @@
 GESLACHT EN NAKOMELINGEN VAN NOACH’S ZONEN.
 
-I. Vers 1-5. 
+## I. Vers 1-5. 
 Voordat bericht wordt, hoe de van Noach’s zonen afstammende geslachten, ten gevolge van de spraakverwarring over de gehele aarde verstrooid en, behalve het van God uitverkoren geslacht, aan hun eigen wegen werden overgelaten (Hand. 14:16) volgt een drievoudige geslachtstafel, welke de meest verschillende volken tot een stam terugleidt. Het eerst wordt die van Jafeth meegedeeld, de stamvader van volken, die plaatselijk wel het meest verwijderd woonden, maar tot een grote toekomst (hoofdstuk. 9:27) bestemd waren.
 
 ***1. Dit nu zijn de geboorten van a) Noach’s zonen: Sem, Cham en Jafeth: en hun werden zonen geboren na de vloed.***
