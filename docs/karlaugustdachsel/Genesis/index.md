@@ -15,6 +15,6 @@ De inhoud knoopt zich vast aan tien stamboeken. (Tholedoth), aan welke stamboeke
 7e. die van Ismaël (25:12-18),  
 8e. die van Izaäk (25:19-35:29),  
 9e. die van Ezau (36) en  
-10e.die van Jacob (37-50).
+10e. die van Jacob (37-50).
 
 Vijf stamboeken alzo voor de eerste en vijf voor de tweede periode.
