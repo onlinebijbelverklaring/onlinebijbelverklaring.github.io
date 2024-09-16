@@ -17,6 +17,6 @@ Zijn Bijbelverklaring schreef hij in zeven delen tussen 1862 en 1880. Als opzet 
 
 Er wordt hard gewerkt om de bijbelverklaring online te zetten.
 
-<label for="file">Voortgang: 0/66 Bijbelboeken</label><progress id="file" value="0" max="66" style="width:80%; height:25px;"></progress>
+<label for="file">Voortgang: 1/66 Bijbelboeken</label><progress id="file" value="1" max="66" style="width:80%; height:25px;"></progress>
 
 Wilt u de bijbelverklaring alvast lezen in PDF formaat? Kijk op: [https://theologienet.nl/auteurs/dachsel-karl-august/](https://theologienet.nl/auteurs/dachsel-karl-august/) 
