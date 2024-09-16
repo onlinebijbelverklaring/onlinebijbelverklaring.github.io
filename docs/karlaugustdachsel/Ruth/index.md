@@ -1,0 +1,14 @@
+## HET BOEK RUTH.
+
+Het boek Ruth vormt enigszins de overgang tussen het boek der Richteren en de boeken van Samuël. Het leidt ons in in het familieleven van de voorouders van David, terwijl het ons tevens meedeelt de geschiedenis van een Israëlitisch gezin, dat hoogstwaarschijnlijk geleefd heeft in de dagen van Gideon; toen, tengevolge van de verschrikkelijke verdrukking de Midianieten, noodzakelijk de Israëlieten aan hongersnood ten prooi waren.
+
+Het deelt ons mee, hoe een Israëliet met zijn vrouw en beide zonen het land van de vaderen verlaat, om in Moab beveiliging voor de hongerdood te zoeken; hoe zijn beide zonen daar in het huwelijk treden met Moabitische vrouwen, die met zijn vrouw spoedig weduwen zijn, tengevolge waarvan Naomi besluit terug te keren naar haar vaderland, dat besluit ten uitvoer brengt, en gevolgd wordt door Ruth (1).
+
+Hoe vervolgens Ruth aren opleest op de velden van Boaz (2) en hoe zij door haar schoonmoeder geraden wordt, om niet alleen te trachten met Boaz in nadere kennis te komen, maar ook een huwelijk met hem te zoeken (3) en hoe eindelijk dat huwelijk gesloten wordt, waardoor zij, zoals aan het slot wordt meegedeeld, de voorouder wordt van David, de koning van Israël (4).
+
+Dit boek leert ons daarom, hoe in de weg van Gods bijzondere Voorzienigheid een Moabitische vrouw, een vrouw uit het vroeger Israël zeer vijandige volk, beschikt wordt om op te treden als een van de moeders, uit wie, voor zoveel het vlees aangaat, de Christus van God zou voortkomen.
+
+Wie het vervaardigd heeft, is niet met zekerheid uit te maken, en kan moeilijk worden nagegaan. Hoogstwaarschijnlijk is het vervaardigd in de laatste dagen van Davids leven. Dit is echter zeker; de gewijde schrijver heeft ook in dit boek erop willen wijzen, hoe het God behaagd heeft, naar Zijn vrijmachtig welbehagen, heidenen te enten op de stam van Israël, en hoe alles uitloopt op het grote einddoel: de verheerlijking van Gods Naam.
+
+Het boekje van Ruth staat tussen boeken, die over oorlogen en andere grote zaken handelen, als een zeer mooie en onvergelijkelijke schildering van trouw, beschaving, verstand en rechtvaardigheid. Deze liefelijke geschiedenis, die een beeld van alle deugden in zich bevat, die het huiselijke en maatschappelijke leven van de mensen eist, past in het boek, dat de mensen tot zaligheid wil onderwijzen. Het strekt de God van Israël tot eeuwige lof, dat bij de vrijheid, waarin toen Zijn volk leefde, toch ten minste door vele rechtschapen mensen zo goed, rechtvaardig, liefderijk en billijk gehandeld werd. Wat waren Naomi, Boaz en Ruth? Wie waren de mensen, die Boaz bij zijn huwelijk en Naomi met haar kleinzoon geluk wensten? Het waren landmensen. Hoe voortreffelijk was nu de rechtvaardigheid van deze landmensen in Israël (Ruth 4:11)! Hoe liefelijk was hun welsprekendheid, hoe aangenaam hun vriendelijkheid, hoe beschaafd waren hun zeden! Wat een wijze en verstandige mensen waren dat!
+
