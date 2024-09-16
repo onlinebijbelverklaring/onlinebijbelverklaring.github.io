@@ -6,7 +6,7 @@ I. Vs.1-7. Toen de beide genoemde werkmeesters zich aan hun arbeid willen begeve
 
 1. Toen wrocht, 1) maakte zich tot de arbeid gereed, Bezßleël en Ahóliab, en iedereen, die wijs van hart was, aan wie de HEERE wijsheid en verstand gegeven had, om te weten, hoe zij maken zouden elk werk ten dienste van het heiligdom naar alles, dat de HEERE geboden had.
 
-1) Of, Zo maken..
+1) Of, Zo maken.
 
 2. Want Mozes had geroepen Bezßleël en Ahóliab, en iedereen, die wijs van hart was, in wiens  hart  God  wijsheid  gegeven  had,  al  wiens  hart  hem  bewogen  had,  dat  hij  toetrad (hoofdstuk 35:10) tot het werk, om dat te maken.
 

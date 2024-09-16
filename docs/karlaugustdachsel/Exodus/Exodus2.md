@@ -3,7 +3,7 @@ MOZES’ GEBOORTE, OPVOEDING, VLUCHT EN HUWELIJK.
 ## I. Vers 1-10 
 Als de nood zeer hoog gestegen is, wordt de toekomstige redder van Israël in de stam van Levi geboren, door moederlijke list en goddelijke leiding in het leven bewaard, en aan het hof van Farao, als koningszoon, opgevoed.
 
-***1. En, niet eerst ten tijde, toen het bovenvermelde voorviel, maar reeds veel vroeger, misschien nog vóór het optreden van de nieuwe koning, geschiedde het, dat een man van het huis van Levi, Amram, zoon van Kehat, (hoofdstuk. 6:17) uitging, om voor zich een vrouw te begeren, en hij nam een dochter van Levi, 1) zijn tante, Jochébed (wier roem Jehova is), (hoofdstuk. 6:19 Numeri. 26:59 ).***
+***1. En, niet eerst ten tijde, toen het bovenvermelde voorviel, maar reeds veel vroeger, misschien nog vóór het optreden van de nieuwe koning, geschiedde het, dat een man van het huis van Levi, Amram, zoon van Kehat, (hoofdstuk. 6:17) uitging, om voor zich een vrouw te begeren, en hij nam een dochter van Levi, 1) zijn tante, Jochébed (wier roem Jehova is), (hoofdstuk. 6:19 Numeri. 26:59).***
 
 1) Niet overbodig is het, dat Mozes verhaalt, dat zijn (Mozes) vader zijn vrouw heeft genomen uit zijn eigen stam, daar de dubbele band van vereniging hen moest bemoedigen, om hun kroost te bewaren.
 

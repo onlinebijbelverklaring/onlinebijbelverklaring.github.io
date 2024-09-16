@@ -92,9 +92,9 @@ a) Ex.28:36; 29:6
 
 a) Ex.28:37
 
-1) Evenals boven bij de voorschriften over het  heiligdom en zijn gereedschap (hoofdstuk 25:10-30:10), de heilige kist en het gouden altaar als de beide polen al het andere uitsluiten, zijn hier tussen het schouderkleed, het voornaamste stuk van de hogepriesterlijke kleding en de gouden voorhoofdplaat, die volgens het opschrift het meest in het oog lopend teken van de hogepriesterlijke waardigheid is, alle overige priesterkleding gesteld..
+1) Evenals boven bij de voorschriften over het  heiligdom en zijn gereedschap (hoofdstuk 25:10-30:10), de heilige kist en het gouden altaar als de beide polen al het andere uitsluiten, zijn hier tussen het schouderkleed, het voornaamste stuk van de hogepriesterlijke kleding en de gouden voorhoofdplaat, die volgens het opschrift het meest in het oog lopend teken van de hogepriesterlijke waardigheid is, alle overige priesterkleding gesteld.
 
-Gedurig lezen we: "Zoals, of naar alles, wat de Heere Mozes had geboden." De werkmeesters van de tabernakel moesten er diep van overtuigd zijn, dat zij niets deden en niets mochten doen, dan naar alles, wat de Heere God verordineerd had..
+Gedurig lezen we: "Zoals, of naar alles, wat de Heere Mozes had geboden." De werkmeesters van de tabernakel moesten er diep van overtuigd zijn, dat zij niets deden en niets mochten doen, dan naar alles, wat de Heere God verordineerd had.
 
 II. Vs.32-43. Nadat al deze werken voltooid zijn, worden zij aan Mozes afgeleverd; deze beziet elk stuk in het bijzonder, vindt ze overeenkomstig het goddelijk beveld vervaardigd, en zegent nu het volk ten dank voor de bereidwilligheid in het geven en de ijver in het arbeiden.
 
@@ -116,7 +116,7 @@ a) Ex.35:11
 
 37. De zuivere, gouden kandelaar met zijn lampen, de lampen, die men toerichten moest, 1)en al diens gereedschap (hoofdstuk 25:31 vv.), en de olie tot het licht (hoofdstuk 27:20 vv.).
 
-1) Die men toerichten moest, of, die men volgens orde daarop moest plaatsen..
+1) Die men toerichten moest, of, die men volgens orde daarop moest plaatsen.
 
 38. Verder het gouden reukaltaar (hoofdstuk  30:1  vv.), en de zalfolie tot zalving van de priesters  en  van  het  heiligdom (hoofdstuk  30:22  vv.),  en  het  reukwerk  van  welriekende specerijen voor het reukaltaar (hoofdstuk 30:34 vv.), en het deksel van de deur van de tent, het voorhangsel voor het Heilige(hoofdstuk 26:36).
 
@@ -132,7 +132,7 @@ a) Ex.31:10
 
 43. Mozes nu bezag het gehele werk, en onderzocht nauwkeurig, of het met de hem gegeven voorschriften en het beeld, dat hij gezien had, overeenkwam, en ziet, zij hadden het gemaakt, zoals de HEERE geboden had; alzo hadden zij het gemaakt. 1) Toen zegende Mozes hen, 2) verblijd  over  deze  nauwkeurige  bewerking,  sprak  hij  over  de  arbeiders  en  de  gehele gemeente: de heerlijkheid van de Heere vervulle het werk van uw handen. (hoofdstuk 40:34).
 
-1) Mozes nu, om hen en zichzelf te vreden te stellen, bezag het gehele werk stuk voor stuk, en ziet, zij hadden het gemaakt, zoals het de Heere bevolen had; want Hij, die hem het voorbeeld had getoond, had hun handen in het werk bestuurd. Alle de werkingen van Gods genade komen nauwkeurig overeen met het oorspronkelijke bestek van Zijn raadsbesluiten. Hetgeen God in ons en door ons werkt, is de vervulling van het welbehagen van Zijn goedheid..
+1) Mozes nu, om hen en zichzelf te vreden te stellen, bezag het gehele werk stuk voor stuk, en ziet, zij hadden het gemaakt, zoals het de Heere bevolen had; want Hij, die hem het voorbeeld had getoond, had hun handen in het werk bestuurd. Alle de werkingen van Gods genade komen nauwkeurig overeen met het oorspronkelijke bestek van Zijn raadsbesluiten. Hetgeen God in ons en door ons werkt, is de vervulling van het welbehagen van Zijn goedheid.
 
 2) Een nagalm van de toen door Mozes ondervonden vreugde, en misschien ook van de door hem uitgesproken zegen, vinden wij waarschijnlijk in het slotvers van de 90ste Psalm 90.17, die hij, 38 jaar later, aan het einde van de woestijnreis vervaardigde: "De liefelijkheid van de Heere, onze God zij over ons; en bevestig Gij het werk van onze handen over ons, ja het werk van onze handen bevestig dat.".
 

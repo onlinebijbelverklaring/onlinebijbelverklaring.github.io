@@ -109,7 +109,7 @@ Met deze verklaring is Numeri 3:27,28 niet in onoplosbare strijd met onze tekst.
 
 a) 1 Kronieken 6:19; 23:21
 
-***19. a) En Amram nam Jochebed, (heerlijkheid van Jehova), zijn tante; 1) een zuster van Amrams vader (Numeri. 26:59), zich tot een vrouw, en zij baarde hem, behalve Mirjam, twee zonen, Aäron en Mozes, de laatste drie jaar na de eerste (hoofdstuk 7:7 Numeri. 33:38 vv. Deuteronomium. 34:7 ), en de levensjaren van Amram waren, evenals die van Levi (vs.16) honderd zevenendertig jaar.***
+***19. a) En Amram nam Jochebed, (heerlijkheid van Jehova), zijn tante; 1) een zuster van Amrams vader (Numeri. 26:59), zich tot een vrouw, en zij baarde hem, behalve Mirjam, twee zonen, Aäron en Mozes, de laatste drie jaar na de eerste (hoofdstuk 7:7 Numeri. 33:38 vv. Deuteronomium. 34:7), en de levensjaren van Amram waren, evenals die van Levi (vs.16) honderd zevenendertig jaar.***
 
 a) Exodus. 2:1
 

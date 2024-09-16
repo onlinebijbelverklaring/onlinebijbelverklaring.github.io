@@ -6,7 +6,7 @@ I. Vs.1-3. Nadat het Verbond met God hersteld was, gaat Mozes over tot volvoerin
 
 1. Toen deed Mozes de gehele vergadering 1) van de kinderen van Israël verzamelen voor zijn tent buiten het leger (hoofdstuk 33:7), en zei tot hen: Dit zijn de woorden, die de HEERE, toen ik de eerste maal de 40 dagen en 40 nachten bij Hem op de berg was, geboden heeft, dat men ze doe.
 
-1) Onder de gehele vergadering hebben wij nu ook te verstaan, de hoofden en oudsten van Israël, die weer op hun beurt aan de menigte bekend maakten..
+1) Onder de gehele vergadering hebben wij nu ook te verstaan, de hoofden en oudsten van Israël, die weer op hun beurt aan de menigte bekend maakten.
 
 2. a) Zes dagen zal men het werk doen; maar op de zevende dag zal voor u heiligheid zijn, daar gij die zult houden als een Sabbat, een rustdag ter nagedachtenis aan de rust voor de HEERE; na Zijn volbracht scheppingswerk (hoofdstuk 20:11); al wie daarop werk doet, zal gedood worden. (Numeri. 15:32 vv.)
 
@@ -14,7 +14,7 @@ a) Ex.20:8; 31:15 Leviticus. 23:3 Deuteronomium. 5:12 Luk.13:14
 
 3. Gij zult, opdat gij, na de herstelling van het Verbond met God, u nauwkeurig aan het door Hem vastgestelde verbondsteken (hoofdstuk 31:13,17) houdt, zelfs geen vuur aansteken in een van uw woningen op de Sabbatdag,1) om iets te koken of te braden; gij zult tevoren de voor die dag nodige spijzen bereiden.
 
-1) Aanstonds moest  met  deze strenge waarneming van de sabbatswet  een begin gemaakt worden, daar nu de arbeid voor de tent der samenkomst begon. Israël moest zes dagen lang vlijtig arbeiden, maar ook de zevende dag des te beslister vieren, en er geen vrijbrief inzien, dat de arbeid des Heeren in het heiligdom voortging, om zich over Gods gebod heen te zetten. Wat de onthouding zelfs van spijsbereiding betreft, zo moet men bedenken, dat in die hete landen de behoefte aan warme spijs minder is, dan bij ons..
+1) Aanstonds moest  met  deze strenge waarneming van de sabbatswet  een begin gemaakt worden, daar nu de arbeid voor de tent der samenkomst begon. Israël moest zes dagen lang vlijtig arbeiden, maar ook de zevende dag des te beslister vieren, en er geen vrijbrief inzien, dat de arbeid des Heeren in het heiligdom voortging, om zich over Gods gebod heen te zetten. Wat de onthouding zelfs van spijsbereiding betreft, zo moet men bedenken, dat in die hete landen de behoefte aan warme spijs minder is, dan bij ons.
 
 II. Vs.4-19. Vervolgens vraagt Mozes, volgens hoofdstuk 25:1-9, het volk, om vrijwillige bijdragen te geven tot het bouwen van het heiligdom, en nodigt, volgens hoofdstuk 31:1-11, de met verstand begaafden uit, om mee te delen in het oprichten van de tabernakel.
 
@@ -24,7 +24,7 @@ II. Vs.4-19. Vervolgens vraagt Mozes, volgens hoofdstuk 25:1-9, het volk, om vri
 
 a) Ex.25:2
 
-Het was geen belasting, die hun werd opgelegd, maar een vrijwilligheid of vrijwillige gift, om niet onduidelijk te kennen te geven: A. Dat God ons juk niet zwaar gemaakt heeft. Hij is een vorst, die Zijn onderdanen niet met belastingen drukt, noch zich doet dienen met een hefoffer, maar trekt ons met mensenkoorden, en laat ons zelf oordelen, wat recht is. Over Zijn regering heeft men geen oorzaak te klagen, want Hij regeert niet met strengheid. B. Dat God een blijmoedige gever liefheeft, en vooral behagen schept in de vrijwillige hefoffers. Dergelijke diensten zijn Hem aangenaam, die voortkomen uit een vrijwillig hart van een zeer gewillig volk..
+Het was geen belasting, die hun werd opgelegd, maar een vrijwilligheid of vrijwillige gift, om niet onduidelijk te kennen te geven: A. Dat God ons juk niet zwaar gemaakt heeft. Hij is een vorst, die Zijn onderdanen niet met belastingen drukt, noch zich doet dienen met een hefoffer, maar trekt ons met mensenkoorden, en laat ons zelf oordelen, wat recht is. Over Zijn regering heeft men geen oorzaak te klagen, want Hij regeert niet met strengheid. B. Dat God een blijmoedige gever liefheeft, en vooral behagen schept in de vrijwillige hefoffers. Dergelijke diensten zijn Hem aangenaam, die voortkomen uit een vrijwillig hart van een zeer gewillig volk.
 
 6. a) Als ook hemelsblauw, en purper, en scharlaken garen, en fijn linnen, witte byssus en tot garen gesponnen geitehaar.
 
@@ -75,9 +75,9 @@ III. Vs.20-35. Het volk voldoet gewillig aan de vraag, om de verlangde zaken te 
 
 22. Zo kwamen dan de mannen met de vrouwen, alle vrijwilligen van hart; zij brachten haken en oorversieringen, en ringen (Genesis 38:18) en spanselen 1) (Genesis 24:22), alle ofallerlei gouden vaten; en iedereen, die een gouden beweegoffer 2)nog onbearbeid goud tot offergave, aan de HEERE offerde.
 
-1) Deze gouden voorwerpen werden óf om de armen, óf om de hals gedragen, zowel door de Israëlieten, als door de Midianieten..
+1) Deze gouden voorwerpen werden óf om de armen, óf om de hals gedragen, zowel door de Israëlieten, als door de Midianieten.
 
-2) Deze twee woorden "heffen en bewegen," moeten wij leren gebruiken en verstaan; want een offer of een gave voor de godsdienst heet daarom een hefoffer, omdat men het voor de Heere ophief. Bewegen heet, dat men het heen en weer trok naar de vier richtingen: Oosten, Westen, Noorden en Zuiden..
+2) Deze twee woorden "heffen en bewegen," moeten wij leren gebruiken en verstaan; want een offer of een gave voor de godsdienst heet daarom een hefoffer, omdat men het voor de Heere ophief. Bewegen heet, dat men het heen en weer trok naar de vier richtingen: Oosten, Westen, Noorden en Zuiden.
 
 23. En iedereen, bij wie gevonden werd hemelsblauw en purper en scharlaken, en fijn linnen en geitehaar, en roodgeverfde ramsvellen, en dassenvellen, die brachten ze.
 
@@ -89,7 +89,7 @@ a) Spreuken. 31:19
 
 26.  En  alle  vrouwen,  wier  hart  haar  bewoog  in  wijsheid,  alle  vrouwen,  die  deze  kunst verstonden en wier hart daartoe gewillig was, die sponnen het geitehaar.1)
 
-1) Op het schiereiland van Sinaï spinnen nog heden de vrouwen uit kameel- of geitenhaar de stoffen voor de tenten en bewerken de wol voor de kleding. Het weven uit gesponnen garen geschiedde voor de tent door mannen, minder, omdat in Egypte het weven meestal bezigheid van de mannen was, als hoofdzakelijk omdat de weefsels voor de tapijten en voorhangsels waren, die kunstig bewerkt moesten worden; dit verstonden de vrouwen niet, de mannen hadden het echter in Egypte geleerd..
+1) Op het schiereiland van Sinaï spinnen nog heden de vrouwen uit kameel- of geitenhaar de stoffen voor de tenten en bewerken de wol voor de kleding. Het weven uit gesponnen garen geschiedde voor de tent door mannen, minder, omdat in Egypte het weven meestal bezigheid van de mannen was, als hoofdzakelijk omdat de weefsels voor de tapijten en voorhangsels waren, die kunstig bewerkt moesten worden; dit verstonden de vrouwen niet, de mannen hadden het echter in Egypte geleerd.
 
 27. De oversten nu, de voornamen en hoofden onder het volk, die deze dingen bezaten, welke tot hogere stand behoren, brachten sardónixstenen en vulstenen, tot de efod en tot de borstlap;
 
@@ -97,11 +97,11 @@ a) Spreuken. 31:19
 
 29. Elke man en vrouw, wiens hart hen vrijwillig bewoog te brengen tot al het werk, dat de HEERE geboden had te maken door de hand van Mozes, dat brachten de kinderen van Israël tot een vrijwillig offer 1) voor de HEERE.
 
-1) Wat gemaakt moest worden, was geboden; wat gebracht moest worden, was aan de vrije wil overgelaten..
+1) Wat gemaakt moest worden, was geboden; wat gebracht moest worden, was aan de vrije wil overgelaten.
 
 De kinderen van Israël nu hadden in Egypte niet  alleen alle kunstwerken geleerd, die tot volvoering van het bouwen van de tent nodig waren (1 Kronieken 4:14,21,23), maar zij waren daar  ten  dele  ook  rijk  en  vermogend  geworden  en  niet  met  lege  handen  uitgetrokken (hoofdstuk 12:35 vv. Genesis 15:14 ), veel van de nodige bouwstoffen kon ook in de woestijn gevonden  worden  (dassenvellen  en  acaciahout)  of  van  doortrekkende  karavanen  gekocht worden (specerijen en reukwerken)
 
-Een ieder gaf naar vermogen vrijwillig. Bij de bouw van de tabernakel was Israël een lieflijk beeld van de eenheid van Christus’ gemeente, waarin ieder zijn eigenaardige roeping heeft: waarin aan de voet en aan de hand, aan het oog en aan het oor is opgedragen, zoals het de Heere belieft..
+Een ieder gaf naar vermogen vrijwillig. Bij de bouw van de tabernakel was Israël een lieflijk beeld van de eenheid van Christus’ gemeente, waarin ieder zijn eigenaardige roeping heeft: waarin aan de voet en aan de hand, aan het oog en aan het oor is opgedragen, zoals het de Heere belieft.
 
 30. Daarna zei Mozes tot de kinderen van Israël, nadat zij een grote menigte bouwstoffen bij elkaar gebracht hadden, en hij hen weer voor zijn tent verzameld had: Ziet, de HEERE heeft met  name  geroepen  Bezßleël,  de  zoon  van  Uri,  dezoon  van  Hur,  uit  de  stam van  Juda (Ex.31:2).
 
@@ -117,5 +117,5 @@ Een ieder gaf naar vermogen vrijwillig. Bij de bouw van de tabernakel was Israë
 
 1)  Er  zijn  hier  drie  soorten  van  bearbeiding  van  de  in  hoofdstuk  21:4  genoemde  vier grondstoffen genoemd: 1e. het kunstwerken bestaat in het damastwijze inweven van kunstige figuren met drie purperkleuren in de grondstof; de laatste moet daarbij altijd getwijnd zijn (hoofdstuk 28:6,8 in hoofdstuk 39:2 vv.; 5:8 komen er ook nog gouddraden bij); 2e. het
 
-bontwerken  daarentegen  bestaat  in  het  inweven  van  strepen  in  de  grondstof;  en  3e.  het eenvoudig weven vormde weefsels uit slechts één stof..
+bontwerken  daarentegen  bestaat  in  het  inweven  van  strepen  in  de  grondstof;  en  3e.  het eenvoudig weven vormde weefsels uit slechts één stof.
 
