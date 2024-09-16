@@ -1,4 +1,5 @@
 ## I. Vers 1-7
+De namen en het getal der kinderen Israëls die in Egypte kwamen, en hun vermenigvuldiging.
 
 ***1. DIT nu zijn de namen der zonen van Israël, die in Egypte gekomen zijn met Jakob; zij kwamen erin, elk met zijn huis.***
 
