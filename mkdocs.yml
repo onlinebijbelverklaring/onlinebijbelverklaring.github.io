@@ -1691,12 +1691,12 @@ nav:
   #      -   Richteren 19: karlaugustdachsel/Richteren/Richteren19.md
   #      -   Richteren 20: karlaugustdachsel/Richteren/Richteren20.md
   #      -   Richteren 21: karlaugustdachsel/Richteren/Richteren21.md
-#      -   Ruth:
-  #      -   Ruth: karlaugustdachsel/Ruth.md
-  #      -   Ruth 1: karlaugustdachsel/Ruth/Ruth1.md
-  #      -   Ruth 2: karlaugustdachsel/Ruth/Ruth2.md
-  #      -   Ruth 3: karlaugustdachsel/Ruth/Ruth3.md
-  #      -   Ruth 4: karlaugustdachsel/Ruth/Ruth4.md
+      -   Ruth:
+        - Ruth: karlaugustdachsel/Ruth.md
+        - Ruth 1: karlaugustdachsel/Ruth/Ruth1.md
+        - Ruth 2: karlaugustdachsel/Ruth/Ruth2.md
+        - Ruth 3: karlaugustdachsel/Ruth/Ruth3.md
+        - Ruth 4: karlaugustdachsel/Ruth/Ruth4.md
 #      -   1 Samuël:
   #      -   1 Samuël: karlaugustdachsel/1Samuel.md
   #      -   1 Samuël 1: karlaugustdachsel/1Samuel/1Samuel1.md
