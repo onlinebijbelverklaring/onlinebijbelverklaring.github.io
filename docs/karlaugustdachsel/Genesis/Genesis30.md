@@ -106,7 +106,7 @@ Men weet niet of Jakob ook nog andere dochters gehad heeft. Want het is in de He
 
 Hoe komt ook hier het verschil in geestelijk opzicht tussen beide zusters kennelijk uit! Lea achtte zich de zegen onwaardig; Rachel acht deze niet vroeg genoeg gekomen en ook is zij er niet door voldaan. Zij is noch recht dankbaar, noch recht voldaan. Zij heeft zichzelf al te lief en dacht te veel om zichzelf, te weinig om anderen.
 
-## IV. Vers 25-43. 
+## IV. Vers 25-43
 Als Jakob na verloop van veertien jaar met vrouw en kinderen naar zijn huis terug wil keren, weet Laban door een nieuwe overeenkomst hem weer aan zich te verbinden. Jakob weet de door hemzelf voorgestelde schijnbaar dwaze overeenkomst zó tot zijn voordeel te leiden, dat hij in de volgende zes dienstjaren zeer rijk wordt.
 
 ***25. En het geschiedde als Rachel Jozef gebaard had, en het tweede zevental jaren (hoofdstuk. 29:27) verlopen was, dat Jakob tot Laban zei: Laat mij nu vertrekken, dat ik ga tot mijn plaats, en naar mijn land, daar ik zeer naar mijn betrekkingen verlang.***

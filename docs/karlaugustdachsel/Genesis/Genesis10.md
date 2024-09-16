@@ -1,6 +1,6 @@
 GESLACHT EN NAKOMELINGEN VAN NOACH’S ZONEN.
 
-## I. Vers 1-5. 
+## I. Vers 1-5
 Voordat bericht wordt, hoe de van Noach’s zonen afstammende geslachten, ten gevolge van de spraakverwarring over de gehele aarde verstrooid en, behalve het van God uitverkoren geslacht, aan hun eigen wegen werden overgelaten (Hand. 14:16) volgt een drievoudige geslachtstafel, welke de meest verschillende volken tot een stam terugleidt. Het eerst wordt die van Jafeth meegedeeld, de stamvader van volken, die plaatselijk wel het meest verwijderd woonden, maar tot een grote toekomst (hoofdstuk. 9:27) bestemd waren.
 
 ***1. Dit nu zijn de geboorten van a) Noach’s zonen: Sem, Cham en Jafeth: en hun werden zonen geboren na de vloed.***
@@ -21,7 +21,7 @@ a) 1 Kronieken 1:5
 
 Alzo stammen van Jafeth af niet alleen de Indiërs, Meden, Armeniërs en de volken, die van de Kaspische zee tot aan de zee van Azof wonen, maar ook de Grieken, Spanjaarden, Galliërs, Brittanniërs en Germanen. "De nauwkeurigheid van de in deze aller oudste overlevering gegevene volksvertakkingen, wordt steeds door de nieuwste navorsingen meer bevestigd. Daarbij is nog op te merken, dat onze volkerenlijst slechts de oorspronkelijke volken aangeeft, uit wier vermenging de historische volken zijn voortgekomen.".
 
-## II. Vers 6-20. 
+## II. Vers 6-20
 Hierop volgt de geslachtstafel van Cham, wiens nakomelingen dikwijls met het rijk Gods in aanraking kwamen, in ander opzicht er dus te verder van verwijderd waren, daar zij noch verwachtingen als Jafeth, noch beloften als Sem hadden, maar door de volkeren uit beide stammen werden overwonnen en onderdrukt. (hoofdstuk. 9:25).
 
 ***6. En de zonen van Cham, a) die zich, zoals de naam van de vader, Cham = hitte, aanduidt over de hetere landen hebben verbreid, zijn: Cusch, stamvader van de Ethiopiërs, en Mitsraïm, stamvader van de Egyptenaars, en Put, stamvader van de bewoners van Mauritanië en Lybië, en Kanaän, stamvader van de Feniciërs en Kanaänieten.***
@@ -64,7 +64,7 @@ Op tweeërlei wijze kan Nimrod beschouwd worden als een man, die hoewel uit Cham
 
 ***20. Deze zijn de zonen van Cham, naar hun gezinnen, naar hun spraken, in hun landschappen, in hun volken; door deze is waarschijnlijk ook Zuid- en Midden Amerika bevolkt.***
 
-## III. Vers 21-23. 
+## III. Vers 21-23
 Ten slotte wordt de geslachtstafel van Sem gemeld, bij wiens geslacht de kennis van de ware God het langst stand hield, totdat zij ook bij deze verloren ging en nog slechts door een enkele tak bewaard werd. Vervolgens worden die drie geslachtstafels nog eens in het geheel samengevat, opdat de oorspronkelijke eenheid van het gehele mensengeslacht vast zou staan vóór de tijd, waarin zij zich onder zo vele volkeren verdeelden (hoofdstuk. 11 vv.).
 
 ***21. Voorts zijn Sem (naam), die de drager van de naam van God geworden is, zonen geboren; deze is ook de voorvader van alle zonen van Heber, 1) de stamvader der Ismaëlieten en Hebreeën of Israëlieten; en Sem is de broeder van Jafeth, de grootste, de eerstgeboren zoon van Noach, boven wie hij in geestelijk opzicht verheven is geworden. (hoofdstuk. 9:26 en 27).***

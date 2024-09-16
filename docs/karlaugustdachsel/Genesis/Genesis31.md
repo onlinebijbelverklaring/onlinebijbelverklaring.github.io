@@ -1,6 +1,6 @@
 JAKOB VLUCHT MET VROUWEN EN KINDEREN VAN ZIJN SCHOONVADER LABAN.
 
-## I Vers 1-22. 
+## I Vers 1-22
 Jakob’s geluk wekt de nijd van Laban en diens zonen op; de bittere redenen van de laatsten, doen hem wensen de bestaande overeenkomst te verbreken; daarbij ontvangt hij een bevel van God, om weer naar zijn land terug te keren. Nadat hij zich van de toestemming van zijn vrouwen verzekerd heeft, maakt hij zich de tijd van het scheren van de schapen tot nut, en gaat met de zijnen in het geheim uit Mesopotamië.
 
 ***1. Toen hoorde hij, waarschijnlijk doordat anderen het hem meedeelde, de woorden van de zonen van Laban (hoofdstuk. 30:35), die nijdig waren over het toenemen van zijn rijkdom (hoofdstuk. 30:43), zeggende: Jakob heeft genomen alles, wat van onze vader was; en van hetgeen, dat van onze vader was, heeft hij al deze heerlijkheid gemaakt. 1)***
@@ -105,7 +105,7 @@ Aan het hart ontstelen is "iemand verschalken", dit wordt gezegd in tegenstellin
 
 ***21. En hij vlood, (gelijk in vs.18) meegedeeld is, en al wat het zijne was, en hij maakte zich op, en voer over de rivier, de Eufraat, die Mesopotamië ten westen begrenst, en hij zette zijn aangezicht, sloeg de weg in naar het gebergte Gilead (heuvel van de getuigenis), dat aan de oostzijde van de Jordaan boven Jabbok gelegen is, en naderhand die naam (vs.44-48) ontving.***
 
-## II. Vers 22-Hoofdstuk 32:2. 
+## II. Vers 22-Hoofdstuk 32:2
 Op de derde dag daarna verkreeg Laban bericht van Jakob’s vlucht; hij zette hem na en haalde hem na zeven dagreizen in op het gebergte van Gilead. ‘s Nachts te voren had God hem ernstig gewaarschuwd, geen geweld aan te wenden; daarom stelt hij zich tevreden met verwijten over de geheime vlucht en met een onderzoek naar zijn goden. Toen hij deze niet gevonden had, en Jakob eveneens hem zijn onrecht verweten had, kwam tussen hen een wederkerig verbond tot stand, waarop beide verder trokken.
 
 ***22. En op de derde dag, toen Jakob reeds lang over de Eufraat getrokken was, werd aan Laban geboodschapt, dat Jakob gevlucht was.***

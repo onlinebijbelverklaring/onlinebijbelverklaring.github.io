@@ -1,6 +1,6 @@
 IZAAK’S OMZWERVEN EN VERBLIJF TE GERAR. TWIST OVER WATERPUTTEN. VERBOND MET ABIMELECH.
 
-## I Vers 1-11. 
+## I Vers 1-11
 Bij een honger in Kanaän wil Izaak, evenals vroeger zijn vader Abraham deed, naar Egypte trekken, maar de Heere gebiedt hem in het land te blijven en legt plechtig de aan Abraham gegeven belofte op hem. Hij woont te Gerar, en geeft daar zijn vrouw voor zijn zuster uit. Abimelech bemerkt de onwaarheid daarvan, en neemt hem door een openlijk verbod in bescherming tegen zijn onderdanen.
 
 ***1. En er was, enige jaren na Abraham’s dood (vs.18), nog voor het in hoofdstuk. 21:29-34 meegedeelde, waarschijnlijk te Berséba, (vs.23-33), voorviel, honger 1) in dat land Kanaän, waar Izaak tot hiertoe gewoond had, behalve de eerste honger, zwaarder dan de vorige, die in de dagen van Abraham geweest was (hoofdstuk. 12:10); daarom toog Izaak tot Abimelech, 2) de koning van de Filistijnen, naar diens residentiestad, Gerar.***
@@ -79,7 +79,7 @@ Hoe pijnlijk is het te zien, dat de gelovige aan de wereld zo dikwijls rechtmati
 
 1) Bij die betoning van goddelijke liefde in deze bewaring zal Izaak zich diep hebben verootmoedigd en zijn zonde beweend. God helpt de Zijnen uit, ook als zij door hun eigen dwaasheid zich in gevaren hebben gebracht.
 
-## II. Vers 12-22. 
+## II. Vers 12-22
 Izaak wordt in Gerar door de Heere, die Zijn belofte aan hem vervult, rijk gezegend, maar door de Filistijnen, die hem benijden, verdrukt en van plaats tot plaats verdrongen, totdat hij te Rehoboth rust vindt.
 
 ***12. En Izaak, terwijl of Abimelech uit gunst, of de Filistijnen in pacht, hem een stuk grond afstonden, zaaide 1) in hetzelfde land, uit behoefte aan koren in die tijd van honger voor zich en zijn gezin, en hij vond in dat jaar honderd maten, honderdvoudige vruchten, gelijk in het Oosten wel nu en dan meer voorkomt (Luk.8:8); maar hier noch aan de oorspronkelijke vruchtbaarheid, noch aan de overvloed van dat jaar kon toegeschreven worden, doch een geheel andere oorzaak had; want de HEERE zegende hem naar zijn toezegging (hoofdstuk. 2:3), terwijl de overige velden in Gerar slechts de gewone en in die onvruchtbare tijd karige opbrengst gaven.***
@@ -139,7 +139,7 @@ Het onderscheid tussen Abraham en Izaak is voornamelijk hierin gelegen, dat men 
 
 3) Beter "opdat wij kunnen wassen in dit land."
 
-## III. Vs.23-33. 
+## III. Vs.23-33
 Van Rehoboth vertrekt Izaak naar Berséba, waar hem de Heere voor de tweede maal in zijn leven verschijnt, en hij zich neerzet, met het doel daar langer te vertoeven. Abimelech zoekt hem daar op en begeert een verbond met hem te sluiten.
 
 ***23. Daarna toog hij, misschien, omdat ook daar nieuwe vijandelijkheden van de zijde van de Filistijnen te wachten waren, van daar naar het zuiden op, naar Berséba, waar ook eens zijn vader gewoond had. (hoofdstuk 22:19).***
@@ -208,7 +208,7 @@ In de mond van Abimelech betekenen deze woorden niet anders, dan dat hij gelooft
 
 Deze put is niet dezelfde als die door Abraham was teruggekregen, maar er dichtbij gelegen. Beide bronnen bestaan nog. De herhaling "daarom is de naam van die stad Berséba tot op deze dag", heft de mededeling in hoofdstuk 21 niet op, maar bevestigt deze veeleer.
 
-## IV. Vers 34 en 35. 
+## IV. Vers 34 en 35
 Ezau huwt in zijn veertigste levensjaar met twee vrouwen uit het Kanaänitische geslacht en verbittert daardoor zijn ouders in hun ouderdom.
 
 ***34. Toen nu Ezau veertig jaar 1) oud was (hoofdstuk. 25:20; Jozua 14:7; Hand.7:23 ), nam hij, buiten weten en tegen de wil van zijn ouders, tot een vrouw Judith (zij die God looft), de dochter van Beëri (mijn bron), de Hethiet, en Basmath 2) (liefelijke), de dochter van Elon (eik), de Hethiet; dus twee vrouwen opeens uit de Kanaänieten.***

@@ -1,6 +1,6 @@
 JOZEFS DIENST, KUISHEID EN GEVANGENIS.
 
-## I. Vers 1-6. 
+## I. Vers 1-6
 Jozef, door de Ismaëlieten aan Pótifar in Egypte verkocht, wordt door Gods zegen verheven van slaaf tot de rang van huisbestuurder. Dit is de voorschool voor zijn latere roeping tot grootvizier van geheel Egypte, welke de Heere hem toegedacht heeft.
 
 ***1. Jozef 1) nu werd, gelijk reeds in hoofdstuk 37:28,36 meegedeeld is, naar Egypte afgevoerd; en Pótifar, 2) een hoveling van Farao, een overste van de lijfwacht, een Egyptisch man3) kocht hem uit de hand van de Ismaëlieten, die hem daarheen afgevoerd hadden.***
@@ -45,7 +45,7 @@ Ter wille van Jozef werd het huis van Pótifar gezegend. Zo doet God altijd. Ind
 
 3) Daar voor de heilige Jozef de schoonheid van gedaante een oorzaak van veel verdriet is geweest, zo laten wij daaruit leren, om niet zo zeer de gaven van het lichaam te zoeken, welke bij de mens in ere zijn, dan wel tevreden met ons lot te zijn. Wij zien, hoe zij, die in schoonheid uitmunten, aan vele gevaren zijn blootgesteld. Want het is zeldzaam en moeilijk, om zich van alle ellenden vrij te houden. Ofschoon in Jozef de vrees voor God zo heerste, dat hij alle onkuisheid verafschuwde, zo heeft echter aan de andere zijde satan hem zóveel ellende veroorzaakt, dat hij uit de gave van God strikken zocht te bereiden om zijn ziel te vangen. Waarom wij God ijverig moeten smeken, dat hij onder zoveel gevaar ons door zijn Geest bestuurt en de gave, waarmee Hij ons begunstigt, van alle smet zuiver houdt.
 
-## II. Vers 7-12. 
+## II. Vers 7-12
 Nadat Jozef verscheidene jaren zijn aardse heer getrouw gediend heeft, moet hij nog een zware beproeving doorstaan. Pótifars vrouw in boze lust tot hem ontstoken, beproeft eerst alle listige middelen tot verleiding, openbaart hem vervolgens, onverholen en steeds opnieuw, haar begeerte, en wil hem eindelijk dwingen; maar Jozef volhardt in zijn godsvrucht en blijft haar tegenstaan.
 
 ***7. En het geschiedde na deze dingen, toen Jozef ongeveer tien jaar Pótifar gediend had, en nu een ouderdom van omtrent zevenentwintig jaar bereikt had, a) dat de vrouw van zijn heer haar ogen op Jozef wierp 1) en, nadat zij haar gunstbetoningen lange tijd tevergeefs aan hem beproefd had, openbaarde zij hem openlijk haar begeerte, zei: Lig bij mij! 2)***
@@ -92,7 +92,7 @@ Dat de jongelingen Jozef navolgen, die zo rein en schoon was naar het lichaam, m
 
 Door zijn kleed in haar hand te laten, zette hij tevens zijn leven op het spel. Hij is echter eerder bereid goed en leven over te geven, dan tegen de wil van God te zondigen.
 
-## III. Vers 13-23. 
+## III. Vers 13-23
 Door Pótifars vrouw van een aanslag op haar trouw beschuldigd, wordt Jozef door haar gemaal in de gevangenis geworpen; daar verwerft hij zich, door de zegen van de Heere, een zo volkomen vertrouwen, dat de overste van het gevangenhuis al zijn gevangenen in zijn hand stelt.
 
 ***13. En het geschiedde, als zij zag, dat hij zijn kleed in haar hand gelaten had, en naar buiten gevlucht was, en alzo met haar bedoelingen niets te doen wilde hebben.***

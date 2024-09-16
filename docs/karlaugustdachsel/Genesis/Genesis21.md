@@ -1,6 +1,6 @@
 ISAAK’S GEBOORTE. VERWIJDERING VAN ISMAËL. ABRAHAMS VERBOND MET ABIMELECH.
 
-## I. Vers 1-7. 
+## I. Vers 1-7
 Spoedig, nadat Sara door Abimelech vrijgelaten is, wordt zij van Abraham zwanger en baart op de door God aangekondigde tijd, een zoon, die Izaak genoemd en op de achtste dag besneden wordt.
 
 ***1. 1) En de HEERE, wiens woord waarachtig en getrouw is (Psalm. 33:4, Numeri. 23:19, bezocht 2) Sara, nam haar natuurlijke onvruchtbaarheid weg, en gaf aan haar reeds verstorven lichaam de kracht weer om te ontvangen en te baren, gelijk als Hij, bij de in hoofdstuk. 18 vermelde verschijning, gezegd had (vs.10,14): en de HEERE deed aan Sara, gelijk als Hij, niet slechts toen, maar ook reeds vroeger tot Abraham (hoofdstuk. 17:19) gesproken had.***
@@ -49,7 +49,7 @@ Van vreugde spreekt Sara van meerdere zonen, hoewel zij slechts een gebaard heef
 
 Ondertussen moet men er op letten, dat Sara niet alleen haar kind het leven heeft geschonken, maar het ook gezoogd heeft. Want de Heere bereidt niet tevergeefs voor de kinderen, reeds eer zij geboren worden, in de moederborst hun voedsel. Wie Hij de eer van moeder te worden schenkt, die stelt Hij ook in staat voedster te zijn. En wie er bezwaar in vinden hun eigen kinderen te zogen, verbreken zoveel in hen is, een heilige band van de natuur. Indien ziekte of iets anders haar verhindert, is er billijke reden voor verontschuldiging. Maar dat de moeders vrijwillig of uit gemakzucht zich van de moeite, om te zogen, ontslaan, zodat zij eigenlijk slechts half moeder zijn, is een schandelijke zaak.
 
-## II. Vers 8-21. 
+## II. Vers 8-21
 Bij gelegenheid van een feest, dat Abraham op de dag van het spenen van Izaak aanrichtte, ziet Sara Ismaël met haar zoon spotten en eist, dat hij met zijn moeder wordt verwijderd. Abraham doet dit; daar God het hem uitdrukkelijk beveelt. Ismaël versmacht bij het doortrekken van de woestijn bijna van dorst. De Heere treedt tussenbeide en is ook verder met de jongen, die in de woestijn, waar zijn moeder met hem blijft, voorspoedig opgroeit.
 
 ***8. En het kind werd groot, groeide voorspoedig op, en werd, naar de regel van die tijden op ongeveer zes- of zevenjarige leeftijd (1 Samuel 1:23 vv.) gespeend 1) van de moederborst afgenomen. Toen maakte Abraham, verheugd over de zegen Gods, een grote maaltijd 2) voor zijn knechten en vrienden, op de dag dat Izaak gespeend werd.***
@@ -154,7 +154,7 @@ Een christen mag op zijn weg de moed niet verliezen; ontbreekt de geloofsmoed, d
 
 Zie de verdere geschiedenis van Ismaëls geslacht in hoofdstuk. 25:12-18.
 
-## III. Vers 22-34. 
+## III. Vers 22-34
 Abimelech, bewogen door de goddelijke zegen, die Abraham vergezelt, zoekt een verbond met hem te sluiten. Abraham beklaagt zich over een waterput, die Abimelech’s knechten genomen hadden en ontvangt die terug. Daarop sluit hij het verbond met de koning van de Filistijnen en richt alles tot een langer verblijf te Berséba in.
 
 ***22. Voorts geschiedde het terzelfder tijd, in welke Izaak gespeend en Ismaël verwijderd werd (vs.8-19) dat Abimelech (reeds in hoofdstuk. 20:1 vv. vermeld) bovendien Pichol (mond van allen, d.i. die over allen beveelt) zijn krijgsoverste, die hij meegebracht had, tot Abraham sprak, hem te Berséba bezoekende, zeggende: God is met u in alles wat gij doet, 1) gelijk ik reeds lang heb opgemerkt.***

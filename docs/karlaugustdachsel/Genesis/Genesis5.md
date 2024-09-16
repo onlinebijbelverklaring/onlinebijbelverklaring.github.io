@@ -1,6 +1,6 @@
 GESLACHTSREGISTER VAN ADAM EN NOACH.
 
-## I. Vers 1 en 2. 
+## I. Vers 1 en 2
 Na voorstelling van de beginselen van het menselijk geslacht en van de beide richtingen, die zich daarin ontwikkeld hebben, gaat het bericht tot de schepping terug, om zo het geslachtsregister van gelovigen aan te vangen tegenover de lijn van goddelozen.
 
 ***1. Dit is het boek 1), het register, van Adams geslacht in die lijn, welke in God geloofde, en door de tucht van zijn genade tot het toekomstige doel werd geleid, terwijl bij de overigen de goddeloosheid hand over hand toenam, en zich bij de Kaïnieten een gruwelijk heidendom ontwikkelde. Ten dage als God de mens schiep, maakte Hij hem a) naar de gelijkenis Gods.***
@@ -15,7 +15,7 @@ a) MATTHEUS. 19:4; Mar. 10:6
 
 1) Deze woorden geven de heilige band van het huwelijk, de onverbrekelijke eenheid tussen man en vrouw aan. Want nadat Mozes hen elk afzonderlijk heeft genoemd, verenigt hij, terstond daarop, hen beiden onder één naam. En de gemeenschappelijke naam deelt hij aan beiden, zonder onderscheid, toe, opdat de nakomelingen zouden leren het verbond des te heiliger te eren, wanneer zij zouden zien, dat de eerste ouders onder één naam werden aangewezen.
 
-## II. Vers 3-32. 
+## II. Vers 3-32
 Nu volgt de geslachtslijst van die lijn, waardoor het mensdom blijvend geworden is; tezamen zijn er tien oudvaders, die door hun hoge leeftijd een tijdspan van 1655 jaar bestaan hebben, en door dit kleine aantal leden de openbaringen van God op het latere geslacht hebben voortgeplant.
 
 ***3. En Adam leefde honderd en dertig jaar, toen hij na de dood van Abel zijn vrouw weer bekende (Hoofdstuk 4:25), en gewon een zoon naar zijn gelijkenis, naar zijn evenbeeld; 1) wel een zondig mens als zijn vader (Psalm. 51:7), maar toch tegelijk een nakomeling van hem, die de belofte van de toekomstige Verlosser verkregen had, en in het geloof aan die belofte weer vernieuwd werd naar het beeld van zijn Schepper (Hoofdstuk 5:1), alzo een lid van de heilige kerk, en noemde zijn naam Seth.***

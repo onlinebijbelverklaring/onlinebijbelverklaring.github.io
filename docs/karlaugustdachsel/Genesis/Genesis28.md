@@ -32,7 +32,7 @@ Zij zag dus haar zoon nimmermeer. Dit was de goddelijke straf voor haar zonde. G
 
 Ouders kunnen hun kinderen niets beters op hun reis meegeven, dan de Christelijke zegenwens.
 
-## IV. Vers 6-9. 
+## IV. Vers 6-9
 Ezau neemt nog een derde vrouw uit het geslacht van Ismaël, om zijn vader genoegen te doen, die ontevreden is over de twee Kanaänitische vrouwen.
 
 ***6. Als nu Ezau zag, dat Izaak Jakob gezegend had, hem de zegen, die hij door bedrog verkregen had, niet had ontnomen, maar integendeel bevestigd (vs.3,4), en dat hij hem naar Paddan-Aram weggezonden had; om zich van daar een vrouw te nemen; en als hij hem zegende dat hij hem geboden had zeggende: Neem geen vrouw uit de dochters van Kanaän.***
@@ -51,7 +51,7 @@ Zo treffen natuurlijke mensen, als zij God en mensen beledigd hebben, nooit de r
 
 Ezau meende hiermee de gunst van de vader te zullen herwinnen, maar berekent niet, dat hij daardoor nog meer dan hij gedaan heeft, tegen de goddelijke wetten zondigt. De polygamie was een schending van het huwelijk en zonde tegen Gods wet.
 
-## V. Vers 10-22. 
+## V. Vers 10-22
 Op zijn reis naar Haran, nog midden in Kanaän zich bevindende, overnacht Jakob in het open veld, en heeft hier het veelbetekenend droomgezicht van de ladder. God Zelf geeft hem de zegen van Abraham en belooft hem nog, hem te zullen behoeden op al zijn wegen, en ter rechter tijd in het land terug te brengen, dat hij nu gaat verlaten. Jakob gevoelt bij zijn ontwaken, ontzetting over de ondervonden nabijheid Gods; heiligt de steen, waarop zijn hoofd heeft gelegen; geeft aan de plaats, waar de openbaring hem ten deel geworden is, een veelbetekenende naam en verbindt zich tot de dienst des Heren.
 
 ***10. Jakob dan, nadat zijn vader hem gezegend had, toog uit 1) van Berséba, waar Izaak toen woonde (hoofdstuk. 26:33 vv.), en ging naar Haran. 2)***

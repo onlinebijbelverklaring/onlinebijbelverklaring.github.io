@@ -1,6 +1,6 @@
 TOREN TE BABEL, SPRAAKVERWARRING, GESLACHTEN VAN SEM.
 
-## I. Vers 1-9. 
+## I. Vers 1-9
 Van het Armenische hoogland wenden zich de nakomelingen van Noach naar de vlakte van het land Sinear tussen de Eufraat en de Tiger. Omdat ze dachten, dat zij wegens overbevolking zich spoedig zouden moeten verstrooien, wilden zij een middel- en verenigingspunt maken, in overmoed tot aan de wolken opklimmen, en door vereniging van alle mensenkrachten Hem, die in de Hemel woont, trotseren. Maar de Heere komt neer, verbreekt de nog aanwezige band van eenheid, die van de taal, de noodzakelijkste voorwaarde van een gemeenschappelijk handelen, en dwingt hen uit de valse eenheid tot verstrooiing.
 
 ***1. En de gehele aarde was, gedurende de eerste eeuw na de zondvloed, nog van één spraak en één taal, volgens de ouderen de Hebreeuwse, volgens de nieuwere een grondtaal, waaruit de latere, ook de Hebreeuwse, zich ontwikkeld heeft.***
@@ -63,7 +63,7 @@ Babel is steeds de tegenstelling van Jeruzalem of Zion. In Babel worden de talen
 
 Het heidendom is de verloren zoon, die de Vader, omdat hij niet langer in het vaderhuis onder opzicht, tucht en verzorging wil blijven, in de wijde wereld laat heengaan, wel wetende dat, als het vaderlijk erfgoed verteerd is, het zo ver zal gekomen zijn, dat hij zijn buik begeert te vullen met het draf van de zwijnen, de nood hem dwingen zal om de opengehouden en welbereide plaats in het vaderhuis te gaan opzoeken en verheugd en dankbaar in te nemen. De gift die de zoon uit het vaderhuis meeneemt, en die hij in de wellustige natuurgodsdienst verspilt, zijn de overblijfselen van de oorspronkelijke toestand en van de eerste godsverering; maar ook een ernstige en onafwijsbare tuchtmeester (Galaten. 3:24), de in het hart geschreven wet, (Romeinen 2:15), vergezelt hem op zijn dwaalwegen, ook bij de verste verwijdering en afdwaling verbindt hem nog één band aan het vaderhuis, die van de afstamming en van de verwantschap (Hand. 17:29), de behoefte, die zich gedurig opnieuw laat gelden, het verlangen naar de verloren vrede van het hart, dat zich nooit geheel laat vernietigen.
 
-## II Vers 10-26. 
+## II Vers 10-26
 Terwijl de overige geslachten van de mensen voor een tijd worden voorbijgegaan wordt het uitverkoren geslacht van Sem op de voorgrond gesteld, maar alleen in die leden, die de werkelijke dragers van de belofte Gods waren. Zo hebben wij de voortzetting van de geslachtstafel van de kinderen Gods voor ons, die met de Zondvloed was afgebroken. De leeftijd van de mensen vermindert eerst tot drie, daarna tot twee en ten laatste tot één vierde deel van die vóór de Zondvloed.
 
 ***10. a) Deze zijn de geboorten, geslachten, van Sem, de stamvader van de kinderen van God na de zondvloed; Sem was honderd jaar oud en gewon Arfachsad, twee jaar na de vloed, 1658 jaar na de wereldschepping.***
@@ -109,7 +109,7 @@ Telkens wordt slechts één zoon genoemd, omdat in deze de heilige linie wordt v
 (na de wereldschepping).
 11. Sem leefde 640 jaar, 1518-2158, 12. Arfachsad 438 jaar, 1658-2096, 13. Selah 433 jaar, 1693-2126, 14. Heber 464 jaar, 1723-2187, 15. Peleg 239 jaar, 1757-1996, 16. Rehu 239 jaar, 1787-2026, 17. Serug 230 jaar, 1819-2049, 18. Nachor 148 jaar, 1849-1997, 19. Therach 205 jaar, 1878-2083, 20. Abram 175 jaar, 2008-2183, 21. Izaak 180 jaar, 2108-2288, 22. Jakob 147 jaar, 2168-2315.
 
-## III. Vers 27-32. 
+## III. Vers 27-32
 Uit de zo-even meegedeelde geslachtslijsten worden de laatstgenoemden nog eens op de voorgrond gesteld, om zo de geschiedenis van Abram (hoofdstuk. 12) in te leiden.
 
 ***27. a) En deze zijn de geboorten van Terah. Terah gewon Abram, Nachor en Haran, naar ouderdom in omgekeerde orde Haran, Nachor en Abram; en Haran gewon Lot, (sluier, verborgene).***

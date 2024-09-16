@@ -1,6 +1,6 @@
 ZAAK HUWT REBEKKA.
 
-## I. Vers 1-9. 
+## I. Vers 1-9
 Drie jaren na Sara’s dood vordert Abraham van zijn oudste knecht een eed, dat hij voorzijn zoon geen vrouw van de dochters van de Kanaänieten nemen zal, maar uit zijn vaderland en zijn familie. De knecht vraagt in nauwgezetheid van geweten eerst, wat hem te doen stond, in geval de jonge dochter niet naar Kanaän wilde trekken, en legde daarop zijn eed af.
 
 ***1. Abraham nu was oud en welbedaagd; hij was reeds in het 140ste jaar van zijn leven, en de HEERE had Abraham in alles gezegend; 1) daarom dacht hij er ernstig over na, om zijn zoon met een gewenste vrouw verenigd te zien, die het gehele vrouwelijke bestuur over dat grote gezin kon nemen.***
@@ -63,7 +63,7 @@ a) Genesis 12:1 b) Genesis 12:7; 13:15; 15:18; 26:4, Exodus. 32:3 Deuteronomium.
 
 O, dat zijn gelukkige kinderen, die door hun ouders bij hun leven verzorgd worden. Weesjes vinden weinig trouw in de wereld. Hier en daar moge een vriend zijn; het vrome vaderhart, het liefhebbende moederhart is toch de beste vriend.
 
-## II. Vers 10-28. 
+## II. Vers 10-28
 De knecht vertrekt met tien kamelen en allerlei kostbaarheden naar Mesopotamië, naar de stad van Nachor; hij doet de kamelen neerknielen bij een waterput en bidt, dat de Heere, de God van Abraham, zelf hem het doel van zijn zending tegemoet voere; hij stelt een teken, waaraan hij de voor de zoon van zijn heer bestemde maagd zal kennen. Nauwelijks heeft hij zijn gebed beëindigd, of hij ziet de verhoring. Rebekka, Bethuëls dochter, komt tot de put en vervult door haar dienstvaardigheid het getelde teken; de knecht begiftigt haar; erkent haar, na naar haar afkomst gevraagd te hebben, voor de van God aangewezene, en verheft zijn lof en dankgebed tot de Heere.
 
 ***10. En die knecht nam tien kamelen van de kamelen van zijn heer, benevens de nodige mannen om ze te leiden (vs.32,54), en toog heen; en al het goed van zijn heer was in zijn hand, allerlei goederen nam hij mee, om die aan de toekomstige bruid en haar bloedverwanten ten geschenke te geven (vs.22,53), en hij maakte zich op en toog naar Mesopotamië, tussen de Eufraat en de Tiger gelegen, naar de stad van Nachor, dat is Haran (hoofdstuk. 11:31), waarheen hij een weg van 120-125 Duitse mijl had af te leggen.***
@@ -154,7 +154,7 @@ Ook hieruit blijkt de echte vroomheid van Eliëzer. Hij heeft gebeden, maar hij 
 
 1) Waarschijnlijk had ook Rebekka’s moeder een afzonderlijke tent gelijk Sara, ofschoon het ook mogelijk is, dat hier bedoeld wordt, dat Rebekka het eerst zich tot de moeder wendde, die dan in overleg met haar man, of op eigen gezag, Laban uitzond, om Eliëzer nachtverblijf aan te bieden.
 
-## III. Vers 29-61. 
+## III. Vers 29-61
 Als Rebekka haar ontmoeting verhaald heeft, gaat Laban, haar broeder, aanstonds naar buiten en haalt de vreemdeling met zijn kamelen binnen. Deze wil echter geen bete gebruiken, voordat hij zijn last volbracht heeft; hij deelt deze mee, verhaalt de gehele toedracht van de reis, en vraagt om antwoord. Laban erkent met de zijn Gods wonderbare leiding, schenkt zijn goedkeuring tot het huwelijk, en, daar de knecht de volgende morgen reeds afreizen wil, laat men aan de bruid zelf de beslissing over, of zij nu meetrekken of later volgen wil. Zij verklaart zich tot meetrekken bereid en verlaat onder zegenwensen het ouderlijk huis.
 
 ***29. En Rebekka had een broeder, wiens naam was Laban (de wijze); en Laban liep 1) tot die man naar buiten tot de fontein.***
@@ -290,7 +290,7 @@ Aan Rebekka werden twee dingen medegegeven: haar zoogster en de zegen Gods. Godd
 
 ***61. En Rebekka maakte zich op, na alzo gezegend te zijn, en van haar betrekkingen afscheid te hebben genomen, met haar jonge dochters, die men als haar dienstmaagden meegaf, en zij reden op kamelen, die Eliëzer medegebracht had, en volgden de man; en die knecht nam Rebekka onder zijn leiding en bescherming, en toog heen, de bruid met zich voerende, langs dezelfde weg, die eens Abraham op zijn tocht naar Haran bewandeld had (hoofdstuk. 12:5); het was ook in waarheid een Abrahams-tocht (Psalm. 45:11).***
 
-## IV. Vers 62-67. 
+## IV. Vers 62-67
 Terwijl het reisgezelschap Berséba bereikt, komt Izaak juist van de put Lachai-Róï, waar hij gebeden had; hij ziet in de verte de kamelen. Evenzo ziet Rebekka, dat een man hen op de weg tegemoet komt, en verneemt, op haar vraag, wie hij is; zij maakt zich tot de ontmoeting gereed en wordt door de bruidegom in de tent van zijn moeder geleid, om van nu aan zijn vrouw te zijn.
 
 ***62. Izaak nu kwam van daar men komt tot de put Lachai-Róï, die sedert Hagar’s ontmoeting (hoofdstuk. 16:14) in de familie als een plaats van goddelijke openbaringen beschouwd werd (hoofdstuk. 25:22); en hij woonde in het Zuiderland. 1)***

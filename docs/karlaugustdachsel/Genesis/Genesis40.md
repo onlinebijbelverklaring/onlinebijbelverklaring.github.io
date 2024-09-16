@@ -1,6 +1,6 @@
 JOZEF LEGT DE GEVANGENEN HUN DROMEN UIT.
 
-## I. Vers 1-23. 
+## I. Vers 1-23
 In de koninklijke staatsgevangenis, waarin Jozef gevangen is, worden na verloop van enige tijd ook de overste van de schenkers en de overste van de bakkers, die bij Farao in ongenade geraakt waren, geworpen, en aan Jozef wordt opgedragen hen te dienen. Zij hebben in één nacht ieder een bijzondere droom, en Jozef, in wie de Heere de wijsheid van een profetische geest gelegd had, verklaart hun die dromen. Gelijk hij het voorzegd heeft, zo geschiedt het: de overste van de schenkers wordt in zijn ambt hersteld, de overste van de bakkers opgehangen; de eerste vergeet Jozef en doet niets voor hem bij Farao.
 
 ***1. En het geschiedde na deze dingen, die in hoofdstuk. 39:7-20 verhaald zijn, dat de schenken, 1) de opperschenker (Nehemiah. 1:11; 2:1) van de koning van Egypte en de bakker, overste van de bakkers, zondigden 2) tegen hun heer, tegen de koning van Egypte.***

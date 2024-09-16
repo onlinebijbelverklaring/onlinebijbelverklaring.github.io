@@ -1,6 +1,6 @@
 SARA WORDT DOOR ABIMELECH ABRAHAM ONTNOMEN EN MET ERE WEERGEGEVEN.
 
-## I. Vers 1-7. 
+## I. Vers 1-7
 Te Gerar, waarheen Abraham na Sodom’s verwoesting zich begeeft, geeft hij Sara, even als vroeger in Egypte (hoofdstuk. 12:10 vv.), voor zijn zuster uit. Abimelech laat even als toen Farao, haar van zijn huis halen. God komt aanstonds tussenbeide en slaat de koning met een gevaarlijke ziekte, openbaart hem in de droom de ware gesteldheid van de zaak, en dringt hem om aan de profeet, waarvoor hij Abraham verklaart, zijn vrouw terug te geven, deze zou dan voor hem bidden, dat het gevaar waarin hij verkeerde, voorbij mocht gaan.
 
 ***1. En Abraham bleef, na de verwoesting van de vier steden, niet lang meer bij Hebron, maar reisde van daar, misschien om de smartelijke indruk, die de Dode zee bij hem opwekte, naar het land van het zuiden, en woonde, sloeg zijn tenten op voor zijn kudden en zijn gezin, tussen Kades en tussen Sur (Genesis 16:7,14); en hij verkeerde als vreemdeling te Gerar 1) (vreemdelingschap); hij zette zich neer in de hoofdstad van dat gebied, dat buiten het eigenlijke Kanaän lag.***
@@ -49,7 +49,7 @@ Als een gekende des Heren en als een voorbidder heeft de Schrift hem reeds getoo
 
 2) Heeft God in den beginne gezegd: "Gij zijt dood," om de overtreder vrees aan te jagen en zijn geweten te treffen, hier komt God met zijn bedreigingen, opdat toch zijn woord zal gehoorzaamd worden. Want indien Abimelech niet gehoorzaamt, zal hij ook zijn gezin in het verderf slepen.
 
-## II. Vers 8-18. 
+## II. Vers 8-18
 Abimelech ontbiedt Abraham in een vergadering, die hij de volgende morgen met zijn hovelingen houdt; verwijt hem zijn handelwijze, waardoor hij over hem en zijn rijk een grote zonde zou gebracht hebben; geeft hem Sara met aanzienlijke geschenken terug, en wordt nu op Abrahams voorbede van de plaag, waarmee hij en zijn heer geslagen was, weer vrij.
 
 ***8. Toen stond Abimelech ‘s morgens vroeg op, om het goddelijk bevel zo spoedig mogelijk te volbrengen, en riep al zijn knechten, zijn hofbeambten en dienaars tezamen, en sprak al deze woorden, die de Heere met hem in de droom gesproken had, de ontvangen bestraffing en terechtwijzing, voor hun oren. En die mannen vreesden zeer, 1) zij werden door de rede van de koning zo getroffen, dat zij erkenden met de levende God te doen te hebben, en alles te moeten doen, om de misslag te herstellen.***

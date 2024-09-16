@@ -151,7 +151,7 @@ Een van de moeilijkste en meest ingewikkelde geschiedenissen is ons hier verhaal
 
 De zegening van Jakob is de prediking van Christus onder alle volken. De wet en de profetie is in Izaak.
 
-## II. Vers 30-40. 
+## II. Vers 30-40
 Nauwelijks heeft Izaak zijn zegen over Jakob uitgesproken, of Ezau keert van de jacht terug en brengt de vader de verlangde spijze. Daar bemerkt hij, dat hij, als onwillig werktuig in ‘s Heren hand, aan een ander de zegen heeft moeten geven, dan aan wie hij die toegedacht heeft, en dat hij die niet terugnemen kan. Ezau is zeer bedroefd en vraagt nog om een zegen; hem wordt ten minste nog een vruchtbare woonplaats toegezegd en het uitzicht gegeven, zich eens van zijn broeders juk te bevrijden.
 
 ***30. En het geschiedde, als Izaak voleindigd had Jakob te zegenen, zo geschiedde het, toen Jakob, wie het beloofde land en de wereldlijke regering en het geestelijk priesterschap was toegezegd, maar even van het aangezicht van zijn vader Izaak uitgegaan was, 1) dat Ezau zijn broeder van zijn jacht kwam. Hij kwam, volgens Gods bijzondere leiding, geen ogenblik vroeger, opdat de zegening niet zou gestoord worden, maar ook geen ogenblik later, opdat Rebekka en Jakob zouden weten, hoe makkelijk hun list zou hebben kunnen mislukken (Rom.9:16).***
@@ -216,7 +216,7 @@ Wat hier tot Ezau gezegd wordt, is geen zegen, maar een voorspelling. En die voo
 
 2) Na lange onafhankelijkheid werden de Edomieten door Saul overwonnen (1 Samuel 14:47), door David onderworpen (2 Samuel 8:14); en bleven, ondanks hun opstand onder Salomo (1 Koningen 11:14 vv.), onderdanen van het rijk van Juda tot op Joram, toen zij afvielen; door Amazia werden zij weer onderworpen (2 Koningen. 14:7, 2 Kron.25:11 vv.) en moesten ook van Uzia en Jotham afhankelijk blijven (2 Koningen. 14:22. 2 Kron.26:2); eerst onder Achaz, schudden zij het juk geheel af (2 Koningen. 16:6, 2 Kron.28:17 ). Omtrent het jaar 129 voor Christus werden zij door Johannes Hyrkanus op nieuw overweldigd, tot de besnijdenis gedwongen, en bij de Joodse staat ingelijfd; toch stichtten zij eerst later door Antipater en Herodes een Idumesche Dynastie over Judea, die tot de ondergang van de Joodse staat zich heeft staande gehouden.
 
-## III. Vers 41-Hoofdstuk 28:5. 
+## III. Vers 41-Hoofdstuk 28:5
 Omdat Ezau vervuld is met de gedachte, om zijn broeder te doden, spoort Rebekka Jakob aan naar haar broeder Laban te vluchten; zij weet het bij Izaak zo te leiden, dat hij zelf Jakob naar Mesopotamië zendt, om zich van daar een vrouw te halen en dat hij hem met zijn zegen laat heengaan.
 
 ***41. En Ezau, in plaats van in dit alles Gods hand te zien, en zich te verootmoedigen, haatte Jakob om die zegen, waarmee zijn vader hem gezegend had; en Ezau zei in zijn hart, en anderen bemerkten welk voornemen hij had: De dagen van de rouw van mijn vader naderen, en ik zal mijn broeder Jakob doden; 1)mijn vader wil ik niet bedroeven; ik zal wachten totdat die gestorven is, dan zal mijn moeder dubbele rouw dragen.***

@@ -1,6 +1,6 @@
 ABRAHAMS TWEEDE HUWELIJK. ISMAELS EN ISAAK’S ZONEN.
 
-## I. Vers 1-11. 
+## I. Vers 1-11
 Abraham neemt Ketûra tot vrouw, verwekt zes zonen bij haar, die hij, als zij groot geworden zijn, met geschenken laat heengaan. Hij bereikt een ouderdom van 175 jaar, en wordt door Izaak en Ismaël in de spelonk van Machpéla begraven.
 
 ***1. En Abraham voer voort, en nam, nadat hij voor Izaak gezorgd had (hoofdstuk. 24) om zijn dagen niet eenzaam te Hebron te moeten doorbrengen, een vrouw, 1) wier naam was Ketûra (reukwerk).***
@@ -61,7 +61,7 @@ a) Genesis 49:29-32; 50:12 vv.
 
 Lag er in de keuze van deze plek als tijdelijk woonoord wellicht ook de bedoeling, om aldus de aanraking met zijn broeder Ismaël en diens zonen gemakkelijk te maken? Het gebeurt meer, dat men juist aan het graf het pijnlijke, dat er ligt in de verwijdering van broeders, dieper gaat gevoelen en, teruggekeerd van het graf, dit zoekt te veranderen. Twee zaken mogen wij veilig veronderstellen: èn dat Isaak’s vredelievend en stil karakter wel naar zo iets uitging, èn dat de bron Lachai-Róï, zo vermaard door Hagar’s wonderbare ontmoeting, daartoe een geschikte gelegenheid kon aanbieden. Want Hagar’s afstammelingen zouden juist deze bron in ere houden en gewis menigmaal daarheen opkomen.
 
-## II. Vers 12-18. 
+## II. Vers 12-18
 Tot besluit van Abrahams geschiedenis, wordt nog de vervulling van de belofte omtrent Ismaël (hoofdstuk. 17:20) aangewezen in de 12 van deze zoon afstammende vorsten.
 
 ***12. Dit nu zijn de geboorten van Ismaël, de zoon van Abraham, die Hagar, de Egyptische dienstmaagd van Sara, Abraham gebaard heeft.***
@@ -86,7 +86,7 @@ Tot besluit van Abrahams geschiedenis, wordt nog de vervulling van de belofte om
 
 De twaalf zonen van Ismaël, die naar de voorspelling tot vorsten van gehele volksstammen geworden zijn, komen overeen met de twaalf stammen van Israël; de zegen van Ismaël, die ook Abrahams zaad is en goddelijke beloften ontvangen heeft, is een afschijnsel van Israël’s zegen. Vrgl. hoofdstuk. 21:13,18
 
-## III. Vers 19-26. 
+## III. Vers 19-26
 De onvruchtbare Rebekka wordt in het 20ste jaar van haar huwelijk op Isaak’s voorbede zwanger; zij verkrijgt, bij een omstandigheid in haar zwangerschap, bekendmaking van het lot van de beide volken, die uit haar zullen voortkomen, en wordt van tweelingen verlost, van welke de een harig, de ander als hielhouder ter wereld komt, waarom men de eerste Ezau, de andere Jakob noemt.
 
 ***19. Dit nu zijn de geboorten van Izaak, de zoon van Abraham, die van nu aan de hoofdpersoon in de Heilige geschiedenis is; Abraham gewon Izaak uit Sara, zijn wettige vrouw, toen hij 100 jaar oud was. (hoofdstuk. 21:5).***
@@ -133,7 +133,7 @@ Mozes leert hier, dat de inwendige strijd tot de geboorte toe voortgeduurd heeft
 
 ***26. En daarna kwam zijn broeder uit, wiens hand Ezau’s hiel vasthield, als wilde hij de broeder terughouden en zelf de eerstgeborene worden; daarom noemde men zijn naam Jakob; dat, is verzen of hielhouder, en werkelijk is later in zijn karakter sluwheid op te merken, die de tegenstander in de strijd gaarne aan het been houdt om hem onverwachts ten val te brengen (hoofdstuk. 27:36; Hosea 12:4). En Izaak was zestig jaar oud, toen hij hen gewon, dat is in het jaar 2168 na de wereldschepping, 1832 voor Christus’ geboorte, 15 jaar voor Abrahams dood.***
 
-## IV. Vers 27-34. 
+## IV. Vers 27-34
 Met het opgroeien van de knapen gaan zij reeds van elkaar; ieder kiest zich een beroep, overeenkomstig zijn aard. Ezau wordt een ronddwalend jager; Jakob is als herder binnen de tenten bezig. Maar ook in ander opzicht komt de voorspelling reeds tot vervulling; want Jakob weet een gunstig ogenblik zich ten nut te maken, om van zijn broeder het eerstgeboorterecht te kopen.
 
 ***27. Als nu deze jongeren groot werden, werd Ezau, naar zijn natuur, die meer tot het wild omzwerven dan tot het stille herdersleven geschikt was, een man, verstandig op de jacht, gelijk vroeger Nimrod (hoofdstuk. 10:9) een veldman, 1) die niet veel te huis bleef, maarliever buiten in velden, op bergen en door bossen het wild opzocht; maar Jakob werd een oprecht 2) man, wonende in tenten, zorg dragende voor huishoudelijke zaken en bij het vee van zijn vader een stil leven leidende.***

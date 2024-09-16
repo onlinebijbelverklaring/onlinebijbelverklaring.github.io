@@ -1,6 +1,6 @@
 ABRAHAM REDT LOT EN WORDT DOOR MELCHIZEDEK GEZEGEND.
 
-## I. Vers 1-16. 
+## I. Vers 1-16
 In een krijgstocht, die Kedor Laómer van Elam met zijn bondgenoten tegen de van hem afgevallen koningen van het Siddimdal onderneemt, wordt Lot gevangen weggevoerd. Abram ijlt met zijn knechten en verbondenen de zegevierende koning achterna, en bevrijdt niet alleen zijn neef uit diens geweld, maar brengt ook alle overige gevangenen terug.
 
 ***1. En het geschiedde 1) in de dagen van Amrafel (veroveraar), de koning van Sinear, Babylonië (hoofdstuk. 11:2), waar Nimrod een wereldrijk gesticht had (hoofdstuk. 10:10), maar dat thans tot een heerschappij over deze landstreek alleen was verminderd; van Arioch (de Ariër: Arïa, een stad in Perzië), de koning van Ellasar, waarschijnlijk Artemita in zuidelijk Assyrië, ten noorden van Babylonië; van Kedor-Laómer (band voor een schoof) de koning van Elam of Elymaïs aan de Perzische golf (hoofdstuk. 10:22), en van Tideal (verering), de koning van de volkeren, van de Gojim, heidenen, welke waarschijnlijk in het land woonden, dat later Galilea van de volken (MATTHEUS. 4:15) heette.***
@@ -87,7 +87,7 @@ Aan het geloof van Abram moet toegeschreven worden, dat hij een talrijk en goed 
 
 Deze niet gezochte en evenwel duidelijk gebleken overwinning maakt Abram tot heer en meester van het gehele omliggende land, ook van de landstreek, die Lot zich ter woning had gekozen. Geheel de Jordaanvlakte was naar recht van overwinning, thans het eigendom van Abram. Zo werd aan hem aanvankelijk reeds de belofte Gods vervuld en ontving hij in een ongezochte aanleiding voldoende reden, om God steeds meer te geloven. Zo doet de Heere altijd.
 
-## II. Vers 17-24. 
+## II. Vers 17-24
 De koning van Sodom en Melchizedek, koning van Salem, komen de terugkerende Abram tegemoet. Melchizedek, tevens een priester Gods, zegent hem. Abram geeft hem van alles de tienden. De koning van Sodom biedt hem de veroverde have voor zijn hulp; Abram weigert alles.
 
 ***17. En de koning van Sodom toog uit, hem tegemoet 1) (nadat hij wedergekeerd was van het verslaan van Kedor-Laómer en van de koningen, die met hem waren), om hem geluk te wensen en te danken, en over de buit met hem te onderhandelen, tot het dal Schave (vlakte), dat is: het dal van de koning.***

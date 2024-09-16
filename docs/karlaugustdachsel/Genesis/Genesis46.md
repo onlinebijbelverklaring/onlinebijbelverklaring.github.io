@@ -134,7 +134,7 @@ De ware kerk van God is een klein hoopje, niemand ergere zich daaraan; God kent 
 
 De zo nauwkeurige opsomming van Jakob’s geslacht dient, om de onverbrekelijke eenheid van het volk van het Verbond te doen uitkomen.
 
-## III. Vers 28-Hoofdstuk 47:12. 
+## III. Vers 28-Hoofdstuk 47:12 
 Aan de grenzen van Egypte gekomen, zendt Jakob Juda vooruit, opdat Jozef hem het land Gosen zal aanwijzen. Als hij in dat land binnengetrokken is, komt Jozef, om hem te begroeten en weende lang aan zijn hals; daarop geeft hij de broeders aanwijzing, hoe zij zich tegenover Farao te gedragen hebben; stelt aan deze vijf van zijn broeders en zijn grijzen vader voor, en verzorgt nu, nadat de koning Gosen als woonplaats heeft toegestaan, de zijnen, gedurende de nog overige jaren van de honger.
 
 ***28. Nadat Jakob de 40-50 mijl lange weg afgelegd had, stond hij aan de grenzen van Egypte, en hij zond Juda 1) voor zijn aangezicht heen tot Jozef, om voor zijn aangezicht aanwijzing te doen naar Gosen, opdat Jozef hem nader zou verklaren, waar hij, volgens zijn uitnodiging (hoofdstuk 45:10) wilde, dat zijn familie haar woonplaats hebben zou; en nadat zij de nodige aanwijzing ontvangen hadden, kwamen zij in het land Gosen. 1)***

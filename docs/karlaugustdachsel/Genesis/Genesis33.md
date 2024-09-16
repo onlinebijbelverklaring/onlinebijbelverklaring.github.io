@@ -1,6 +1,6 @@
 VERZOENING VAN JAKOB MET EZAU.
 
-## I. Vers 1-16. 
+## I. Vers 1-16
 Jakob ziet Ezau met de vierhonderd mannen nader komen; hij plaatst zijn vrouwen en kinderen naar volgorde en stelt zichzelf vooraan; hij nadert zijn broeder met een zevenmaal herhaalde diepe buiging. Ezau, in plaats van hem als een vijand te ontmoeten, is geheel veranderd, valt hem om de hals, kust hem, en nadat hij aan zijn borst heeft uitgeweend, vraagt hij deelnemend naar de zijnen, en neemt, eerst na veel afwijzen, het geschenk aan, en biedt zich aan tot geleider, wat Jakob echter met behoedzaamheid afwijst.
 
 ***1. En Jakob, als hij weer bij de zijnen gekomen was, (hoofdstuk. 32:21-24) hief zijn ogen op en zag; en ziet, Ezau kwam en vierhonderd mannen met hem, zoals hem de vorige dag geboodschapt was (hoofdstuk. 32:6). Toen verdeelde hij, hoewel nu niet in de angst, als waarmee hij de vorige dag dit gedaan had (hoofdstuk. 32:7), en ook met een ander doel, de kinderen onder Lea (Ruben, Simeon, Levi, Juda, Issaschar, Zebulon en Dina), en onder Rachel (Jozef), en onder de twee dienstmaagden (onder Bilha, Dan en Naftali, onder Zilpa, Gad en Aser).***
@@ -103,7 +103,7 @@ Jakob’s handelwijze herinnert ons aan het woord; "zoveel in u is, houdt vrede 
 
 Och, Heere! ontruk mijn voet aan de strik van satan, geef mij geduld om te verdragen, liefde om de verkeerdheden van anderen te overwinnen, opdat ik over hen zegeviere, niet door toorn, maar door zachtmoedigheid, niet door verwijt, maar door onderwerping, niet door vleselijke wapens, maar door het gebed.
 
-## II. Vers 17-20. 
+## II. Vers 17-20
 Na van Ezau afscheid genomen te hebben, trekt Jakob naar Sukkoth en blijft daar een geruime tijd, waarschijnlijk om van de vermoeienissen van de reis zijn kudden te laten bekomen; vervolgens zet hij zich te Sichem neer, en koopt hij daar van de kinderen van Hemor het stuk land; waarop later het gebeente van Jozef begraven is Jozua 24:32)
 
 ***17. Maar Jakob van zijn zijde (vs.16) reisde aan de oostzijde van de Jordaan in noordelijke richting, naar Sukkoth, naar die streek, van de vlakte Abu-Obeida, waar later de stad Sukkoth (Jozua 13:27; Richteren. 8:4 vv.) lag en hij bouwde een huis voor zich, 1) en maakte hutten voor zijn vee, omtuiningen, met overdekte plaatsen, waar het kon schuilen voor de zonnestralen; daarom noemde hij de naam van die plaats Sukkoth (tenten, hutten).***

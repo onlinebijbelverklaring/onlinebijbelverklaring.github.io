@@ -1,6 +1,6 @@
 AAN ABRAHAM WORDT NOGMAALS IZAAK BELOOFD, EN TEVENS DE VERDELGING VAN SODOM GEOPENBAARD.
 
-## I. Vers 1-15. 
+## I. Vers 1-15
 Bij een bezoek, dat de Heere in gezelschap van twee Engelen aan Abraham in zijn tent geeft, wordt aan Sara beloofd, dat zij binnen een jaar een zoon zal hebben. Zij lacht, even als Abraham bij de hem gegevene aankondiging deed (hoofdstuk. 17:16 vv.) en ontvangt daarover een beschamende terechtwijzing.
 
 ***1. Daarna, spoedig na de vorige openbaring (hoofdstuk. 17), verscheen hem de HEERE aan de eikenbossen van Mamre, bij Hebron (hoofdstuk. 13:18), als hij in de deur van de tent zat, die hij onder de schaduw van een grote terpentijnboom opgeslagen had, toen de dag heet werd. Hij zat daar, om door de koele schaduw van de boom beschermd te zijn tegen de hitte van de zon, en de voorbijtrekkende reizigers, die een herberg en verkwikking nodig hadden, deze aan te bieden (Hebr. 13:2). Daar zat Abraham in stille gedachten verdiept over hetgeen de Heere met hem gesproken en hem beloofd had.***
@@ -95,7 +95,7 @@ a) MATTHEUS. 19:26 Luc. 1:37
 
 2) Ook het ongeloof dat in het binnenste verborgen was, moest aan het licht gebracht worden, opdat zij nu zou bevestigd worden in het geloof; alle ongeloof moet eerst beschaamd worden en tot zonde worden zal het waar geloof in u kunnen opstaan. Na die zo ernstige terechtwijzing zweeg Sara en haar zwijgen is schuldbelijdenis. Nu heeft zij ondervonden en zij ziet in, dat Hij, die de belofte gaf, de Ziener van het verborgene, de Kennen van het hart was, wiens woord "Ja" en "Amen" is; nu kwam zij tot geloof aan de belofte en ontving daardoor kracht, om boven de tijd van haar ouderdom te ontvangen en te baren (Hebr. 11:11) (Luc. 1:20-38, 4, 5); en alzo is zij een voorbeeld van de vrije kerk van het Nieuwe Testament (Galaten. 4:22, 27, 31) en een moeder van de gelovigen (1 Petrus. 3:6) geworden.
 
-## II. Vers 16-33. 
+## II. Vers 16-33
 De drie hemelingen maken zich gereed om heen te gaan, en Abraham leidt hen uit. De Heere openbaart hem, wat Hij met Sodom en Gomorra, het doel van de reis, voor had. Terwijl de Engelen verder trekken, bidt Abraham voor de tot verderf bestemde steden, en verkrijgt de toezegging, dat zij gespaard zullen worden, indien er ook slechts tien rechtvaardigen in gevonden worden.
 
 ***16. Toen het doel bereikt was en ook Sara, gelijk vroeger (hoofdstuk. 17) Abraham met het raadsbesluit Gods bekend was gemaakt, en tot verwezenlijking daarvan bereid; stonden die mannen 1) op van daar, en zagen naar Sodom toe, want daarheen was het verdere doel van de reis; en Abraham ging met hen, om hen te geleiden, en alzo nog langer het bijzijn des Heren te genieten.***

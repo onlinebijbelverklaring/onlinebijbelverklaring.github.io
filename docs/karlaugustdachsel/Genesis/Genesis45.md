@@ -1,6 +1,6 @@
 JOZEF MAAKT ZICH AAN ZIJN BROEDERS BEKEND.
 
-## I. Vers 1-15. 
+## I. Vers 1-15
 Juda’s woord heeft de tederste liefde jegens de vader en de meest opofferende trouw jegens de enig overgebleven zoon van Rachel geopenbaard. Jozef, daardoor diep getroffen, kan zich niet langer inhouden; hij laat de vreemden uitgaan, breekt in tranen los en maakt zich aan zijn broeders bekend. Deze worden door het woord: "Ik ben Jozef" zo getroffen, dat zij geen woord kunnen voortbrengen; eerst, nadat Jozef hun, hetgeen zij gedaan hadden, tot driemaal toe, als een leiding van God heeft voorgesteld, die tot hun eigen welzijn dienen moest, en hen allen gekust heeft, zijn zij in staat een woord met hem te spreken.
 
 ***1. Toen Juda, uit zijn van liefde en leed, van smart en boete overvloeiend hart, die treffende woorden sprak, en eindelijk zijn stem in tranen stikte, kon zich Jozef niet langer bedwingen 1) voor allen, die bij hem stonden (Hoofdstuk44), en hij riep: Doet allen van mij uitgaan! 2) Aan Jozefs bevel werd gehoorzaamd, en er stond niemand bij hem, als Jozef, gelijk vervolgens gemeld wordt, zich aan zijn broeders bekend maakte. 3)***
@@ -83,7 +83,7 @@ a) Hand.7:14
 
 2) En wat zullen zij met hem gesproken hebben? Zonder twijfel zullen zij bekend hebben: dat hun misdaad hen; als een ban, op hun ziel gelegen heeft; wat angst zij uitgestaan hebben, maar hoe zij graag die angst nogmaals en nogmaals zouden verduren, om tot zulk een verzoening als de tegenwoordige te komen; hoe zij nu de Heere loven vanwege Zijn wonderbare wegen.
 
-## II. Vers 16-28. 
+## II. Vers 16-28
 Ook tot Farao’s oren dringt het door, wat bij Jozef voorgevallen is; hij neemt zozeer daarin deel, dat hij Jozef beveelt, zijn vader en zijn gehele familie naar Egypte te laten overkomen, en geeft daartoe de nodige wagens. De broeders van Jozef keren hierop naar Kanaän terug; in het begin gelooft Jakob hun woorden niet, totdat hij eindelijk mede door de Egyptische wagens van de waarheid overtuigd wordt: nu vervult hem een brandend verlangen, om zijn zoon, die hij verloren gewaand had, weer te zien.
 
 ***16. Als dit gerucht in het huis van Farao gehoord werd, 1) dat men zei: Jozefs broeders zijn gekomen, was het goed in de ogen van Farao, wiens vertrouwen op Jozef hoe langer hoe meer tot werkelijke liefde, en vriendschap geworden was, zodat hij hem als een vader beschouwde (vs.8) en evenals voor de koning, was het ook verblijdend in de ogen van zijn knechten, die ook van hun zijde hem toegenegen waren. Wie zou ook Jozef niet liefhebben?***

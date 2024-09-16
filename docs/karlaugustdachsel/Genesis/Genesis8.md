@@ -1,6 +1,6 @@
 DE ZONDVLOED NEEMT EEN EINDE.
 
-## III. Vers 1-14. 
+## III. Vers 1-14
 Even schilderachtig als te voren het stijgen der wateren, wordt nu het allengs afnemen beschreven, totdat de gehele aarde droog is geworden. Het dagboek van Noach, die alles nauwkeurig bijgehouden heeft, ligt als opengeslagen voor ons.
 
 ***1. En God gedacht, 1) na verloop van 40 dagen, waarin de wateren nog altijd gezwollen waren, (hoofdstuk. 7:17 vv.) aan Noach, en aan al het gedierte, en aan al het vee, dat met hem in de ark was, 2) wendde zich nu met zijn zorg in het bijzonder tot hem en tot alles wat in de ark was; en God deed een wind 3) over de aarde doorgaan, dat deze de wolken weer ophield, de wateren terugdrong en een uitdamping van het water bewerkte; en de wateren werden stil, hielden op met zich te verheffen.***
@@ -57,7 +57,7 @@ Ook de rechtvaardige kent het leven van zijn dieren, daarom voor de eerste maal 
 
 Gaan wij uit van het menselijk geslacht en de aarde als een geheel, dan is de vloed de scheiding tussen het oude en het nieuwe. De oude aarde met de vleesgeworden mens wordt verdelgd; maar deze verdelging is de redding van de rechtvaardige, van Noach, terwijl hij van de verderfelijke gemeenschap van het vlees verlost wordt. Daarom lezen wij in 1 Petrus. 3:20: acht zielen werden gered door het water, en wordt in vs. 21, de vloed als een voorbeeld van de doop genoemd. Het water van de vloed is daarom de doop van de aarde, die het oude verdrinken doet en het nieuwe behoudt en levend maakt.
 
-## IV. Vers 15-9:17. 
+## IV. Vers 15-Hoofdstuk 9:17
 Nu Noach lang genoeg in zijn ark heeft gewacht, ontvangt hij bevel haar te verlaten. Hij doet het, brengt de Heere een offer, en Deze zegent de aarde en het menselijk geslacht opnieuw en richt met alle levenden Zijn verbond op, opdat er voortaan geen zondvloed meer komen zal, om de aarde te verderven.
 
 ***15. Toen sprak God tot Noach, die nu een jaar en tien dagen in de ark geweest was, maar deze toch niet eer verlaten mocht, noch wilde, voordat hij het uitdrukkelijkbevel daartoe ontvangen had, zeggende:***

@@ -1,6 +1,6 @@
 JOZEF WORDT UIT NIJD DOOR ZIJN BROEDERS VERKOCHT.
 
-## I. Vers 1-11. 
+## I. Vers 1-11
 De voorspelling, aan Abraham gedaan, (hoofdstuk. 15:13 vv.), dat het uitverkoren geslacht in een ander land vreemd zou zijn, begint met Jozef vervuld te worden. Hij is een jongeman van 17 jaar vol van voortreffelijke aanleg, met een open oog voor de hogere, onzichtbare wereld; maar hij heeft loutering nodig, daarom baant God hem een weg door de school van lijden en vernedering.
 
 ***1. En Jakob, nadat hij reeds in hoofdstuk. 35:27 in het land van zijn erfgoed gekomen was, woonde, afgezonderd van zijn broeder, die het gebergte van Edom bezet had (hoofdstuk. 36:6-8), in het land van de a) vreemdelingschap van zijn vader, in het land Kanaän, 1) en wel te Mam bij Hebron.***
@@ -85,7 +85,7 @@ a) Hand.7:9
 
 Dit kan ook vertaald worden: Hij bepaalde zijn aandacht bij dit woord.
 
-## II. Vers 12-36. 
+## II. Vers 12-36
 De nijd van de broeders, door de voorliefde van de vader opgewekt, en door de beide dromen tot een dodelijke haat geworden, vindt spoedig gelegenheid tot bevrediging. Terwijl Jozef, volgens zijn vaders bevel tot hen komt, besluiten zij hem te doden; Ruben beweegt hen, dat zij hem niet doden, maar in een kuil werpen. Zij verkopen hem aan Ismaëlitische kooplieden en zenden nu zijn in het bloed van een geitenbokje gedoopte rok tot de vader, met de boodschap, dat zij deze in zulk een toestand gevonden hadden; een wild dier moest Jozef verscheurd hebben. Jakob is troosteloos over het vermeende verlies van zijn lievelingszoon; deze wordt naar Egypte gevoerd, om daar als slaaf verkocht te worden.
 
 ***12. En zijn broeders gingen uit de omtrek van Hebron heen, om de kudde van hun vader te weiden bij Sichem, waar deze een grondbezitting had (hoofdstuk. 39:19).***

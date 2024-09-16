@@ -1,6 +1,6 @@
 JAKOBS TESTAMENT TEN AANZlEN VAN EFRAIM EN MANASSE.
 
-## I. Vers 1-22. 
+## I. Vers 1-22
 Enige tijd later wordt Jozef gemeld, dat zijn vader ziek is; hij begeeft zich met zijn beide zonen tot hem. Jakob schenkt aan deze de aartsvaderlijke zegen, waarbij hij hen als zijn kinderen aanneemt, aan de jongsten echter de voorrang boven de oudste gevende.
 
 ***1. Het geschiedde nu na deze dingen, na het meegedeelde, (hoofdstuk 47:29 vv.), toen Jakob zijn spoedige dood reeds tegemoet zag, dat men Jozef zei: Zie, uw vader is ziek! Toen nam 1) hij zijn twee zonen, die zekerruim 20 jaar oud waren, met zich, Manasse en Efraïm.***

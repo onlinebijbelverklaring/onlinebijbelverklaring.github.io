@@ -1,6 +1,6 @@
 JOZEFS BROEDERS KOMEN IN GROTE ANGST.
 
-## I. Vers 1-13. 
+## I. Vers 1-13
 Vóór de aftocht laat Jozef heimelijk zijn beker in Benjamins zak leggen, en beveelt vervolgens aan zijn huismeester hen na te ijlen, en die terug te halen, in wiens zak de beker zou gevonden worden. Hij wil zien, wat de broeders doen of zij Benjamin prijsgeven, en verder naar huis zullen trekken, of dat zij bereid zullen zijn, met lichaam en leven voor vaders lieveling in te staan.
 
 ***1. En hij, nadat het middagmaal was afgelopen, en hun nu het koren wilde geven, waarom zij gekomen waren, gebood degene die over zijn huis was, zeggende: Vul de zakken van deze mannen met spijze, zoveel zij zullen kunnen dragen en leg, evenals de eerste maal (hoofdstuk. 42:25), ieders geld in de mond van zijn zak.***
@@ -51,7 +51,7 @@ De knecht van Jozef laat de nadruk vallen op "ook," maar verzacht de straf door 
 
 Zo groot is hun droefheid, zo verpletterd zijn zij, dat zij nu geen enkele klacht aanheffen, geen enkel woord van verontschuldiging meer aanbieden. Zij scheuren hun klederen en buigen het hoofd onder de kastijding van God. Zij voelen het, dat de hand van God hierin merkbaar is, en daarom wensen zij niet anders, dan zich onder die slaande hand te buigen.
 
-## II. Vers 14-34. 
+## II. Vers 14-34
 Als de broeders weer voor Jozef verschijnen, die, in angstige verwachting naar de uitslag, thuis gebleven was, werpen zij zich voor hem neer; zij denken er niet aan, hun onschuld te verdedigen, daar zij in deze gebeurtenis de wraak van God voor hun vorige misdaad erkennen. Jozef verklaart, op hun aanbod, dat zij allen zijn knechten willen zijn, slechts hem terug te kunnen houden, bij wie de beker gevonden was. Juda schildert nu met aangrijpende woorden de liefde van de vader voor de jongeling, en de onuitsprekelijke jammer, die door het verlies van de geliefde zoon hem treffen zou; hij bericht, hoe hij zelf voor de knaap borg geworden is, en smeekt nu ook, hem in Benjamins plaats tot slaaf te willen aannemen.
 
 ***14. En Juda, 1) die voor Benjamin borg gebleven was (hoofdstuk. 43:9), en de op zich genomen plicht getrouw wilde volbrengen, kwam met zijn broeders, toen zij weer in de stad gekomen waren, in het huis van Jozef, want hij was nog zelf aldaar; hij was nog niet naar de plaats van het verkopen gegaan, maar wachtte hen in zijn eigen woning, te midden van zijn beambten; en zij vielen, als wanhopig, voor zijn aangezicht neer ter aarde. 2)***

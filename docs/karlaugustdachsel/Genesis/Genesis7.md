@@ -1,6 +1,6 @@
 DE ZONDVLOED KOMT.
 
-## I. Vers 1-16. 
+## I. Vers 1-16
 Te rechter tijd ontvangt Noach de aanwijzing van God, om in de Ark te gaan; hij volgt het bevel en de vloed begint, als hij reeds met alles wat uitverkoren was, om gered te worden, een veilige plaats en onder goddelijke bewaring zich bevindt.
 
 ***1. Daarna zei de HEERE, Jehova, de verbondsgod, nadat Hij aan het einde van de 120 jaar Methúsalach en vijf jaar eerder Lamech door een zalige dood uit deze wereld had geroepen, tot Noach: Ga gij nu en uw gehele huis in de ark; want 1) u heb Ik gezien rechtvaardig a) voor mijn aangezicht in dit geslacht, rechtvaardig te midden van zo veel goddelozen; Ik zal u redden en uit u een nieuw geslacht doen voortkomen.***
@@ -67,7 +67,7 @@ Welk een heerlijk bewijs van de trouw van God, van Zijn heilige zorg voor de Zij
 
 O Jezus! mijn trouwe Heiland, ik ga in mijn slaapkamertje; ik wil mij ter ruste neerleggen, sluit Gij Zelf de deur achter mij.
 
-## II. Vers 17-24. 
+## II. Vers 17-24
 Op schilderachtige wijze wordt de vloed nader beschreven, hoe de wateren steeds hoger en hoger stijgen, totdat zij ten laatste 15 el boven alle hoge bergen der aarde staan; zij dragen de ark zo hoog over de bergen, dat zij nergens kan vast blijven zitten en verdelgen alle wezens, die op het land leven, van de aarde.
 
 ***17. En die vloed was veertig dagen op de aarde, nadat de Heere achter Noach toegesloten had, en de wateren vermeerderden en hieven de ark op, zodat zij oprees boven de aarde; in die eerste dagen werd de ark vlot gemaakt, zonder dat hij toch wegens zijn zwaarte zich voortbewoog.***

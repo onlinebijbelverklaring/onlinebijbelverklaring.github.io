@@ -1,6 +1,6 @@
 HAGAR BAART ISMAËL.
 
-## I. Vers 1-6. 
+## I. Vers 1-6
 Saraï geeft haar dienstmaagd Hagar aan Abram tot een bijvrouw, om uit haar gebouwd te worden: deze wordt zwanger, verheft zich daarom boven haar meesteres en gaat, als zij daarom gestraft wordt, op de vlucht.
 
 ***1. Doch Saraï, Abram’s vrouw, die reeds bij haar verblijf in Kanaän voor onvruchtbaar werd behouden (hoofdstuk. 11:30), baarde, ook de eerste vijf jaar na het gezicht, waarin aan Abram een erfgenaam beloofd was (hoofdstuk 15:4), hem niet. Toen gaf zij ten laatste de hoop op, om nog moeder te worden; en zij had een Egyptische dienstmaagd (zie "Ge 12.16), wier naam was Hagar (vlucht).***
@@ -45,7 +45,7 @@ Wat Saraï ontbrak, was niet het geloof in de belofte des Heren, maar het juiste
 
 Het brengt enkel onheil te weeg, als men door vleselijke middelen, al is het met een goed doel, des Heren voornemen wil ten uitvoer brengen.
 
-## II. Vers 7-14. 
+## II. Vers 7-14
 Op weg naar haar land verschijnt de Engel des Heren aan Hagar, beweegt haar tot terugkeren, en voorzegt, wat er van het kindje worden zal, dat zij onder het hart draagt.
 
 ***7. En de Engel 1) des HEREN, van een gewone Engel wel te onderscheiden; hier voor de eerste maal vermeld, die in de persoon van Christus vlees geworden is, en reeds onder het Oude Verbond, de gedaante van een mens of een Engel aannam, en nu ook als gezant van God achter Hagar aangegaan was, om haar van haar weg terug te leiden; die Engel des Heren vond 2) haar aan een waterfontein in de zuidwestelijk van Kanaän gelegen, zeven dagreizen lange woestijn, namelijk aan de fontein op de weg van Sur 3) (muur). Tot hiertoe was Hagar al vluchtende gekomen; nu waren haar krachten van de vermoeiende tocht door het barre zand en het eenzaam oord geheel uitgeput. Zo lag zij bij de bron; zij verlangde er wellicht naar, dat er iemand mocht komen en zich haar lot aantrekken (vs. 13). En wie kwam er en trok zich haar lot aan? De Heere zelf in Zijn voorkomende genade, die ook haar om Abram’s wil zegende.***
@@ -114,7 +114,7 @@ a) Genesis 24:62; 25:11
 
 Door Hagar was tot herinnering aan deze ontmoeting die put aldus genoemd, en deze naam is sedert die tijd in zwang geweest.
 
-## III. Vers 15 en 16. 
+## III. Vers 15 en 16
 Naar huis teruggekeerd baart Hagar een zoon, die Abram volgens het goddelijk bevel "Ismaël" noemt.
 
 ***15. a) En Hagar, teruggekeerd 1) in gehoorzaamheid aan God, baarde Abram 2) een zoon; en Abram, die het goddelijk bevel (vs. 11) met de gehele gebeurtenis van haar vernomen had, noemde de naam van zijn zoon, die Hagar gebaard had, Ismaël. 3)***

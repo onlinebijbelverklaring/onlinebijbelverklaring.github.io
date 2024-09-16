@@ -1,6 +1,6 @@
 STERFGEVALLEN IN JAKOB’S GEZIN.
 
-## I. Vers 1-15. 
+## I. Vers 1-15
 Terwijl Jakob bezorgt is over de gevolgen van de moord, door zijn zonen aan de Sichemieten gepleegd, ontvangt hij bevel van God, om naar Beth-El te gaan, en daar zijn vroegere belofte (hoofdstuk. 28:19 vv.) te vervullen. Hij doet uit zijn huis alle overblijfsels van het heidendom weg, en komt behouden met de zijnen te Beth-El aan. Daar volbrengt hij zijn belofte; begraaft Debora, de voedster van Rebekka, en ontvangt weer een openbaring van God, die zijn naam Israël vernieuwt, en de drievoudige belofte van de patriarchale zegen bevestigt.
 
 ***1. 1) Daarna, 2) na de moord te Sichem (hoofdstuk. 34), zei God tot Jakob, om hem en zijn huis te beschermen tegen het gevreesde gevaar (hoofdstuk. 34:30), maar ook om hem zijn belofte (hoofdstuk. 28:20 vv.) te herinneren: Maak u op, trek op naar Beth-El, 3) en woon aldaar; en maak daar een altaar die God, a) die u verscheen b) toen gij vluchtte voor het aangezicht van uw broeder Ezau. 4) Ik heb alles getrouw gedaan, wat Ik u beloofde, daarom wordt het tijd, dat gij doet, wat gij toegezegd hebt, en Ik zal u weer veilig geleiden, evenals Ik u voor Ezau in bescherming heb genomen.***
@@ -117,7 +117,7 @@ a) Genesis 17:1; 28:3; 48:3 b) Genesis 17:6, 16 c) MATTHEUS. 1:6
 
 Voor de derde maal noemt Jakob deze plaats met die naam, om door die herhaalde naamgeving van zijn zijde het verbond en de verbondszegeningen te aanvaarden.
 
-## II. Vers 16-29. 
+## II. Vers 16-29
 Jakob reist van Beth-El naar Efratha; op weg daarheen sterft Rachel, bij de geboorte van haar tweede zoon Benjamin. Hij richt zijn tent op aan de overzijde van de toren van Eder; daar bevlekt Ruben het vaderlijk bed. Jakob komt met zijn twaalf zonen te Mam bij Hebron; daar begraaft hij met Ezau zijn vader Izaak.
 
 ***16. En zij reisden na enige tijd van Beth-El waaraan God volgens Zijn bevel hen niet voor altijd had willen binden, maar slechts totdat hij zijn belofte volbracht had; en er was nog een kleine streek land, ongeveer een uur, om tot Efratha, (het vruchtbare), of Bethlehem, te komen; en Rachel, die na 16 jaar voor de tweede maal zwanger was geworden, baarde, 1) en zij had het hard in haar baren.***

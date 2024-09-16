@@ -1,6 +1,6 @@
 DE EERSTE REIS VAN JAKOB’S ZONEN NAAR EGYPTE.
 
-## I. Vers 1-26. 
+## I. Vers 1-26
 De honger drukt, reeds aanstonds in het eerste jaar, ook het land Kanaän. Jakob zendt zijn zonen, met uitzondering van de jongste, naar Egypte, om daar spijze te kopen. Jozef herkent zijn broeders; zij echter kennen hem niet. Jozef brengt hen in een lange en moeilijke school, waarin hij hen deels straft, deels beproeft. Hij brengt hen geheel in dezelfde toestand, als waarin hij zich bevonden heeft, toen hij door hen als spion gegrepen en in de kuil geworpen werd.
 
 ***1. Toen Jakob aan andere inwoners van het land, die naar Egypte reisden, om spijze te kopen, zag, dat er koren in Egypte was, zo zei Jakob tot zijn zonen, die wel niet zonder reden zich verwijderd gehouden hadden van het land, dat hen aan hun zonde herinnerde (hoofdstuk. 37:25): Waarom ziet gij op elkaar, 1) alsof gij buiten raad zijt?***
@@ -131,7 +131,7 @@ a) Psalm. 50:21 MATTHEUS.7:2
 
 ***26. En zij laadden hun koren op hun ezels en vertrokken, met achterlating van Simeon, van daar.***
 
-## II. Vers 27-38. 
+## II. Vers 27-38
 Onderweg opent een van de broeders, op een rustplaats, zijn zak, en vindt het heimelijk ingelegde geld; de anderen schrikken met hem over deze ontdekking, maar denken er niet aan, ook hun eigen zakken te openen. Als zij thuis gekomen zijn, verhalen zij hun vader alles, wat er gebeurt is, welke eis er gedaan is, en vinden, bij het legen van hun zakken, ook het overige geld. Jakob breekt los in luide klachten over de zware slagen, die hem treffen, en weigert met beslistheid Benjamin mee te laten gaan.
 
 ***27. Toen een, daar de meegegeven teerkost verbruikt was, zijn zak opendeed, om zijn ezel voer te geven in de herberg, 1) zo zag hij zijn geld; want ziet, het was in de mond van zijn zak, bovenaan in de zak.***

@@ -1,6 +1,6 @@
 JACOB VERKRIJGT VOOR EEN DIENST VAN VEERTIEN JAAR TWEE VROUWEN.
 
-## I Vers 1-14. 
+## I Vers 1-14
 Jakob, gelukkig in Mesopotamië aangekomen, treft bij een put bij Haran enige herders en daarna Labans dochter, Rachel, aan, die haar vaders schapen weidt. Hij maakt zich aan haar bekend; zij geeft haar vader van hem bericht, en Laban gaat naar buiten om de neef te verwelkomen en in zijn huis te leiden.
 
 ***1. Toen hief Jakob, door zijn ondervinding te Bethel van alle vrees verlost, en met een hart vol vrolijk vertrouwen, zijn voeten op, 1) en ging naar het land Mesopotamië, het land van de kinderen van het Oosten. Nadat hij het land Kanaän ver achter zich had, na een reis van meer dan 120 mijl, kwam hij daar aan.***
@@ -59,7 +59,7 @@ Jakob wentelt alleen de steen af. God geeft hem er de kracht toe, opdat hij ters
 
 Zo ondervindt Jakob al aanstonds de vervulling van de belofte hem bij Bethel gedaan.
 
-## II. Vers 15-30. 
+## II. Vers 15-30
 Jakob dient Laban voor Rachel zeven jaar; op de dag van de bruiloft verkrijgt hij echter niet deze, maar Lea, haar oudere zuster, en moet nu, daar Laban na zeven dagen hem ook de verkorene geeft, nog zeven jaar dienen.
 
 ***15. Daarna zei Laban, die wij reeds in hoofdstuk. 24:30 vv. als een zelfzuchtig en inhalig man leerden kennen, tot Jakob, schijnbaar uit belangstelling in hem, maar eigenlijk alleen om eigen voordeel, om de kundige en vlijtige arbeider voor langere tijd aan zich te verbinden, en zeker wel vermoedende wat zijn begeerte was: Omdat gij mijn broeder (vs.11) zijt, en zelf er niet aan hebt gedacht voor uw diensten een loon te eisen, zou gij mij derhalve om niet dienen? Verklaar mij wat zal uw loon zijn? Het is beter, dat wij een vaste verbintenis omtrent uw beloning aangaan.***
@@ -146,7 +146,7 @@ Ach, ouders! gij weet het niet, hoe uw wel overlegde huwelijksplannen voor uw ki
 
 2) Welk een bron van jammer ligt in die weinige woorden opgesloten! Jakob kon slechts aan één vrouw zijn hart geven.
 
-## III. Vers 31-Hoofdstuk 30:24. 
+## III. Vers 31-Hoofdstuk 30:24
 Spoedig op elkaar worden Jakob gedurende het tweede zevental jaar van zijn dienen, elf zonen en een dochter geboren, waarschijnlijk in deze volgorde: van Lea: 1. Ruben, 2. Simeon, 3. Levi, 5. Juda, 8. Issaschar, 10. Zebulon, 12. Dina; van Bilha: 4. Dan, 6 Nafthali; van Rachel: 11. Jozef; van Zilpa: 7. Gad, 9. Aser. Zodat nu tot vervulling komt wat aan Abraham beloofd was: "Ik zal u tot een groot volk maken."
 
 ***31. Toen nu de HEERE zag, dat Lea gehaat 1) was bij haar man, opende Hij haar baarmoeder; maar Rachel was onvruchtbaar, 2) gelijk de Heere gewoonlijk het onedele van de wereld en het verachte verkiest, en datgene, wat niets is, opdat Hij het sterke teniet zou doen. (1 Corinthiërs. 1:28; Luk.1:62).***

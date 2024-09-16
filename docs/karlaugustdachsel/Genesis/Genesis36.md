@@ -1,6 +1,6 @@
 GESLACHTSREGISTER VAN EZAU.
 
-## I. Vers 1-8. 
+## I. Vers 1-8
 Over het lijk van hun vader hebben Ezau en Jakob elkaar nog eens de hand gereikt; vervolgens gaan hun wegen uit elkaar. Eer de heilige geschiedenis Ezau uit het oog verliest, zien wij de goddelijke belofte (hoofdstuk. 25:23) daardoor vervuld, dat zijn nakomelingen zich tot een volk ontwikkelen. Vooraf gaat een kort bericht over zijn vrouwen en kinderen en van zijn vertrek naar Seïr.
 
 ***1. Dit a) nu zijn de geboorten van Ezau (harige), welke is Edom (rode).***
@@ -37,7 +37,7 @@ a) Jozua. 24:4
 
 1) Dit wordt hier zo dikwijls herhaald, omdat Edom de gewone naam was van het volk, dat aan Kanaäns zuidelijke grenzen woonde en voor Israël zo hoogst gewichtig was.
 
-## II. Vers 9-30. 
+## II. Vers 9-30
 Uit Ezau’s familie komt in Seïr een rij van vorsten of hoofden van stammen voort, die in de plaats van de vorsten van de Horieten treden.
 
 ***9. Dit nu zijn de geboorten van Ezau, de vader van de Edomieten, die na de Horieten, op het gebergte Seïr, de bergachtige landstreek tussen de Dode Zee en de Elamietische golf woonden.***
@@ -100,7 +100,7 @@ De Staten-vertaling geeft "muilen" "muildieren."
 
 ***30. De vorst Dison, de vorst Ezer, de vorst Disan; dit zijn de vorsten van de Horieten, naar hun vorsten in het land Seïr, en aan wier heerschappij de Edomitische vorsten (vs.15-18) een einde maakten.***
 
-III. Vers 31-43. 
+III. Vers 31-43
 De Edomitische vorsten voelden vroegtijdig de behoefte aan een gemeenschappelijk opperhoofd, om de nadelen van de verdeling van hun volk in zoveel stammen te verhoeden. Zo ontwikkelde zich, reeds lang, voordat er in Israël koningen waren, het koninkrijk Idumea. Nu worden de acht eerste koningen opgeteld, waarnaast de verschillende stamhoofden een zekere macht hadden, welke woonplaats zij ten tijde van Mozes hadden, wordt tenslotte nog genoemd.
 
 ***31. a) En dit zijn de koningen, die geregeerd hebben in het land van Edom, eer een koning regeerde over de kinderen van Israël. 1)***

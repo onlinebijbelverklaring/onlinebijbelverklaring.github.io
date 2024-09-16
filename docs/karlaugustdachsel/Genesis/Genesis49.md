@@ -1,6 +1,6 @@
 JAKOBS VOORZEGGINGEN EN AFSCHEID.
 
-## I. Vers 1-33. 
+## I. Vers 1-33
 Jakob vervuld met de Geest van de profetie, voorspelt de toekomst van het volk Israël. Vs.1-3 behelst de plechtige aanhef; vs.3-7: de verwerping van Lea’s eerste drie zonen; vs.8-12: de overdraging van het eerstgeboorterecht aan Juda; vs.13-18: de lotsbedeling van Zebulon, Issaschar en Dan; vs.19-21: de toekomst van Gad, Aser en Naftali; vs.22-26: de zegen aan Jozef geschonken; vs.27: wat er met Benjamin geschieden zou, en vs.28-33: het afscheid en sterven van de knecht van God.
 
 ***1. Daarna, nadat Jozefs beide zonen in de rij van zijn zonen waren opgenomen, riep Jakob zijn zonen; hij liet in het sterfvertrek, waar reeds Jozef aanwezig was, ook de elf overigen binnentreden, en hij zei, in verheven stemming en dichterlijke rede: 1) Verzamelt u, verenigt u hier bij mijn bed, en ik zal u verkondigen, hetgeen u in de navolgende dagen gebeuren zal.***

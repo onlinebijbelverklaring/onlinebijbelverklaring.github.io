@@ -1,6 +1,6 @@
 AANKONDIGING VAN DE ZONDVLOED. BOUW VAN DE ARK.
 
-## I. Vers. 1-8. 
+## I. Vers. 1-8
 Bij de vermeerdering van het Kaïnietische geslacht namen ook de goddeloosheid en gruwelen van allerlei aard op aarde de overhand. Zelfs de nakomelingen van Seth lieten zich door huwelijken met dochters uit dit geslacht in dat verderf intrekken. Nu kondigt God, eerst nog als van verre en een uitstel van 120 jaren tot bekering gevende, vervolgens duidelijk uitsprekende, een strafgericht aan hetwelk Hij allen, met uitzondering van een, die voor Hem genade gevonden heeft, van de aardbodem verdelgen zal.
 
 ***1. En het geschiedde, als de mensen, de aan de ontwikkeling van hun natuurlijk bestaan overgelatene mensen, de nakomelingen van Kaïn, en de hun in dit opzicht gelijkstaande overige afstammelingen van Adam, op de aardbodem begonnen te vermenigvuldigen, wat te sneller geschiedde wegens de bij de Kaïnieten bestaande veelwijverij, en hun dochters geboren werden, die bijzonder door lichamelijke schoonheid zich onderscheidden, gelijk de in de geslachtstafel (Hoofdstuk 4:17, 18) vermelde namen Ada, Zilla en Naëma reeds op zulk een schoonheid doelden.***
@@ -43,7 +43,7 @@ Berouw bij God betekent voorzeker niet enig gevoel van spijt uit zelfbeschuldigi
 
 1) Met deze woorden wordt gezegd, dat God hem genegen en gunstig was. Want de Hebreeën zijn gewoon te zeggen: "Indien ik genade vind in uw ogen," wanneer zij bedoelen: "Indien ik U aangenaam ben of gij met uw welwillendheid en gunst mij wilt verwaardigen." Hetgeen wel degelijk is op te merken, omdat sommige ongeleerden met nutteloze, spitsvondigheid tot de gevolgtrekking komen, dat, indien de mensen bij God gunst verwerven, zij deze verkrijgen door hun eigen vlijt en verdiensten. Ik beken wel, dat hier verhaald wordt, dat Noach bij God aangenaam is geweest, omdat hij, vroom en heilig levende, als een rein man van de algemene schandelijkheden van de wereld afstand nam. Maar waarom die zuiverheid van wandel bij hem, indien hij niet reeds vroeger door God begenadigd was? De eerste gunst was derhalve genadig mededogen. Daarna, omdat God hem eenmaal had omvat met de armen van Zijn eeuwige liefde, hield Hij hem vast, opdat hij niet met de rest der wereld verloren zou gaan.
 
-## II. Vers 9-22. 
+## II. Vers 9-22
 Nadat de bepaalde tijd van 120 jaar zo ver verlopen is, dat God nu de uitvoering van Zijn besluit voorbereiden moet, deelt Hij dit aan Noach mee, wijst hem aan een Ark te bouwen, op een bijzondere wijze ingericht en naar zekere afmetingen, en geeft hem nadere lering omtrent het doel van de Ark en verzekert hem van zijn redding in de Ark.
 
 ***9. Dit zijn de geboorten van Noach, met wie Hoofdstuk 5:32 de geslachtslijn van Seth afbrak, en met wie de geschiedenis van het rijk Gods het van nu aan in het bijzonder te doen heeft. Noach was een rechtvaardig, oprecht man in zijn geslacht; te midden van die bedorven betrekkingen, nakomelingen van Seth, die mee waren gesleept door die schone vrouwen, was hij een gerechtvaardigde door het geloof in het beloofde zaad, en dit geloof heiligde zijn wandel, maakte hem waar, oprecht a) Noach wandelde gelijk een Henoch, met God.***

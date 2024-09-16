@@ -1,6 +1,6 @@
 ABRAM’S GELOOF EN GERECHTIGHEID WORDEN GEPREZEN.
 
-## I. Vers 1-11. 
+## I. Vers 1-11
 Aan Abram, die bevreesd is en bedroefd, omdat hij geen kinderen heeft, openbaart zich God in een gezicht, spreekt hem vriendelijk toe, en antwoordt hem op zijn klachten en op het voorstel, om zijn huisverzorger als kind aan te nemen, met de belofte van een eigen zoon. Abram gelooft, maar vraagt tot bevestiging een teken; de Heere geeft hem veel meer, daalt in de volheid van Zijn liefde veel dieper tot hem af, en sluit met hem een plechtig verbond.
 
 ***1. Na deze dingen, bij welke Abram zoveel heldenmoed en onbaatzuchtigheid aan de dag had gelegd, kwam een tijd van inwendige aanvechting. Maar mistroostig terneer zittend, geschiedde het woord des HEREN tot Abram in een gezicht; 1) zijn inwendige zintuigen werden ontsloten en verhelderd, zodat hij niet meer zag of hoorde, wat om en bij hem was, maar zijn geest in de toestand van verrukking was geplaatst; hij zag de Heere, die hem vroeger verschenen was (hoofdstuk. 12:1,7,13,14) met geestelijk oog, en vernam Zijn woorden met geestelijk oor. De Heere nu, die in de diepten van ons hart thuis is en in de geheimste plaatsen van ons wezen inziet, antwoordde hem op de stille klachten en de vragen van zijn ziel, zeggende: Vrees niet, 2) Abram! a) Ik ben u een schild, 3) uw loon zeer groot! 4)***
@@ -105,7 +105,7 @@ Abram vraagt om een teken, en God staat hem, maar ook al zijn kinderen toe, Hem 
 
 Niets is de satanische geesten vijandiger dan verering van God en gemeenschapsoefening met de Heere. Zij komen aan, om verbinding met God weg te nemen. Gelovigen waakt!.
 
-## II. Vers 12-21. 
+## II. Vers 12-21
 Met zonsondergang valt Abram in een profetische slaap; de Heere voorspelt hem de geschiedenis van de toekomst van Zijn volk; sluit onder een zichtbaar teken van Zijn tegenwoordigheid het verbond met hem, en herhaalt de belofte van het toekomstig bezit van Kanaän. Hij bepaalt de grenzen in de grootste uitgebreidheid, gelijk die werkelijk onder David en Salomo geweest zijn.
 
 ***12. En het geschiedde, als de zon onderging, zo viel een diepe, van God gewerkte, bovennatuurlijke\ slaap 1) op Abram: en ziet, een schrik en grote duisternis, niet uit zijn eigen gemoedsbeweging voortgekomen, maar eveneens op buitengewone wijze door God gewerkt, viel op hem. Naar de bedoeling van God zou de stamvader reeds profetisch ondervinden, wat daarna werkelijk met Israël in Egypte (Exodus. 2:23) geschied is.***

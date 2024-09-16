@@ -1,6 +1,6 @@
 OFFERANDE VAN IZAAK. BELOFTE VAN CHRISTUS.
 
-## I. Vers 1-19. 
+## I. Vers 1-19
 Toen Izaak tot een jongeling was opgegroeid, gaf God aan Abraham bevel, zijn enige zoon, die hij lief had, te nemen en hem op een berg in het land Moria ten brandoffer te offeren. Abraham gehoorzaamt aan het goddelijk bevel: toen hij reeds het mes genomen had, om de zoon te slachten, wordt door de Engel des Heren zijn hand teruggehouden en hem een ram getoond, die in Isaak’s plaats zal geofferd worden; waarop alle beloften aan Abraham gegeven, in een mate herhaald worden, als nooit te voren.
 
 ***1. En het geschiedde na deze dingen, toen Abraham niet slechts land en familie had moeten verlaten, maar ook Ismaël, zijn eigen vlees en bloed, had moeten uitdrijven, en door al die leidingen Gods zijn inwendig geloofslevengenoegzaam gesterkt was, 1) dat God Abraham verzocht, 2) hem op de harde proef van geloof en gehoorzaamheid stelde; en Hij zei tot hem, waarschijnlijk weer even als in hoofdstuk. 21:12 ‘s nachts in een droom of gezicht: Abraham! En hij zei; Zie, hier ben ik! 3)***
@@ -161,7 +161,7 @@ De zegen wordt hier verbonden aan de gehoorzaamheid, In de weg van gehoorzaamhei
 
 Ook de naam Berséba herinnerde Abraham aan de eed Gods.
 
-## II. Vers 20-24. 
+## II. Vers 20-24
 Na, een zo zware verzoeking vindt Abraham niet alleen rust in het stille en vreedzame leven te Berséba, maar wordt hij ook nog verblijd met het bericht van de vermeerdering van zijn familie in Mesopotamië. Hierdoor wordt wellicht reeds nu de gedachte bij hem opgewekt, om ter gelegener tijd van daar voor Izaak een vrouw te halen.
 
 ***20. En het geschiedde na deze dingen, toen de zwaar beproefde man tot zichzelf was gekomen, en zijn hart vrolijk en tevreden was, dat men Abraham boodschapte, zeggende: Zie Milka, een van de dochters van uw te Ur in Chaldea gestorven broeder Haran, heeft ook Nachor, uw broeder, haar man, evenals Sara voor u, zonen gebaard. (hoofdstuk. 11:27 vv).***

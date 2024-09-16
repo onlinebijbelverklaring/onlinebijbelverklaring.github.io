@@ -1,6 +1,6 @@
 ABRAHAMS ROEPING EN TOCHT NAAR EGYPTE.
 
-## I. Vers 1-8. 
+## I. Vers 1-8
 Met Abram begint een nieuwe afdeling van de geschiedenis van het Godsrijk. Hij ontvangt bevel zijn vaderland en zijn familie te verlaten en naar een land te trekken, dat God Hem wijzen zal. Vertrouwende op de hem gegeven belofte, is hij aan de wil des Heren gehoorzaam, komt hij met zijn vrouw Saraï en zijn neef Lot tot aan Kanaän, en verneemt hij in het bos More bij Sichem, dat hij op de bestemde plaats gekomen is.
 
 ***1. De HEERE nu 1) had tot Abram 2) gezegd; bij de verschijning te Ur in Chaldea, van welke reeds in hoofdstuk. 11:31 gesproken is: Ga gij 3) a) uit uw land, en uit uw familie, en uit uws vaders huis, 4) naar het land 5) dat Ik u thans nog niet noemen, maar u te gelegener tijd wijzen zal.***
@@ -89,7 +89,7 @@ Het land midden tussen de drie bekende werelddelen, tussen Egypte en de grote Az
 
 Over "aanroepen van de naam des Heren", zie Ge 4.26 Waar Abram een woonplaats heeft, daar moet de Heere God een altaar hebben. Hij kan niet zonder huiselijke godsdienstoefening.
 
-## II. Vers 9-20. 
+## II. Vers 9-20
 Wegens de honger in Kanaän trekt Abram naar Egypte; geeft daar zijn vrouw voor zijn zuster uit en brengt haar daardoor in groot gevaar; maar de Heere komt te hulp en geeft uitredding.
 
 ***9. Daarna vertrok Abram van Bethel, om andere weiden te zoeken, gaande en trekkende naar het zuiden, naar de zijde van de Arabische woestijn.***

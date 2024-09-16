@@ -10,7 +10,7 @@ JAKOB’S VREES, GEBED EN STRIJD.
 
 2) Deze beide verzen behoren meer tot het vorige hoofdstuk. De verdeling in hoofdstukken is gemaakt door de Kardinaal Hugo van St. Caro (gestorven 1262) doch is niet in alle delen juist; meermalen ware het beter geweest, indien het hoofdstuk vroeger eindigde, op andere plaatsen weer, wanneer enkele verzen waren bijgevoegd. De verdeling in verzen is in het Oude Testament van de Joodse Rabbijnen, in het Nieuwe Testament van Rob Stefanus (1551)
 
-## I. Vers 3-12. 
+## I. Vers 3-12
 Van Mahanaïm zendt Jakob boden naar het land Seïr, om Ezau op beleefde wijze zijn terugkomst te melden. Zij brengen geen antwoord van hem, maar melden, dat hij met 400 man nadert; Jakob bereidt zich op het ergste voor, en neemt zijn toevlucht tot het gebed.
 
 ***3. En Jakob, door de verschijning te Mahanaïm wel verzekerd van de goddelijke bijstand, maar ook aan de andere zijde daaruit afleidende, dat hem een zware strijd wachtte, zond boden uit voor zijn aangezicht tot Ezau, zijn broeder, naar het land Seïr, 1) de landstreek van Edom.***
@@ -77,7 +77,7 @@ Jakob erkent hiermee, dat hij van God, de *Heere, grotere weldaden heeft ontvang
 
 Als pleitgronden van het gebed, die bij de oprechte en biddend gemaakte ziel altijd in het voorwerp van het gebed, in God zelf en dus buiten de bidder, moeten liggen noemt Jakob er mede drie zaken, die hij van God ontvangen heeft: het bevel, de weldaden en de belofte Gods. Immers vermeld hij het ontvangen bevel des Heren, zich in vs.9 beroepende op het eigen woord Gods, die tot hem gezegd heeft: keer weer tot uw land en tot uw familie (Genesis 31:3). Hij stelt dit eigen woord Gods de Heere voor, als de reden, waarom hij op deze weg is.
 
-## II. Vers 13-32. 
+## II. Vers 13-32
 Nadat Jakob aanzienlijke geschenken voor zijn broeder heeft afgezonderd, en nog in die nacht al zijn have en zijn betrekkingen over de Jabbok gevoerd heeft, blijft hij alleen aan de tegenovergestelde oever, en heeft daar de wondervolle strijd met de Heere, waaruit hij als overwinnaar, maar met een verwrongen heup, wederkeert.
 
 ***13. En hij vernachtte aldaar diezelfde nacht; hij bracht alles in gereedheid, om op diezelfde plaats, waar hij gebeden had, de nacht door te brengen; en hij nam van hetgeen, dat hem in zijn hand 1) kwam, dat hij het eerste ontmoette, een geschenk 2) voor Ezau, zijn broeder.***

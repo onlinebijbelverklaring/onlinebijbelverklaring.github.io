@@ -1,6 +1,6 @@
 ABRAM EN LOT SCHEIDEN VAN ELKAAR.
 
-## I. Vers 1-13. 
+## I. Vers 1-13
 Teruggekeerd tot de plaats tussen Bethel en Al waar zij vroeger gelegerd waren, blijkt het, dat de weiden niet meer toereikend zijn voor de groter geworden kudden van Abram en Lot: Abram stelt daarom zijn neef voor van elkaar te scheiden, en laat hem kiezen, waarheen hij zich begeven wil. Lot kiest de vlakte van de Jordaan en slaat zijn tenten bij Sodom op.
 
 ***1. Alzo toog Abram op 1) uit Egypte, waar hij zich slechts voor een tijd had willen ophouden en in naar het zuiden van Kanaän, dezelfde streek, die hij vroeger wegens honger verlaten had (hoofdstuk. 12:10); hij en zijn vrouw, en al wat hij had, 2) en Lot, die eveneens in Egypte geweest was, met hem.***
@@ -83,7 +83,7 @@ Lot meende, dat hij gelukkig was, omdat hem zulk een rijke verblijfplaats was te
 
 Waar de gemeenschap met Gods volk wordt prijsgegeven, daar vervalt men allicht tot de omgang met de wereld.
 
-## II. Vers 14-18. 
+## II. Vers 14-18
 Nauwelijks is Lot weggetrokken, of de Heere geeft opnieuw aan Abram de belofte, dat hij dit land erfelijk bezitten zal. Hij beveelt hem het in de lengte en breedte door te trekken. Abram doet dit en kiest het bos van Mamre bij Hebron, tot zijn woonplaats.
 
 ***14. En de HEERE zei tot Abram, om hem te troosten en te bemoedigen, nadat Lot van hem gescheiden was, en hij van al zijn familie was afgezonderd: Hef uw ogen op, gelijk Lot gedaan heeft uit eigenbelang en begerigheid, maar gij in het geloof; en zie de plaats, waar gij zijt, noordwaarts, en zuidwaarts, en oostwaarts, en westwaarts.***

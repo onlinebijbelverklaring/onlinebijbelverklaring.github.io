@@ -1,6 +1,6 @@
 HET ONTEREN VAN DINA GEEFT AANLEIDING TOT EEN BLOEDBAD.
 
-## I. Vers 1-23. 
+## I. Vers 1-23
 Dina, Jakob’s dochter, vermengt zich met de dochters van het land; wordt door Sichem, de zoon van de koning, onteerd en ten huwelijk begeerd. Haar broeders houden zich, alsof zij met de Sichemitische zich door huwelijken willen verenigen, wanneer deze zich laten besnijden. Sichem overreedt zijn volksgenoten, dat zij dit werkelijk doen.
 
 ***1. En Dina, de dochter van Lea, die zij Jakob gebaard had (hoofdstuk. 30:21), en die nu de ouderdom van 15 of 16 jaar bereikt had, ging uit, 1) zonder de bescherming van een uit het vaderlijk huis, om de dochters van dat land te bezien 2) en met hen in kennis te komen.***
@@ -113,7 +113,7 @@ Onder het vooruitzicht van groot tijdelijk voordeel stellen de landvorsten hun s
 
 ***24. En zij hoorden naar Hemor, en naar Sichem, zijn zoon, die hun de zaak in zulk een voordelig licht wisten voor te stellen, allen, die door zijn stadspoort uitgingen; en zij werden besneden, al wat mannelijk was, allen, die door zijn stadspoort uitgingen.***
 
-## II. Vers 25-31. 
+## II. Vers 25-31
 Op de derde dag, toen de Sichemieten aan de wondkoortsen nederlagen, overvielen hen Simeon en Levi en doodden alle mannen; vervolgens kwamen hun broeders, plunderden de stad en maakten vrouwen en kinderen tot hun gevangenen. Jakob ontstelde over die gruwelijke daad van zijn zonen en vreesde daarvan kwade gevolgen; zij beriepen zich op hun vermeend goed recht.
 
 ***25. En het geschiedde op de derde dag 1) toen zij in de smart waren en daardoor onbekwaam, om zich te verdedigen, zo namen de twee zonen van Jakob, Simeon en Levi, broeders van Dina, die op deze tijd gewacht hadden, en, alleen om dit plan ten uitvoer te brengen; dit voorstel hadden gedaan; een ieder zijn zwaard, en zij kwamen, vergezeld van hun gewapende knechten, stoutelijk in de stad, 2) daar zij wisten, dat de Sichemieten voor geen aanval bezorgd en tot verdediging niet in staat waren, en zij doodden al wat mannelijk was, allen, die door zijn stadspoort uitgingen. 3)***

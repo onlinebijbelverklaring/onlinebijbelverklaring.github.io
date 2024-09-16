@@ -1,6 +1,6 @@
 REIS VAN JAKOB’S ZONEN NAAR EGYPTE MET BENJAMIN.
 
-## I. Vers 1-14. 
+## I. Vers 1-14
 Bij het aanhouden van de droogte ziet zich Jakob genoodzaakt, zijn zonen weer naar Egypte te zenden. Juda verklaart, dat zij zonder Benjamin niet mochten komen, en stelt, daar de vader zich altijd nog ongeneigd betoont, zichzelf borg. Eindelijk bewilligt Jakob, voorziet de reizenden van geschenken en ander geld, om te kopen, en laat hen met beden en zegen wensen vertrekken, alles aan God overgevende.
 
 ***1. De honger nu werd zwaar in dat land, daar, op het eerste jaar van misoogsten, een tweede volgde.***
@@ -83,7 +83,7 @@ Niet van de geschenken, niet van Juda’s belofte, maar van zijn God, die hij hi
 
 Evenmin als zijn zegenwens een vertrouwend bidden is, zo is dit de uitdrukking van een volwaardig gegeven offer; want Jakob’s ziel is, onbewust, gebonden door de ban die op zijn zonen ligt. Hij gaat gebukt onder de zondenlast van zijn huis.
 
-## II. Vers 15-34. 
+## II. Vers 15-34
 In Egypte gekomen, worden de broeders vriendelijk door Jozef ontvangen, door de bestuurder van zijn huis in zijn woning geleid en ter tafel genodigd; op de tijd van de tuchtiging moet een uur van verkwikking volgen, eer hij tot de beproeving overgaat. Aan tafel geeft Jozef aan Benjamin bijzondere eer, en neemt nauwkeurig acht, hoe de ouderen dat opnemen.
 
 ***15. En die mannen namen dat geschenk, gelijk hun vader dit voorgeschreven had, en namen dubbel ander geld in hun hand, en ook Benjamin ging met hen; en zij maakten zich op, en vertrokken naar Egypte, en zij stonden voor Jozefs aangezicht, en zij kwamen op de plaats (hoofdstuk. 42:6), waar hij degenen, die koren kochten, ontving.***

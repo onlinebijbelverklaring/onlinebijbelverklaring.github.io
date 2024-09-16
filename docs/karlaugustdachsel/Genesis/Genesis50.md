@@ -1,6 +1,6 @@
 JAKOB WORDT BEGRAVEN, JOZEF STERFT
 
-## I. Vers 1-14. 
+## I. Vers 1-14
 Jozef, nadat hij aan zijn smart over het sterven van zijn vader de vrije loop gelaten heeft, zorgt voor het balsemen van het lijk, volgens de gebruiken van Egypte. Ook de Egyptenaren bedrijven rouw over Jakob. Nadat die rouwtijd geeindigd is, vraagt Jozef verlof aan Farao, om zijn vader in Kanaän te begraven. Die begrafenis heeft plaats; de koninklijke hof- en de Egyptische staatsbeambten nemen daaraan deel; de zware rouw trekt de opmerkzaamheid van de Kanaänieten
 
 ***1. Toen viel Jozef, 1) door droefheid overweldigd, op van zijn vaders aangezicht, en hij weende over hem, en kuste hem. (hoofdstuk 46:4).***
@@ -57,7 +57,7 @@ a) Hand.7:15, 16 b) Genesis 23:16
 
 1) Zij keerden terug naar Egypte, niet alleen, omdat zij door de ogenblikkelijke omstandigheden daartoe gedwongen werden, maar omdat zij het juk, hetwelk door de hand van God op hun halzen was gelegd, niet mochten afschudden. Hoewel de Heere niet allen door een vrijwillige gehoorzaamheid aan zich verbonden hield, toch houdt Hij hun gemoederen door verborgen koorden zo vast, dat zij zich niet tot iets anders laten vervoeren.
 
-## II. Vers 15-26. 
+## II. Vers 15-26
 Na het terugkeren in Egypte, ontstaat er bezorgdheid bij Jozefs broeders, dat hij hen, nu zijn vader gestorven was, wegens hun vroegere misdaad zal straffen; hij stelt hen gerust; leeft nog vele jaren; ziet zijn geslacht zich uitbreiden; en bepaalt bij zijn dood, dat zijn lijk een roede naar Kanaän zal genomen worden, wanneer de Heere zijn volk zal uitleiden.
 
 ***15. Toen Jozefs broeders zagen, dat hun vader dood was, zo zeiden zij tot elkaar: Misschien 1) zal ons Jozef haten; en hij zal ons, nu onze vader niet meer als onze beschermer tussen ons en hem staat; gewis vergelden al het kwaad; dat wij hem aangedaan hebben. 2)***
@@ -120,7 +120,7 @@ a) Numeri. 32:39
 
 ***24. En Jozef, toen hij voelde, dat zijn einde naderde, zei tot zijn broeders: 1) Ik sterf; maar God zal u gewis bezoeken na uw lijden, dat gij lijden zult in dit land, gelijk Hij gesproken heeft, en hij zal u doen optrekken uit dit land, in het land hetwelk Hij Abraham, Izaak en Jakob gezworen heeft. 2)***
 
-a)Hebr.11:22
+a) Hebr.11:22
 
 1) Of Jozef als de eerste of als de laatste van de broeders is gestorven, of een gedeelte hem overleefd heeft, is onzeker. Hier omvat Mozes onder de naam van broeders niet alleen eigen broeders, maar ook andere bloedverwanten. Ik houd het ervoor, dat eigenlijk eerstgeborenen uit ieder gezin op zijn bevel zijn geroepen, van wie het gehele volk, omtrent deze zaak, zekerheid heeft ontvangen. Ofschoon men nu kan aannemen, dat ook de andere Patriarchen hetzelfde hebben bevolen, daar alle beenderen gelijk naar het land Kanaän zijn overgebracht, wordt van Jozef alleen, om twee oorzaken, opzettelijk melding gemaakt. Want, omdat wegens zijn hoge autoriteit aller ogen op hem gericht waren, moest hij zelf hen voorgaan en zorgvuldig erop passen, dat de glans van zijn waardigheid voor niemand een hindernis was. Ten tweede was het van zeer groot gewicht, dat het bij het gehele volk bekend was, dat hij, die in het rijk van Egypte de tweede was, na zo grote eer ontvangen te hebben, tevreden was met zijn plaats, om slechts erfgenaam te zijn van bloot een belofte.
 

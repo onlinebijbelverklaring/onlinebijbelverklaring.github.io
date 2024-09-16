@@ -1,6 +1,6 @@
 SARA’S DOOD EN BEGRAFENIS.
 
-## III. Vers 1-20. 
+## III. Vers 1-20
 Nadat Abraham geruime tijd met vrouw en kind te Berséba gewoond heeft (hoofdstuk. 21:34), en Izaak intussen tot een man is opgegroeid; vestigt hij zich weer te Hebron, misschien omdat, na Abimelech’s dood, de Filistijnen zich vijandig tegen hem betoonden. Hier, te Hebron, sterft Sara in het 127ste jaar van haar leven. Abraham houdt de gewone rouwklacht en koopt voor zijn familie een spelonk van Efron, de Hethiet, waarin de gestorvene begraven wordt.
 
 ***1. En het leven van Sara was honderd zevenentwintig jaar: dit waren de jaren van het leven 1) van Sara.***

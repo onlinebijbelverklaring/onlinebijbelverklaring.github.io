@@ -72,7 +72,7 @@ De Heere geeft de Zijnen in geestelijke zin een bijzonder rijke erfenis, de groe
 
 1) In het Hebreeuws Lephi hattaf, naar de mond van de kinderen. De bedoeling is, dat een ieder ontving naar evenredigheid van de grootte van zijn gezin.
 
-## IV. Vers 13-26. 
+## IV. Vers 13-26
 Terwijl zo Jakobs huis geen gebrek lijdt, drukt de honger altijd zwaarder op Egypte en de omliggende landen. De Egyptenaren brengen eerst hun geld, dan hun vee, om spijze te kopen; daar de nood nog langer voortduurt, bieden zij zichzelf en hun landen aan, als een prijs, waarvoor Jozef hen brood en zaadkoren zou geven. Deze neemt dit aan en krijgt alzo gelegenheid, om de gehele staatsinrichting van Egypte op doelmatige wijze te hervormen.
 
 ***13. En er was, gelijk de vorige twee jaar, (hoofdstuk 41:53) zo ook de volgende vijf jaar (hoofdstuk 45:11), geen brood in het gehele land; want de honger was zeer zwaar; zodat het land van Egypte, en het nabijgelegen land Kanaän, het land, waaruit de kinderenvan Israël nu gelukkig gered waren, eer de tijd kwam, dat men geen geld meer had, om in Egypte te kopen, raasden vanwege die honger. 1)***
@@ -119,7 +119,7 @@ Maar laat ons daarbij ook bedenken, dat de latere bittere gevolgen van enige dru
 
 1) De betrekking, die er tussen de Egyptenaars en hun koning van nu af bestond, wordt niet meegedeeld: om de zegeningen te vermelden, die Abrahams kleinzoon voor dat volk gehad heeft, maar voornamelijk, omdat deze een beeld is van de betrekking tussen Israël en diens koning, Jehovah. Hij, de Heere was de eigenlijke eigenaar van het land Kanaän, en de kinderen van Israël ontvingen het van Hem in leen (Leviticus. 25:33). Aan deze hun Leenheer moesten zij eveneens de vijfden geven: vooreerst de voor de priesters en Levieten bepaalde tiende (Numeri. 18:24), en vervolgens de tienden voor offermaaltijden en hoge feesten (Deuteronomium. 12:6 vv.; 14:22 vv.; 26:12 vv.)
 
-## V. Vers 27-31. 
+## V. Vers 27-31
 Na een kort overzicht over de zeventien jaar, die Jakob in Gosen gewoond heeft, gaat het verhaal tot zijn laatste levensdagen over. Als hij zijn einde voelt naderen, laat hij Jozef bij zich ontbieden en laat die zweren, dat zijn gebeente niet in Egypte, maar in Kanaän zal begraven worden.
 
 ***27. Zo, gelijk in vs.11 vv. verhaald is, woonde Israël met geheel zijn huis, in het land van Egypte, namelijk in het land Gosen, en zij waren niet als de Egyptenaars schatplichtig, maar stelden zich tot vrije bezitters daarin, en zij werden vruchtbaar, gelijk God (hoofdstuk 46:3) beloofd had, en vermeerderden nog bij Jakobs leven zeer; voornamelijk echter in de volgende tijden. (Exodus. 1:6 vv.).***

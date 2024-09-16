@@ -1,6 +1,6 @@
 VERDELGING VAN SODOM. LOTS REDDING EN ZONDE.
 
-## I. Vers 1-11. 
+## I. Vers 1-11
 De beide Engelen, welke de Heere met Abraham alleen gelaten hadden, worden in Sodom door Lot gastvrij opgenomen, en geraken in groot gevaar door de bewoners tot slachtoffers van hun afschuwelijke lusten misbruikt te worden. Lot wil tot de uiterste prijs het gevaar van hen afwenden, komt echter zelf in grote moeilijkheid. Toen sloegen de Engelen de mannen voor de deur met blindheid, zodat zij van hun voornemen moesten afzien.
 
 ***1. En die twee Engelen, nadat zij van Abraham gescheiden en verder voortgetrokken waren (hoofdstuk. 18:22), kwamen te Sodom in de avond; en Lot, die zijn tent eerst in de nabijheid van Sodom had opgeslagen (hoofdstuk. 13:12), maar later, uit lust tot gezellig leven, in de stad zelf getrokken was (hoofdstuk. 14:12), zat, zoals gewoonlijk, ook deze avond in de poort 1) te Sodom, om daar bij de samengekomenen te zijn; en als Lot hen de poort zag naderen en hen voor reizende vreemdelingen aanzag, stond hij, gastvrij als hij was, van zijn zitplaats op, hun tegemoet, en terwijl niemand van Sodom’s inwoners zich om de vreemdelingen bekommerde, boog hij zich met het aangezicht ter aarde. Zag hij nog niet, wie zij waren, toch had hij aanstonds iets edels in hun aangezicht opgemerkt, en besloot hij des te meer om zich hun lot aan te trekken, daar hij wel wist, hoe ligt hun in die ontuchtige stad iets kwaads kon bejegenen.***
@@ -79,7 +79,7 @@ In die strafoefening trad slechts hun geestelijke blindheid naar buiten, en aldu
 
 2) Ook de jongeren delen in de straf van de ouderen. Hier hebt ge een aanschouwelijk voorbeeld van hetgeen de Heere zegt in het 2de gebod, dat Hij de ongerechtigheid der vaderen bezoekt aan de kinderen tot in het derde en vierde geslacht, van hen, die Mij haten.
 
-## II. Vers 12-22. 
+## II. Vers 12-22
 Vroeg in de morgen van de volgende dag worden Lot met zijn vrouw en zijn twee dochters uitgeleid. De bruidegoms van de laatsten hebben de aanmaning om zich te redden bespot. De Heere, Die Zich weer bij hen gevoegd heeft, wijst hen naar het Moabitische gebergte, doch staat op Lots bede, hem het kleine Bela als toevluchtsoord toe.
 
 ***12. Toen zeiden die mannen, in welke hij onwetend Engelen geherbergd had (Hebr. 13:2), en die zich nu bekend maakten, tot Lot: Wie hebt gij hier nog meer? een schoonzoon, uw zonen, of uw dochters, en allen, die gij hebt, die u toebehoren, in deze stad, roep hen spoedig, breng ze uit deze plaats.***
@@ -152,7 +152,7 @@ Gemakkelijk had Lot zijn tenten kunnen opnemen en uit Sodom verhuizen; maar de s
 
 2) De kruisvaarders vonden het stadje nog onder de naam "Segon;" het was gelegen op het schiereiland, dat in het zuidoostelijk gedeelte van de Dode Zee zich uitstrekt, zeer liefelijk onder palmbomen, in de nabijheid van de Zoutsteenberg met zijn talrijke, spleten en rotskloven. In latere tijd heeft men nog palmbomen daarvan ontdekt.
 
-## III. Vers 23-29. 
+## III. Vers 23-29
 Op hetzelfde ogenblik, dat Lot zijn toevluchtsoord bereikt heeft, laat de Heere zwavel en vuur van de hemel regenen over Sodom en Gomorra. Lots vrouw, die achterom zag, komt mede om. Abraham gaat ‘s morgens vroeg naar de plaats, waar hij de vorige dag voor de Heere had gestaan en ziet de van het land opstijgende rook.
 
 ***23. De Zon ging juist op boven de aarde, als Lot te Zoar inkwam.***
@@ -211,7 +211,7 @@ Geen ongeloof of twijfel aan het woord des Heren deed Abraham zijn oog richten n
 
 Zelfs schrijvers uit de heidense oudheid, als Tacitus en Strabo, berichten iets van de bovenvermelde geschiedenis. Tacitus schrijft: "Zo ligt dan nu daar, een meer van ontzaglijke omvang, voor het oog een zee, walgelijk van smaak, door zijn dikke uitdampingen voor de nabij wonende verderfelijk; de wind beweegt het niet (wegens het drabbige van zijn wateren), en vissen of de gewone watervogels gedoogt het niet. Wat daarin geworpen wordt, draagt het op zijn oppervlakte, als ware het een vaste stof; zwemmenden en niet zwemmenden draagt het op dezelfde wijze. Op sommige tijden werpt het aardpek op. De omstreken worden gezegd eenmaal vruchtbaar en met grote steden bebouwd geweest te zijn: bliksemstralen moeten ze in brand gestoken, en het uitgedroogde land sedert zijn vruchtbaarheid verloren hebben; want al, wat er van zelf opschiet, of wat er gezaaid wordt, kruid of bloemen of hoger gewas, het is alles zwart en het verstuift als as."
 
-## IV. Vers 30-38. 
+## IV. Vers 30-38
 Lot verhuist uit eigen beweging van Zoar naar het vroeger versmade gebergte. Daar, van de wereld afgezonderd, menen zijn twee dochters, dat alle uitzicht op nakomelingschap haar ontnomen is, en leggen zij zich bij de dronken gemaakte vader. De vrucht van deze bloedschande zijn twee zonen: "Moab" en "Ammi", de stamvaders van de Moabieten en van de Ammonieten.
 
 ***30. En Lot, bij wie door Sodom’s ondergang en het verlies van vrouw en have een gehele verandering had plaats gehad, zodat hij thans liever van die mensen verwijderd leefde, toog op uit Zoar, nadat hij daar kort gewoond had, en woonde op de berg, 1) die de Heere hem eerst tot verblijfplaats had aangewezen (vs. 17), en zijn twee dochters met hem, want hij vreesde binnen Zoar te wonen. Het strafgericht Gods kan ook daar volvoerd worden, daar hij zag, hoe de mensen, nadat de eerste indruk van die ontzettende gebeurtenis was verzwakt, spoedig weer tot de vorige gruwelen terugkeren. En hij woonde in een spelonk, 2) hij en zijn twee dochters, van alle verkeer met de mensen afgesloten.***

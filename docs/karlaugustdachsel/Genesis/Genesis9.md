@@ -98,7 +98,7 @@ God toont hier op velerlei wijze Zijn goedheid, en stort Zijn barmhartigheid met
 
 Het Noach’s verbond is Elohiem-verbond, een verbond met de hele natuur en wordt daarom ook natuurverbond genoemd.
 
-## V. Vers 18-22. 
+## V. Vers 18-22
 Ten slotte wordt uit de latere levenstijd van Noach nog een gebeurtenis meegedeeld, waardoor de grondtrekken van zijn zonen, zoals deze verder in de uit hen voortkomende geslachten zich ontwikkelden, openlijk te voorschijn treden. In profetische geest spreekt daarbij de grijze vader zegen en vloek uit over zijn zonen, ieder naar zijn gedrag, zoals de geschiedenis van de volgende volkeren tot op onze tijd leert, werd beide, zegen en vloek, als vervulling aangebracht.
 
 ***18. En de zonen van Noach, die uit de ark gingen, waren a) Sem, en Cham en Jafeth, 1) en Cham is de vader van Kanaän, die in de latere geschiedenis van bijzondergewicht geworden is.***

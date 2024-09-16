@@ -1,6 +1,6 @@
 JOZEF WORDT, NA HET UITLEGGEN VAN FARAO’S DROMEN, VERHEVEN.
 
-## I. Vers 1-36. 
+## I. Vers 1-36
 Twee jaar later heeft Farao zelf tot tweemaal toe een veelbetekenende droom. Daar de Egyptische wijzen die niet kunnen verklaren, herinnert de overste van de schenkers zich de Hebreeuwse jongeman in de gevangenis. Farao laat Jozef halen, en deze legt nu niet alleen de dromen uit, maar geeft ook de koning goede raad, hoe hij in de tijd van de overvloed voor de tijd van hongersnood voorzorgen kon nemen.
 
 ***1. En het geschiedde ten einde van twee volle jaren, in welke de Heere het hart van de overste van de gevangenis tot Jozef keerde, zodat deze opziener over de gevangenen was (hoofdstuk. 39:21-23), dat Farao, de toenmalige vorst van Egypte; waarschijnlijk Osirtase II, de derde in de dynastie van Hyksos, ten gevolge van goddelijke besturing (Spreuken. 21:1) droomde, 1) en ziet, hij stond aan de rivier, 2) aan de oever van de voor Egypte’s welvaart zo gewichtige Nijl.***
@@ -125,7 +125,7 @@ Jozef geeft meer dan gevraagd was. Want niet slechts is hij uitlegger van de dro
 
 Jozef treedt hier op als voorbeeld van een echte staathuishoudkundige. Maar niet om de mens in hem te verheerlijken, maar God, die hem deze wijsheid verleend had. Ook door Jozefs leven wordt het woord bevestigd, dat de vrees voor de Heere het beginsel van wijsheid is. Welk een koninklijke geest, welk een veelomvattende blik, welk een diepe kennis van zaken spreidt hij hier ten toon!.
 
-## II. Vers 37-46. 
+## II. Vers 37-46
 Farao, die een diepe indruk ontvangen heeft van Jozefs verlichting door de Geest van God, verheft hem tot Grootvizier. Hij laat hem op plechtige wijze door de hoofdstad voeren en neemt hem geheel onder het Egyptische volk op. Hij geeft hem een Egyptische naam, en de dochter van een opperpriester tot vrouw. Jozef treedt, dertig jaar oud, in zijn verheven ambt.
 
 ***37. a) En dit woord was goed 1) in de ogen van Farao, en in de ogen van al zijn knechten, van al zijn hovelingen en raadslieden.***
@@ -194,7 +194,7 @@ Van de Egyptische kasten of standen was die van de priesters de eerste en voorna
 
 1) Om twee redenen deelt Mozes mee, hoe oud Jozef was, toen hij de regering van Egypte aanvaarde. Het is toch zeldzaam, dat ouderen zich door jongeren laten regeren. Daarom moet men aannemen, dat het door de bijzondere gunst van God geschied is, dat Jozef zonder benijd te worden, regeerde, en hem het ontzag en de eerbied onveranderd bleef na tal van jaren. De tweede reden is, dat de lezer bij zichzelf moge bedenken, de langdurige moeiten, waarmee hij op verschillende wijze gekweld is geweest. En ofschoon hij niet slecht behandeld is, toch kon een ballingschap van 13 jaar een zeer zware beproeving voor hem zijn, omdat zijn terugkeren naar zijn vaderhuis niet slechts door de slavernij, maar ook door de gevangenisstraf belemmerd werd.
 
-## III. Vers 47-57. 
+## III. Vers 47-57
 In de zeven jaren van overvloed vult Jozef Farao’s korenschuren; maar de Heere vult ook zijn huis, daar Hij hem twee zonen laat geboren worden. Daarna komen de zeven jaren van misoogst met hun nood.
 
 ***47. En het land bracht voort, gelijk Jozef voorzegd had, in de zeven jaren van overvloed met handenvol; iedere zaadkorrel gaf een handvol aren.***

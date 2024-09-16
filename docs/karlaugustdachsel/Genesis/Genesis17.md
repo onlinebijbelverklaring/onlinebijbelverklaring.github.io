@@ -1,6 +1,6 @@
 DE BELOFTE OMTRENT IZAAK WORDT DOOR DE BESNIJDENIS BEVESTIGD
 
-## I. Vers 1-14. 
+## I. Vers 1-14
 Abram ontvangt, 13 jaar na Ismaëls geboorte, in het 99ste jaar van zijn leven, weer een verschijning des Heren. Hij ontvangt, nu de tijd van de volbrenging van Gods belofte nabij, is de nieuwe naam Abraham; tevens wordt het verbond Gods meer bevestigd, door de instelling van de besnijdenis voor hem en zijn nakomelingen.
 
 ***1. Als nu Abram negenennegentig 1) jaar oud was, zo verscheen de HEERE aan Abram, 2) voor de vierde maal (hoofdstuk. 12:1-7; 13:14; 15:1) en ook nu weer in aangenome gedaante, om van aangezicht tot aangezicht met hem te spreken, en zei tot hem: Ik ben God de Almachtige! die alles vermag, ook wat met de gewone loop van de natuur en het menselijk verstand in strijd is. a) Wandel voor Mijn aangezicht, gelijk gij tot hiertoe gedaan hebt, en altijd in hoge mate doen moet en zijt oprecht, 3) of volkomen in uw offergave aan Mij, zodat Ik uw hart met niemand te delen heb.***
@@ -146,7 +146,7 @@ a) Genesis 21:2
 
 ***22. En Hij eindigde met hem te spreken; want Abraham was genoegzaam in de raadsbesluiten van genade en waarheid ingewijd; en God verdween niet plotseling van hem, maar voer zichtbaar in de aangenomen gedaante op van Abraham, opdat hem de gehele verschijning niet als een droombeeld of een gedachtenspel zou voorkomen, maar hij er zeker van zou zijn, dat God werkelijk met hem gesproken had. (hoofdstuk. 35:13 Richteren. 13:20 ).***
 
-## III. Vers 23-27. 
+## III. Vers 23-27
 Nog op dezelfde dag volbrengt Abraham het Goddelijk bevel van de besnijdenis aan Ismaël, zijn knechten en aan zichzelf.
 
 ***23. Toen nam Abraham, volkomen gehoorzamende aan het goddelijk bevel (vs. 10 vv.), zijn zoon Ismaël, en al de ingeborenen van zijn huis, en alle gekochten met zijn geld, al wat mannelijk was, onder de lieden van het huis van Abraham, en hij besneed het vlees van hun voorhuid, op dezelfde dag 1) gelijk als God met hem gesproken had. 2) Noch door valse liefde tot Ismaël, die hij aan een smartelijke zaak onderwierp, noch door de gedachte, dat hij zo al het mannelijke in zijnhuis opeens, gedurende verscheidene dagen, voor moeilijk werk ongeschikt maakte (hoofdstuk. 34:25 vv.), liet hij zich afhouden om dadelijk te doen, wat God bevolen had.***
