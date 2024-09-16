@@ -66,7 +66,7 @@ Hoe beschamend is deze koning van de Filistijnen voor Christenen, die tegenover 
 
 ***11. En Abraham zei: Want ik dacht 1) alleen is de vreze Gods in deze plaats niet, maar er heerst, gelijk elders, ruwe willekeur tegenover de vreemdeling, zodat zij mij om mijner vrouw wil, zullen doden, 2) om in het bezit van haar te komen. Zij zullen mij echter niets doen, maar integendeel mijn gunst zoeken te verwerven, wanneer ik zeg, dat zij mijn zuster is (hoofdstuk. 12:11-13).***
 
-1) Of: "indien er eens geen vreze Gods aan deze plaats ware, zo zouden zij mij om mijn vrouw doden.".
+1) Of: "indien er eens geen vreze Gods aan deze plaats ware, zo zouden zij mij om mijn vrouw doden".
 
 2) Zo vindt ieder makkelijk een verontschuldiging voor zijn zonde.
 

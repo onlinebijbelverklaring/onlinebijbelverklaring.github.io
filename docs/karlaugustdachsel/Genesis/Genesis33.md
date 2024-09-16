@@ -130,7 +130,7 @@ Had Abraham zich een graf of spelonk gekocht, Jakob kocht zich een stuk grond, o
 
 a) Genesis 12:8; 13:4
 
-1) Daarmee heeft Jakob reeds voorlopig zijn belofte (hoofdstuk. 28:20 vv.) vervuld; later volbrengt hij die op de plaats zelf, waar de Heere hem toen verschenen was (hoofdstuk. 35:6 vv.). "Vrede en rust duurt echter niet lang; want nu neigt de dag naar de avond en de duistere nacht daalt neer.".
+1) Daarmee heeft Jakob reeds voorlopig zijn belofte (hoofdstuk. 28:20 vv.) vervuld; later volbrengt hij die op de plaats zelf, waar de Heere hem toen verschenen was (hoofdstuk. 35:6 vv.). "Vrede en rust duurt echter niet lang; want nu neigt de dag naar de avond en de duistere nacht daalt neer".
 
 Toch is er tussen de aankomst in Sichem en de volgende geschiedenis een tussenruimte van ongeveer acht jaar!.
 

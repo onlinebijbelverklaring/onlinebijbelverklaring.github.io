@@ -21,7 +21,7 @@ Jakob ondervindt hier reeds, dat God dikwijls een tak tot roede gebruikt van de 
 
 2) "Op de knieën baren" is een figuurlijke uitdrukking en betekent: het kind van een ander als eigen kind aannemen en op de schoot nemen.
 
-3) Omdat men een gezin "een huis" noemde, heette het ontvangen van kinderen "gebouwd worden.".
+3) Omdat men een gezin "een huis" noemde, heette het ontvangen van kinderen "gebouwd worden".
 
 ***4. Zo gaf zij hem, in ongeduld, dat het einde van Gods wegen niet kon afwachten (vs.22 vv.) haar dienstmaagd Bilha (hoofdstuk. 29:29) tot een vrouw; 1) en Jakob, in zijn voorliefde voor Rachel op haar aandringen toegevende, ging tot haar (Bilha) in.***
 

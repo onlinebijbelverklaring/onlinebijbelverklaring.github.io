@@ -127,7 +127,7 @@ Versmade hartstocht wordt niet zelden in dodelijke haat overgezet. In de uiting 
 
 a) Psalm. 105:18
 
-1) Jozefs overwinning in zijn verzoeking toont, hoe de mens, voornamelijk de jongeman, de verzoeking moet overwinnen. De eerste voorwaarde is: "Wandel steeds als in de tegenwoordigheid van God"; de tweede: "strijd met de wapenen van het woord in het licht van recht en plicht"; de derde: "Mijd de gelegenheid", de vierde: "Wees beslist en neem, wanneer het zijn moet de vlucht met verlies van uw kleed, van uw goede naam, van uw vrijheid, van uw leven zelfs.".
+1) Jozefs overwinning in zijn verzoeking toont, hoe de mens, voornamelijk de jongeman, de verzoeking moet overwinnen. De eerste voorwaarde is: "Wandel steeds als in de tegenwoordigheid van God"; de tweede: "strijd met de wapenen van het woord in het licht van recht en plicht"; de derde: "Mijd de gelegenheid", de vierde: "Wees beslist en neem, wanneer het zijn moet de vlucht met verlies van uw kleed, van uw goede naam, van uw vrijheid, van uw leven zelfs".
 
 Jozef laat zich gewillig wegvoeren. Hij zwijgt tegenover de valse beschuldiging. Onmiskenbaar is hier ook weer de typische betekenis zichtbaar en vertoont hij hier het beeld van Hem, die, als Hij gescholden werd niet weer schold, en als Hij leed niet dreigde, maar gaf het over aan Die, die rechtvaardig oordeelt. Jozef heeft ook hier een voorbeeld gegeven, om te allen tijde op valse beschuldigingen het stilzwijgen te bewaren.
 

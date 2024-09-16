@@ -70,7 +70,7 @@ Tot besluit van Abrahams geschiedenis, wordt nog de vervulling van de belofte om
 
 ***14. En Misma (het horen), en Duma (het zwijgen), en Massa (het dragen). 1)***
 
-1) Deze drie namen pleegden de Joden bij elkaar als een spreekwoord te bezigen, naar hun betekenis: "Hoor, zwijg en verdraag.".
+1) Deze drie namen pleegden de Joden bij elkaar als een spreekwoord te bezigen, naar hun betekenis: "Hoor, zwijg en verdraag".
 
 ***15. Hadar (tent), en Thema (onbebouwde plaats), Jetur 1) (onderzoek), Nafis (herstelling), en Kedma (naar het oosten).***
 
@@ -138,7 +138,7 @@ Met het opgroeien van de knapen gaan zij reeds van elkaar; ieder kiest zich een 
 
 ***27. Als nu deze jongeren groot werden, werd Ezau, naar zijn natuur, die meer tot het wild omzwerven dan tot het stille herdersleven geschikt was, een man, verstandig op de jacht, gelijk vroeger Nimrod (hoofdstuk. 10:9) een veldman, 1) die niet veel te huis bleef, maarliever buiten in velden, op bergen en door bossen het wild opzocht; maar Jakob werd een oprecht 2) man, wonende in tenten, zorg dragende voor huishoudelijke zaken en bij het vee van zijn vader een stil leven leidende.***
 
-1) In het Hebreeuws Ish Sadéh. Een man van het veld, in de zin van: "het veld, het vrije veld beminnende.".
+1) In het Hebreeuws Ish Sadéh. Een man van het veld, in de zin van: "het veld, het vrije veld beminnende".
 
 2) In het Hebreeuws "Een man van zachte manieren." De Septuaginta vertaalt: "van bedrog afkerig." De tegenstelling is duidelijk. Ezau was een meer woest, ruw, onverschillig man. Jakob daarentegen een man van een zacht karakter, die meer van het huiselijke leven hield.
 
@@ -182,7 +182,7 @@ Maar Jakob, die verbaasd is over zo grote geringschatting van een bepaald voorre
 
 Ofschoon bij de eerste aanblik de beschrijving koud en onverschillig schijnt, toch is zij van grote betekenis. Vooreerst toch meldt zij ons de vroomheid van de heilige Jakob, daar hij zijn zinnen richtende op het hemelse leven, van het gebruik van aardse spijs afstand kon doen. Het was toch niet uit winstbejag. Door de spijs te bereiden, waarmee hij de honger had willen stillen, had hij de maag geprikkeld. Waarom hij, om het vasten uit te houden, zichzelf noodwendig geweld moest aandoen. Om het vlees op die wijze te beheersen, zou voor hem niet mogelijk zijn geweest, indien niet een geestelijk verlangen naar hoger leven in zijn boezem geschuild had.
 
-1) Gelijk Ismaël geen deel heeft aan de zegen, omdat hij uit vleselijke lust verwekt is, zo verliest Ezau de zegen, omdat hij vleselijk gezind is. Hij is een beeld van allen, die de goederen van het eeuwige leven prijsgeven voor zingenot; Jakob daarentegen moet voor hetgeen hij tegen zijn broeder deed, daar hij in de raad Gods wilde ingrijpen, voor zijn zondige listen later in de school van het lijden zwaar boeten. "De Heilige Geest wil, dat wij deze twee broeders steeds voor ogen zullen hebben en een dagelijks spreekwoord van hen maken, want te allen tijde zijn wij of Ezauïeten of Jakobieten.".
+1) Gelijk Ismaël geen deel heeft aan de zegen, omdat hij uit vleselijke lust verwekt is, zo verliest Ezau de zegen, omdat hij vleselijk gezind is. Hij is een beeld van allen, die de goederen van het eeuwige leven prijsgeven voor zingenot; Jakob daarentegen moet voor hetgeen hij tegen zijn broeder deed, daar hij in de raad Gods wilde ingrijpen, voor zijn zondige listen later in de school van het lijden zwaar boeten. "De Heilige Geest wil, dat wij deze twee broeders steeds voor ogen zullen hebben en een dagelijks spreekwoord van hen maken, want te allen tijde zijn wij of Ezauïeten of Jakobieten".
 
 Hoe nauwkeurig wordt hier de roekeloze en onheilige daad van Ezau beschreven. Hij at en dronk. Hij stond op en ging heen. Ontegenzeglijk, om daardoor te doen uitkomen, dat Ezau dit alles met zijn volle bewustzijn heeft gedaan.
 

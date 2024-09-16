@@ -81,7 +81,7 @@ Als God Abram gerechtigheid toerekent, is dit, omdat Abram deze in zichzelf mist
 
 a) Psalm. 115:11
 
-Daar het voor ons van zeer groot belang is, God als leidsman voor heel ons leven te hebben, opdat wij weten, dat niet lichtvaardig de een of andere weg op twijfelachtige wijze is begonnen, daarom bemoedigt de Heere Abram omtrent de weg van zijn roeping, en roept hem de eerste weldaad van de bevrijding in het geheugen terug, alsof Hij gezegd had: "Ik, nadat Ik mijn hand tot u heb uitgestrekt, opdat Ik u uit het doolhof van de dood zou uitvoeren, ben u met mijn gunst tot hiertoe gevolgd. Gij nu, beantwoord dit, door mij, op uw beurt, standvastig te volgen en uw geloof van het begin tot het einde toe te volmaken.".
+Daar het voor ons van zeer groot belang is, God als leidsman voor heel ons leven te hebben, opdat wij weten, dat niet lichtvaardig de een of andere weg op twijfelachtige wijze is begonnen, daarom bemoedigt de Heere Abram omtrent de weg van zijn roeping, en roept hem de eerste weldaad van de bevrijding in het geheugen terug, alsof Hij gezegd had: "Ik, nadat Ik mijn hand tot u heb uitgestrekt, opdat Ik u uit het doolhof van de dood zou uitvoeren, ben u met mijn gunst tot hiertoe gevolgd. Gij nu, beantwoord dit, door mij, op uw beurt, standvastig te volgen en uw geloof van het begin tot het einde toe te volmaken".
 
 ***8. En hij, Abram, zei: Heere, HEERE! waarbij zal ik weten, dat ik het erfelijk bezitten zal? 1) Ik twijfel niet aan uw gegeven woord, maar gevoel behoefte voor toekomstige zwakke ogenblikken, aan een staf om op te kunnen leunen.***
 

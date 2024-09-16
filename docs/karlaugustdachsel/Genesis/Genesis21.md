@@ -84,7 +84,7 @@ Dat Abraham toornig werd is zeer goed te verklaren. De toon, waarop Sara gesprok
 
 a) Rom.9:7 Hebr.11:18
 
-1) Hoe fijn wordt hier de tedere liefde Gods getekend. Waar de Heere komt, om Abraham te dringen, naar de stem van zijn vrouw te horen, daar kwetst Hij niet, zoals zij, het vaderlijk gevoel van de vader van de gelovigen, noemt Ismaël niet verachtelijk, "de zoon van de dienstmaagd," maar noemt hem met de tedere naam van "jongen.".
+1) Hoe fijn wordt hier de tedere liefde Gods getekend. Waar de Heere komt, om Abraham te dringen, naar de stem van zijn vrouw te horen, daar kwetst Hij niet, zoals zij, het vaderlijk gevoel van de vader van de gelovigen, noemt Ismaël niet verachtelijk, "de zoon van de dienstmaagd," maar noemt hem met de tedere naam van "jongen".
 
 2) Ook datgene, wat ons als verwijt en op bitse toon toegeduwd wordt, kan in een reine schaal een edele kern van waarheid bevatten, die zelfs met Gods wil overeenstemt. Zo was het hier. God bekrachtigt Abraham als Zijn eigen wil, wat hij uit de mond van Sara zo niet graag gehoord had; en Abraham buigt zich in grote zelfverloochening onder de wil van God.
 

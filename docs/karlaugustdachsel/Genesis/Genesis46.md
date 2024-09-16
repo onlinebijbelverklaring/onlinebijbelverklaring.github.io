@@ -17,7 +17,7 @@ Daar de heilige man gedwongen wordt het achtergelaten Kanaän met een ander te v
 
 1) Hiermee openbaart God aan Jakob, dat zijn offerande Hem welgevallig was. En opdat Jakob ervan overtuigd zou zijn, dat hij hier in de verordende weg is, verschijnt God hem niet alleen, maar spreekt hem ook toe, om hem te bemoedigen.
 
-2) "Jakob, Jakob." Tot tweemaal toe noemt de Heere zijn naam, en dit, opdat Jakob zeer oplettend zou zijn, op wat de Heere tot hem zou zeggen. Ook hier rekende de Heere weer met de eigenaardige toestand van Jakob. Zijn omgang met God had zich niet door die innige tederheid gekenmerkt, als die van Abraham. Door de omstandigheden van het leven waren er gedurig wolken van donkerheid opgekomen. Maar toch, zulk een heerlijke kennis van God had Jakob wel, dat hij terstond de stem van God herkent en het woord doet horen: "Ziet, hier ben ik.".
+2) "Jakob, Jakob." Tot tweemaal toe noemt de Heere zijn naam, en dit, opdat Jakob zeer oplettend zou zijn, op wat de Heere tot hem zou zeggen. Ook hier rekende de Heere weer met de eigenaardige toestand van Jakob. Zijn omgang met God had zich niet door die innige tederheid gekenmerkt, als die van Abraham. Door de omstandigheden van het leven waren er gedurig wolken van donkerheid opgekomen. Maar toch, zulk een heerlijke kennis van God had Jakob wel, dat hij terstond de stem van God herkent en het woord doet horen: "Ziet, hier ben ik".
 
 ***3. En Hij zei: a) Ik ben die God, die gij hebt aangeroepen, uw vaders God; 1) vrees niet weg te trekken naar Egypte, b) want het is geheel overeenkomstig Mijn wil, dat gij daarheen gaat, Ik zal u daar tot een groot volk maken. 2)***
 

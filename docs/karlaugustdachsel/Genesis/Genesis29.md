@@ -76,7 +76,7 @@ Labans zelfzucht komt in deze woorden treffend uit. Het komt hem zijn eer te na,
 
 Ook hier weer blijkt, dat de Heere het verachte uit het slijk opheft; want niet de schone Rachel, maar de wegens haar doffe ogen verachte Lea is bestemd, om de vóórmoeder van de Christus Gods te zijn.
 
-Ook naar haar karakter waren de zusters zeer onderscheiden. "Over het algemeen stel ik mij Lea voor, als gewoon zich te onderwerpen, en als geen onderdrukking kennende. Zij boezemt ons belangstelling en deelneming in, daar zij door de baatzuchtigheid van haar vader tot een huwelijk gedwongen wordt waarin zij weinig genoeglijke dagen te verwachten heeft. Men verblijdt zich, dat de Voorzienigheid, die niet aanziet, wat voor ogen is, gelijk de mensen, de zijde van Lea kiest, en haar vruchtbaar maakt boven haar zuster; te meer, wanneer men acht geeft op haar godsvrucht, welke zij bij de geboorte van haar zonen aan de dag legt (zie hun namen vs.32 enz.). Rachel is niet geheel zo goedhartig. Men ziet meer vuur, meer leven in alles, wat zij doet; doch niet zoveel goedaardigheid. Zij is driftig, opvliegend, ongeduldig en onbezonnen.".
+Ook naar haar karakter waren de zusters zeer onderscheiden. "Over het algemeen stel ik mij Lea voor, als gewoon zich te onderwerpen, en als geen onderdrukking kennende. Zij boezemt ons belangstelling en deelneming in, daar zij door de baatzuchtigheid van haar vader tot een huwelijk gedwongen wordt waarin zij weinig genoeglijke dagen te verwachten heeft. Men verblijdt zich, dat de Voorzienigheid, die niet aanziet, wat voor ogen is, gelijk de mensen, de zijde van Lea kiest, en haar vruchtbaar maakt boven haar zuster; te meer, wanneer men acht geeft op haar godsvrucht, welke zij bij de geboorte van haar zonen aan de dag legt (zie hun namen vs.32 enz.). Rachel is niet geheel zo goedhartig. Men ziet meer vuur, meer leven in alles, wat zij doet; doch niet zoveel goedaardigheid. Zij is driftig, opvliegend, ongeduldig en onbezonnen".
 
 ***18. En Jakob had Rachel lief; reeds de eerste ontmoeting had een diepe indruk op hem gemaakt; na de vier weken, die hij in Labans huis vertoefd had, was zij het doel van al zijn wensen; in zijn bijzondere toestand, waarin hij, geheel van het vaderhuis verwijderd, op zichzelf en op de zegen des Heren vertrouwen moest, nam hij aanstonds het voorstel aan, en hij zei: a) Ik zal u zeven 1) jaar dienen, om Rachel, uw kleinste, jongste dochter; zeven jaar dienst zal mijn gave (hoofdstuk. 34:12; Exodus 22:16,17 aan u zijn voor Rachel.***
 
@@ -112,7 +112,7 @@ Mozes bedoelt niet, dat hij een maaltijd aan het gehele volk heeft bereid, maar 
 
 ***23. En het geschiedde ‘s avonds, wanneer men gewoonlijk de bruid gesluierd tot de bruidegom leidde, dat hij niet Rachel, maar zijn dochter Lea nam; en hij bracht haar tot hem 1) in het slaapvertrek, en hij, het bedrog niet bemerkende, daar waarschijnlijk Laban met opzet de maaltijd had aangelegd, om Jakob door wijn te bedwelmen, ging tot haar in.***
 
-1) Jakob had zijn half blinde vader bedrogen, hier wordt hij door de vader van zijn bruid bedrogen. "Gij zult uw zonde kennen als zij u zal vinden.".
+1) Jakob had zijn half blinde vader bedrogen, hier wordt hij door de vader van zijn bruid bedrogen. "Gij zult uw zonde kennen als zij u zal vinden".
 
 ***24. En Laban, hetgeen hier reeds met het oog op het meegedeelde in hoofdstuk. 30:9 aangemerkt wordt, gaf haar Zilpa (bedauwende), zijn dienstmaagd, aan Lea, zijn dochter, tot een dienstmaagd. 1) (hoofdstuk. 24:61).***
 
@@ -122,7 +122,7 @@ Mozes bedoelt niet, dat hij een maaltijd aan het gehele volk heeft bereid, maar 
 
 1) Ook nu nog ziet in verscheidene Oosterse landen de bruidegom zijn bruid niet anders dan gesluierd, tot op de morgen na de bruiloft, en men zegt, dat dergelijke bedriegerijen ook nu nog wel plaats hebben.
 
-In deze geschiedenis vertoont zich zo duidelijk de goddelijke vergelding (Luk.6:38). "Jakob kende Lea niet, toen hij met haar in de echt trad, evenmin als zijn vader hem kende, toen die hem zegende. Lea volbracht het bedrog op aansporen van haar vader; Jakob had het gedaan op aandringen van zijn moeder. Hij verkreeg echter in zijn onwetendheid in Lea zijn van God hem bestemde vrouw, die de moeder van de Messias zou worden (vs.35; MATTHEUS. 1:2), evenals Izaak onwetend hem als de rechte erfgenaam van de belofte zegende. O, in hoeveel misslagen en dwaasheden van de mensen is hier en overal de onveranderlijke genade en trouw van God ingevlochten.".
+In deze geschiedenis vertoont zich zo duidelijk de goddelijke vergelding (Luk.6:38). "Jakob kende Lea niet, toen hij met haar in de echt trad, evenmin als zijn vader hem kende, toen die hem zegende. Lea volbracht het bedrog op aansporen van haar vader; Jakob had het gedaan op aandringen van zijn moeder. Hij verkreeg echter in zijn onwetendheid in Lea zijn van God hem bestemde vrouw, die de moeder van de Messias zou worden (vs.35; MATTHEUS. 1:2), evenals Izaak onwetend hem als de rechte erfgenaam van de belofte zegende. O, in hoeveel misslagen en dwaasheden van de mensen is hier en overal de onveranderlijke genade en trouw van God ingevlochten".
 
 ***26. En Laban zei: Men doet alzo niet in deze plaats, dat men de kleinste uitgeeft vóór de eerstgeborene. Om echter aan alle verwijten van Jakob, als deze: Waarom hebt gij mij dat niet vroeger gezegd, tegemoet te komen ging hij aanstonds voort:***
 

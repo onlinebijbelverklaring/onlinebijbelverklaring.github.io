@@ -198,7 +198,7 @@ a) Psalm. 105:17 Hand.7:19
 
 1) In deze benaming ligt opgesloten, dat Ruben aan het bitter zelfverwijt ten prooi is, dat hij beter op Jozef, daar deze nog slechts een knaap was, had moeten passen.
 
-2) De broeders gaven hem geen antwoord, maar zullen hem op de mond hebben geslagen en gezegd hebben: "Zwijg, help het verbergen, of het ongeluk zal u treffen.".
+2) De broeders gaven hem geen antwoord, maar zullen hem op de mond hebben geslagen en gezegd hebben: "Zwijg, help het verbergen, of het ongeluk zal u treffen".
 
 ***31. Toen namen zij Jozefs rok, en zij slachtten een geitenbok, en zij doopten de rok in het bloed.***
 
@@ -228,7 +228,7 @@ a) Genesis 42:38; 44:29,31
 
 1) "Al zijn dochters." Hieronder kunnen verstaan worden: de vrouwen van zijn zonen; hoewel dit niet waarschijnlijk is, daar in de Heilige Schrift dan meer de laatstgenoemde uitdrukking gebruikt wordt. Het is zeer wel mogelijk dat Jakob meer dochters gehad heeft, hoewel Dina slechts bij name genoemd is, om de zonde met haar gepleegd.
 
-2) Zij waren allen slechte vertroosters, (Job 16:2) die, in plaats van het hart te verlichten, de smart groter maakten, omdat deze zonen "de gehele tijd niet eens met een goed geweten tot God konden bidden.".
+2) Zij waren allen slechte vertroosters, (Job 16:2) die, in plaats van het hart te verlichten, de smart groter maakten, omdat deze zonen "de gehele tijd niet eens met een goed geweten tot God konden bidden".
 
 Hieruit blijkt hoe veelvuldig de huichelarij de mensen is aangeboren. Jakob’s zonen helpen met wat naar de toestand van de persoon volstrekt niet past. Uit piëteit toch, waarvan zij overigens zeer vreemd zijn, volbrengen zij hun plicht. Indien zij op God het oog hadden gevestigd, na hun schuld erkend te hebben, ook al hadden zij geen middel tegen het kwaad gevonden, dan zou het berouw toch enige vrucht getoond hebben. Nu echter laten zij het met een ijdele plichtpleging als met een sisser aflopen. Hieruit leren wij, hoezeer wij de huichelarij moeten ontvluchten, welke de mensen onophoudelijk in nieuwe strikken doet verward raken.
 

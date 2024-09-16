@@ -120,9 +120,9 @@ Op de derde dag, toen de Sichemieten aan de wondkoortsen nederlagen, overvielen 
 
 1) De dag van de wondkoorts. Volwassenen moeten na de besnijdenis in bed liggen en drie dagen rustig gelaten worden; de genezing volgt dikwijls eerst na 35 of 40 dagen.
 
-2) "Stoutelijk," in de zin van: "Onbeschaamd," driest.".
+2) "Stoutelijk," in de zin van: "Onbeschaamd," driest".
 
-Of: "zij overvielen de zorgeloze stad.".
+Of: "zij overvielen de zorgeloze stad".
 
 3) Op merkwaardige wijze komt deze Sichemitische "bloedbruiloft" van het Joodse fanatisme, in alle trekken met de Parijse bloedbruiloft overeen.
 
@@ -130,7 +130,7 @@ Niemand van de lezers zal er zijn, of hij verbaast zich er over, hoe onmenselijk
 
 ***26. Zij sloegen ook Hemor, en zijn zoon Sichem, op wie zij, als de schender van hun familie-eer, in het bijzonder gedoeld hadden, dood met de scherpte van het zwaard; 1)en zij namen Dina uit Sichems huis; want deze had hij, na de schending (vs.2) bij zich gehouden, en zij gingen van daar, na alzo aan hun wraakzucht voldaan te hebben.***
 
-1) Het listig karakter van Jakob is bij Simeon en Levi in sluwheid, en de ijver voor de hoge roeping van het uitverkoren geslacht in kwaadaardigheid ontaard. "De gebeurtenis toont ons in een voorbeeld al de dwalingen, tot welke het geloof aan de hoge voorrang van Israël, wanneer het door vleselijk gezinde mensen ruw opgevat wordt, in de loop der geschiedenis gehad heeft.".
+1) Het listig karakter van Jakob is bij Simeon en Levi in sluwheid, en de ijver voor de hoge roeping van het uitverkoren geslacht in kwaadaardigheid ontaard. "De gebeurtenis toont ons in een voorbeeld al de dwalingen, tot welke het geloof aan de hoge voorrang van Israël, wanneer het door vleselijk gezinde mensen ruw opgevat wordt, in de loop der geschiedenis gehad heeft".
 
 ***27. De zonen van Jakob, kwamen over de verslagenen, en plunderden de stad, 1) zodat zij volkomen wraak oefenden, omdat zij hun zuster verontreinigd hadden. 2)***
 

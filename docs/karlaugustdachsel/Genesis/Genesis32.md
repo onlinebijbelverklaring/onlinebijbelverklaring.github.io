@@ -181,7 +181,7 @@ Daarop klonk het plechtig en beslissend van de lippen van de Bestrijder, op de t
 
 2) Had de Heere willen antwoorden, zo zou hij gezegd hebben: "Ik zal zijn, die Ik zijn zal"; het antwoord wordt echter teruggehouden, tot het enige eeuwen later Mozes ten deel wordt. (Exodus. 3:13 vv.).
 
-Trapsgewijze heeft God, de Heere, zich aan zijn oude volk geopenbaard. Hoe langer hoe meer wordt het Wezen Gods verklaard totdat Johannes kon schrijven: "De Eengeborene, die in de schoot van de Vader was, die heeft Hem ons verklaard.".
+Trapsgewijze heeft God, de Heere, zich aan zijn oude volk geopenbaard. Hoe langer hoe meer wordt het Wezen Gods verklaard totdat Johannes kon schrijven: "De Eengeborene, die in de schoot van de Vader was, die heeft Hem ons verklaard".
 
 3) Jakob ontvangt niet en ontvangt toch wel wat hij begeert, ja ontvangt meer dan hij begeert. Naar de naam vraagt hij, en hij ontvangt de uitstraling van die naam, van het Goddelijke Wezen. Zo doet God altijd. Waar hij schijnbaar de beden van zijn kinderen niet verhoort, daar ligt dit in de meeste gevallen aan ons, omdat wij het niet opmerken, dat wij de verhoring op een andere en naar onze behoeften en toestanden beter berekende wijze, ontvangen.
 
@@ -191,7 +191,7 @@ Trapsgewijze heeft God, de Heere, zich aan zijn oude volk geopenbaard. Hoe lange
 
 2) Een dergelijke uitroep van verbazing lezen wij ook later van Gideon (Richteren. 6:22) en Manoach (Richteren. 13:22)
 
-3) "Mijn ziel" staat hier voor "mijn leven.".
+3) "Mijn ziel" staat hier voor "mijn leven".
 
 Meermalen had de Heere reeds op Jakob’s hart gewerkt, maar telkens zonk hij weer in zijn natuurlijke leven terug, en vergat hij de Heere. Pniël is de plaats van zijn redding. God laat de vrees van de dood over zijn ziel komen en dwingt hem tot de worsteling. Jakob overwint alleen, omdat God hem zich laat overwinnen, en in de grond van de zaak heeft God Jakob overwonnen en gedood, en een nieuwe mens Israël verwekt. Die nacht was Israël’s Kerstnacht. Verminkt het leven ingegaan (MATTHEUS.18:8), leeft hij van nu aan voor God, de God van de waarheid. Die plaats zal hij evenmin vergeten, als Johannes het tiende uur vergat. (Johannes 1:40).
 

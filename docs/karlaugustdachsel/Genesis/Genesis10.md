@@ -19,7 +19,7 @@ a) 1 Kronieken 1:5
 
 ***5. Van deze nakomelingen van Jafeth zijn verdeeld de eilanden van de volken, de heidense aan de Middellandse zee wonende stammen, die van daar verder naar Midden-Europa trokken, in hun landschappen, elk naar zijn spraak (de gemeenschappelijke taalstam van deze volken heet de Indo-Germaanse), naar hun huisgezinnen, onder hun volken.***
 
-Alzo stammen van Jafeth af niet alleen de Indiërs, Meden, Armeniërs en de volken, die van de Kaspische zee tot aan de zee van Azof wonen, maar ook de Grieken, Spanjaarden, Galliërs, Brittanniërs en Germanen. "De nauwkeurigheid van de in deze aller oudste overlevering gegevene volksvertakkingen, wordt steeds door de nieuwste navorsingen meer bevestigd. Daarbij is nog op te merken, dat onze volkerenlijst slechts de oorspronkelijke volken aangeeft, uit wier vermenging de historische volken zijn voortgekomen.".
+Alzo stammen van Jafeth af niet alleen de Indiërs, Meden, Armeniërs en de volken, die van de Kaspische zee tot aan de zee van Azof wonen, maar ook de Grieken, Spanjaarden, Galliërs, Brittanniërs en Germanen. "De nauwkeurigheid van de in deze aller oudste overlevering gegevene volksvertakkingen, wordt steeds door de nieuwste navorsingen meer bevestigd. Daarbij is nog op te merken, dat onze volkerenlijst slechts de oorspronkelijke volken aangeeft, uit wier vermenging de historische volken zijn voortgekomen".
 
 ## II. Vers 6-20
 Hierop volgt de geslachtstafel van Cham, wiens nakomelingen dikwijls met het rijk Gods in aanraking kwamen, in ander opzicht er dus te verder van verwijderd waren, daar zij noch verwachtingen als Jafeth, noch beloften als Sem hadden, maar door de volkeren uit beide stammen werden overwonnen en onderdrukt. (hoofdstuk. 9:25).

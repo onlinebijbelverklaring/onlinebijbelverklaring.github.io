@@ -170,7 +170,7 @@ Zó waren zij door vrees aangetast, dat, toen onderweg één het geld in zijn za
 
 ***37. Toen sprak Ruben, de weekhartigste onder hen, (hoofdstuk. 37:21 vv.) gelijk mensen van zijn soort (hoofdstuk. 35:22) in de regel door een zekere goedhartigheid zich onderscheiden, tot zijn vader, zeggende: Dood twee van mijn zonen, (hoofdstuk. 46:9), zo ik hem tot u niet terugbreng, geef hem Benjamin in mijn hand, en ik zal hem weer tot u brengen. 1)***
 
-1) Door zijn woorden heen klinkt het bewustzijn, dat hij Jozef eens had willen redden en tot zijn vader had willen terugbrengen; maar "het is zeer ongerijmd wat hij zegt, en niet wijs van hem gesproken.".
+1) Door zijn woorden heen klinkt het bewustzijn, dat hij Jozef eens had willen redden en tot zijn vader had willen terugbrengen; maar "het is zeer ongerijmd wat hij zegt, en niet wijs van hem gesproken".
 
 In zijn woorden merken wij meer heldhaftigheid dan verstand op. Wat baatte het de vader zulk een pand, zijn eigen kleinzonen, te bezitten? En herinnerde dan Ruben zich niet, dat hij vroeger, ondanks zijn goede wil, Jozef toch niet had kunnen terugbrengen? (vrgl. hoofdstuk. 43:8 vv.).
 

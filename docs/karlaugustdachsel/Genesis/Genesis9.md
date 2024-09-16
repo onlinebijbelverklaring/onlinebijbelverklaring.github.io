@@ -10,7 +10,7 @@ GOD BEVESTIGT ZIJN VERBOND DOOR DE REGENBOOG.
 
 ***3. Al wat zich roert, dat levend is, zij u tot spijze. 1) Ik heb het u al gegeven, gelijk het groene kruid, dat eertijds wellicht de enige spijze was, maar nu voor een zo veel zwakker geslacht, dat krachtiger voedsel, dat vleesspijs behoeft, slechts als toespijs dienen zal.***
 
-1) Volgens veler gevoelen werd voor de zondvloed het vlees van de dieren niet gegeten. Calvijn tekent op deze plaats aan, dat de bewijsvoering hem niet vast genoeg is. "Want," zegt hij, "daar de offeranden aan God gewijd geslacht werden, en het vrij stond de wilde beesten te doden uit wier huiden zij, voor zich klederen en tenten maakten, zie ik niet in, welke godsdienstplicht hen verhinderde van het vlees gebruik te maken. Maar" zegt hij "omdat het van weinig belang is, wie gelijk heeft, stel ik ook niets vast.".
+1) Volgens veler gevoelen werd voor de zondvloed het vlees van de dieren niet gegeten. Calvijn tekent op deze plaats aan, dat de bewijsvoering hem niet vast genoeg is. "Want," zegt hij, "daar de offeranden aan God gewijd geslacht werden, en het vrij stond de wilde beesten te doden uit wier huiden zij, voor zich klederen en tenten maakten, zie ik niet in, welke godsdienstplicht hen verhinderde van het vlees gebruik te maken. Maar" zegt hij "omdat het van weinig belang is, wie gelijk heeft, stel ik ook niets vast".
 
 ***4. Doch het vlees met zijn ziel, dat is zijn bloed, zult gij niet eten, geen dier, waarin nog leven was en niet op gewone wijze geslacht, mocht gegeten worden maar ook het bloed zelf niet. (Hand. 15:20, Leviticus 3:17 ).***
 
@@ -18,7 +18,7 @@ GOD BEVESTIGT ZIJN VERBOND DOOR DE REGENBOOG.
 
 1) Volgens een afschuwelijke gewoonte in de oudheid, welke nog in Abyssinië bestaat, werden van levende dieren stukken afgesneden en door vuur verteerd; dit was misschien ook vóór de zondvloed (hoofdstuk. 6:4) in zwang.
 
-2) Op deze plaats is tegelijk een ander, nog dieper liggende grond aangegeven, waarom de mens van het bloed zich onthouden moet: "het bloed is de verzoening voor het leven.".
+2) Op deze plaats is tegelijk een ander, nog dieper liggende grond aangegeven, waarom de mens van het bloed zich onthouden moet: "het bloed is de verzoening voor het leven".
 
 3) Volgens deze plaats mogen wij doden of uitroeien de dieren, die voor ons leven, of in andere opzichten ons schadelijk zijn.
 
@@ -94,7 +94,7 @@ Dat heet in de Schrift het gedenken Gods, als wij gevoelen en gewaar worden dat 
 
 1) Een teken is datgene, dat door de zinnen begrepen, maakt dat wij tot kennis van iets anders komen.
 
-God toont hier op velerlei wijze Zijn goedheid, en stort Zijn barmhartigheid met bijzondere vreugde uit, zoals een moeder, die aan haar verdrietig kind vele goede woorden geeft en liefelijk ermee schertst, totdat het eindelijk het huilen vergeten is en weer lachen moet.".
+God toont hier op velerlei wijze Zijn goedheid, en stort Zijn barmhartigheid met bijzondere vreugde uit, zoals een moeder, die aan haar verdrietig kind vele goede woorden geeft en liefelijk ermee schertst, totdat het eindelijk het huilen vergeten is en weer lachen moet".
 
 Het Noach’s verbond is Elohiem-verbond, een verbond met de hele natuur en wordt daarom ook natuurverbond genoemd.
 

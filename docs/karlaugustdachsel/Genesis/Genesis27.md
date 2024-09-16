@@ -87,7 +87,7 @@ Op drie dingen rekende zij, waarop zij eigenlijk haar gehele aanslag tegen haar 
 
 ***20. Toen zei Izaak, die wel Ezau met verlangen tegemoet zag, maar niet begrijpen kon, dat hij thans reeds van de jacht kon teruggekeerd zijn, en het eten kon bereid hebben, tot zijn zoon: Hoe is dit, dat gij het zo haast gevonden hebt, mijn zoon? En hij zei, nu reeds zozeer in zijn rol thuis, dat die vraag hem niet meer in verlegenheid bracht: Omdat de HEERE, uw God 1) dat heeft doen ontmoeten voor mijn aangezicht; Hij heeft mij bijzondere voorspoed gegeven, opdat gij mij zegenen zou.***
 
-1) De zonde van Jakob is groot; zijn bedrog vreselijk; maar dat hij hier nog van de "HEERE God" durft spreken, is het zwaarste in zijn zonde. Hij noemt de naam van de Alwetende, en hij steelt, en liegt, en bedriegt; hij noemt de rechtvaardige Vergelder; en toch hij denkt niet aan terugkeren. "Hij misbruikt de naam des Heren tot ijdelheid, het heiligste, om aan woorden van bedrog ingang te verschaffen.".
+1) De zonde van Jakob is groot; zijn bedrog vreselijk; maar dat hij hier nog van de "HEERE God" durft spreken, is het zwaarste in zijn zonde. Hij noemt de naam van de Alwetende, en hij steelt, en liegt, en bedriegt; hij noemt de rechtvaardige Vergelder; en toch hij denkt niet aan terugkeren. "Hij misbruikt de naam des Heren tot ijdelheid, het heiligste, om aan woorden van bedrog ingang te verschaffen".
 
 ***21. En Izaak zei tot Jakob, die hij nog niet voor Ezau kon houden, daar de stem hem vreemd was: Nader toch, dat ik u betaste, mijn zoon! of gij mijn zoon Ezau zelf zijt, of niet? 1)***
 
@@ -198,7 +198,7 @@ Ezau onderscheidt twee zaken. Hij dacht, dat na het verkopen van zijn recht, hem
 
 1) De tranen, die uit wraakgierigheid, wangunst, vleselijke begeerten en wereldse zorgen voortkomen, veroorzaken de dood. 2 Corinthiërs 7:10).
 
-Zijn fiere en vrije geest kan de gedachte aan onafhankelijkheid en onderdanigheid niet dragen. Hij, die slechts zijn eigen hartstochten tot dusverre als meesters gehoorzaamde, hij kan en wil geen andere erkennen. Daarom wordt het hem bij Isaak’s besliste uitspraak zo naamloos wee om het hart, dat hij, de sterke en forse man, hij, de kloeke en wilde jager, uitbarst in tranen, en, in de spijt over grievende terugstelling, luid en heftig, als het dwingend en onstuimig kind, gaat wenen. Snikkend vraagt hij nog eenmaal: "hebt gij maar deze een zegen, mijn vader? zegen mij, ook mij; mijn vader! en Ezau hief zijn stem op en weende.".
+Zijn fiere en vrije geest kan de gedachte aan onafhankelijkheid en onderdanigheid niet dragen. Hij, die slechts zijn eigen hartstochten tot dusverre als meesters gehoorzaamde, hij kan en wil geen andere erkennen. Daarom wordt het hem bij Isaak’s besliste uitspraak zo naamloos wee om het hart, dat hij, de sterke en forse man, hij, de kloeke en wilde jager, uitbarst in tranen, en, in de spijt over grievende terugstelling, luid en heftig, als het dwingend en onstuimig kind, gaat wenen. Snikkend vraagt hij nog eenmaal: "hebt gij maar deze een zegen, mijn vader? zegen mij, ook mij; mijn vader! en Ezau hief zijn stem op en weende".
 
 Wel is Ezau hier het beeld van de zondaar die, als Judas later, berouw heeft, maar geen berouw, hetwelk een onberouwelijke bekering werkt.
 
@@ -245,7 +245,7 @@ Rebekka werd teleurgesteld. Ezau’s toorn bleef langer dan zij verwacht had. Re
 
 Zij had met smart het onheilig huwelijk van haar zoon met de inlandse dochters gezien, dit misschien niet kunnen weren; maar toch daaruit begrepen, hoe waar de voorspelling Gods was, die, eenmaal tot haar gekomen, ook door deze echtverbintenis Ezau’s werd bevestigd. Evenmin als er een zondige gemeenschap kan zijn tussen God en de wereld, tussen Christus en de Belial, evenmin mag het uitverkoren volk, dat een afgezonderde stelling en erfgoed heeft, zich met de kinderen-hoort het, gij Christenen! die het huwelijk met rijke wereldlingen voor uw zonen en dochters zoekt-van de wereld vermengen. Dat is een heilige eis voor het nageslacht van Abraham, die door God uit het land van zijn vaderen was afgezonderd, en die door het huwelijk van zijn zoon duidelijk had getoond, hoe zeer hij die eis had begrepen en opgevolgd.
 
-"Ik heb verdriet," in de zin van "ik heb een walg aan mijn leven.".
+"Ik heb verdriet," in de zin van "ik heb een walg aan mijn leven".
 
 2) Rebekka vervalt soms tot die fout, welke aan levendige en vurige gestellen altoos eigen is. Zij zijn in de omgang, in de vriendschap, en de liefde, zij zijn in alles voortreffelijk, zij zijn getrouw in hun beroep. Maar laat er iets gebeuren, hetwelk zij niet verwacht hadden; laat hun een plotseling ongeluk overkomen; laat hen op enigerlei wijze gevoelig worden aangegrepen-menigmaal barsten zij dan in al te luide klachten uit; dan worden zij ontevreden met hun lot, dan kunnen zij zelfs het leven als een last beschouwen.
 

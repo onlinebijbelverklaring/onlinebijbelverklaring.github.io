@@ -102,7 +102,7 @@ Wellicht zal het het wijste zijn om te erkennen, dat de ligging van het Paradijs
 
 Arbeid is voor de mens geen straf maar een zegen; zo was de eerste mens in Eden gesteld, om vrij van vermoeidheid en onrust, die hij eerst later zou leren kennen, de in hem gelegde krachten te ontwikkelen en te gebruiken.
 
-Het "bewaren," dat hem werd opgedragen "toont aan dat reeds destijds de in de natuur bestaande tegenstellingen met haar belemmerende krachten, om heilzaam te werken, door de mens moesten worden beheerst. Toen evenwel bood de natuur aan de inspanning van de mensen geen onoverwinnelijke tegenstand, gelijk nu dikwijls plaats heeft.".
+Het "bewaren," dat hem werd opgedragen "toont aan dat reeds destijds de in de natuur bestaande tegenstellingen met haar belemmerende krachten, om heilzaam te werken, door de mens moesten worden beheerst. Toen evenwel bood de natuur aan de inspanning van de mensen geen onoverwinnelijke tegenstand, gelijk nu dikwijls plaats heeft".
 
 ***16. En de Heere God gebood de mens, zeggende: van alle bomen in deze hof zult gij vrijelijk, (letterlijk voorzeker), 1) eten, ook van de boom des levens in het midden van de hof.***
 
@@ -135,7 +135,7 @@ God maakte uit de eerste mens een tweede, bij de man de vrouw, en regelt de betr
 
 ***19. Want als de Heere God uit de aarde al het gedierte van het veld, en al het gevogelte van de hemel gemaakt had, (hoofdstuk. 1:24 en 25) zo bracht Hij die, om de mens over de dieren ten heerser te stellen, en het gedierte hem te onderwerpen; ook, opdat de mens van zijn wijsheid bewust zou worden en van het in hem gelegde spraakvermogen het eerste gebruik zou maken, tot Adam, om te zien, hoe hij ze noemen zou: en zo als Adam alle levende ziel noemen zou, dat zou haar naam zijn. 1)***
 
-1) "Waarom moest Adam de dieren namen geven? Tot bewijs, dat hij, onder God, hun wettige heer en eigenaar was. Wat ons eigendom is, geven wij een naam. Zo zijn de ouders de naamgevers van hun kinderen, zo geven de uitvinders namen aan hun uitvindingen, en zij hebben er recht toe. Ook de Heer veranderde Abram’s, Saraï’s en Jakob’s namen, toen Hij deze zich ten bijzondere eigendom stelde. Ook zullen zij, die van de Heere zijn, nieuwe namen ontvangen, zo als reeds met Simon, Johannes en Jakobus geschiedde.".
+1) "Waarom moest Adam de dieren namen geven? Tot bewijs, dat hij, onder God, hun wettige heer en eigenaar was. Wat ons eigendom is, geven wij een naam. Zo zijn de ouders de naamgevers van hun kinderen, zo geven de uitvinders namen aan hun uitvindingen, en zij hebben er recht toe. Ook de Heer veranderde Abram’s, Saraï’s en Jakob’s namen, toen Hij deze zich ten bijzondere eigendom stelde. Ook zullen zij, die van de Heere zijn, nieuwe namen ontvangen, zo als reeds met Simon, Johannes en Jakobus geschiedde".
 
 De man is door God zelf "Adam" (van Adamah, d.i. aarde) genoemd.
 

@@ -5,7 +5,7 @@ Teruggekeerd tot de plaats tussen Bethel en Al waar zij vroeger gelegerd waren, 
 
 ***1. Alzo toog Abram op 1) uit Egypte, waar hij zich slechts voor een tijd had willen ophouden en in naar het zuiden van Kanaän, dezelfde streek, die hij vroeger wegens honger verlaten had (hoofdstuk. 12:10); hij en zijn vrouw, en al wat hij had, 2) en Lot, die eveneens in Egypte geweest was, met hem.***
 
-1) Uit Egypte naar Kanaän gaan, heet altijd: "optrekken", van Kanaän naar Egypte gaan: "aftrekken, nederwaarts gaan.".
+1) Uit Egypte naar Kanaän gaan, heet altijd: "optrekken", van Kanaän naar Egypte gaan: "aftrekken, nederwaarts gaan".
 
 2) Dit is niet zonder bedoeling. Hiermee wil de Schrift nadrukkelijk doen uitkomen, dat, door de trouwe zorg van zijn Verbondsgod, Abram ongedeerd uit Egypte was teruggekomen. Niets werd gemist.
 
