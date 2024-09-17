@@ -1,4 +1,4 @@
-BOAZ? HUWELIJK MET RUTH WORDT GESLOTEN EN GEZEGEND.
+BOAZ' HUWELIJK MET RUTH WORDT GESLOTEN EN GEZEGEND.
 
 ## I. Vers 1-17 
 Nog in de morgen na die nacht, toen Ruth bij Boaz op de dorsvloer geweest was, begeeft Boaz zich naar de poort van de stad Bethlehem, handelt hier in aawezigheid van het volk en van tien geroepen oudsten met de losser. Deze doet afstand van zijn recht op het stuk grond, om de weduwe van Machlon niet te huwen. Boaz verkrijgt alzo zowel dat land tot een bezit als Ruth tot vrouw, opdat hij bij haar een nakomeling voor haar gestorven man verwekt en de naam en het geslacht van de eerste bewaard blijven in Israel. Het huwelijk wordt met een zoon gezegend, over wiens geboorte de vrouwen in Bethlehem Naomi gelukkig prijzen en die Isa?, de vader van David, tot zijn nakomeling heeft.
