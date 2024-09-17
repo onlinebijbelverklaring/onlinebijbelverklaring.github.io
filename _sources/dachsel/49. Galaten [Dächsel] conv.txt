@@ -3,7 +3,7 @@ DE BRIEF VAN DE APOSTEL PAULUS AAN DE GALATEN
 
 De gelijkheid tussen de lezers van de brief aan de Romeinen en die aan de Galaten is duidelijk genoeg. Met deze komt in deze tijd overeen de toestand van de Roomse kerk bij de volken, die  vermengd  zijn  uit  de  beide  nationaliteiten  van  de  Romeinen  en  van  de  Kelten.  De overeenstemming van de inhoud van de beide brieven valt nog duidelijker in het oog. Men zegt  gewoonlijk:  wat  in  de  brief  aan  de  Romeinen  voorkomt  als  een  naar  alle  kanten uitgewerkte ontwikkeling van de Paulinische leer, zien wij in de brief aan de Galaten nog in de eerste, maar reeds met alle beslistheid getrokken grondlijnen voor ons. Toch mogen wij naast de overeenkomst van de inhoud aan de andere kant het verschil niet voorbijzien, een verschil, zoals dat past bij de eigenaardigheid, die bij gelijkheid van de lezers toch aanwezig is.  Behandelt  de  apostel  in  de  brief  aan  de  Romeinen  de  éne  grote  vraag  van  de rechtvaardiging van de mensen voor God en voert hij die door op een alles omvattende, de hele  wereldgeschiedenis  omgevende  manier,  zo  is  de  vrijheid  van  een  kind  van  God,  de vrijheid van een Christen, rustend op het geloof of het gebonden zijn aan Jezus Christus, de wezenlijke inhoud van de brief aan de Galaten. Niet minder dan elf keer wordt het begrip van vrijheid  daarin  gevonden  en  ongeveer  even  veel  keer  het  daaraan  tegenovergestelde  van dienstbaarheid.
 
-HOOFDSTUK 1
+---HOOFDSTUK---1
 
 OVER DE ONBESTENDIGHEID VAN DE GALATEN EN PAULUS’ APOSTELSCHAP
 
@@ -187,7 +187,7 @@ tussen die indruk, die hij toen op de gemeenten van Judea maakte en het hatelijk
 
 De  verheerlijking  van  God  over  zijn  bekering  heeft  weer  veel uitgewist  van  de  vroeger veroorzaakte ergernis.
 
-HOOFDSTUK 2
+---HOOFDSTUK---2
 
 PAULUS’ VERGELIJKING MET DE APOSTELEN. STRIJD MET PETRUS’ PREDIKING OVER DE RECHTVAARDIGING DOOR HET GELOOF
 
@@ -359,7 +359,7 @@ De verkeerdheid van Petrus was een fout in zijn praktisch gedrag, niet in de lee
 
 Daarentegen maakte Paulus zich de Judaïsten tot vijanden, wier plannen hij in het middelpunt van de Christelijke zending onder de heidenen te Antiochië verijdeld had. Wij mogen ons daarom niet verwonderen, als wij nu in de Paulinische gemeente-stichtingen afgezondenen van deze partij zien indringen, die deels, zoals in Galatië, onder het voorgewende gezag van Petrus of Jakobus het Judaïsme probeerden in te voeren, deels zoals te Korinthe, meer direct de  waardigheid  en  persoonlijkheid  van  de  apostel aanvielen,  die  overal als  tegenstanders tegenover hem optraden (1 Kor. 16: 9), als valse broeders in gevaren brachten (2 Kor. 11: 26), misvormingen en lasteringen van zijn leer verbreidden, zoals te Rome (Rom. 3: 8; 6: 1 Ro 3. 8), waar Paulus nog als gevangene door hun drijven bemoeilijkt werd Fil. 1: 15 vv. ; 3: 2 v.). Zo zeker als deze afgezondenen, met name te Korinthe, met een aanbevelend schrijven uit de eerste gemeente optraden, zo zeker als zij ook overigens op het gezag van de eerste apostelen hun bewerkingen beproefden, zo weten wij toch zeker niet nader, in welke betrekking die leden van de hoofdgemeente, die in vs. 12 als "die van Jakobus" worden voorgesteld, tot die zo verre zich uitstrekkende beroeringen stonden. Is het nu veel meer iets passiefs dan iets actiefs geweest, dan steeg deze passiviteit toch tot een zo hoge graad als wij die bij Hand. 25: 5, 8 en 28: 31 hadden op te merken. Daarentegen waren dergelijke Judaïsten, zoals zij in Hand. 15: 1 en 5 gekarakteriseerd worden, actief werkzaam. Door deze lieten zich dan ook zeker degenen misleiden, zoals wij ze in Hand. 11: 2 v. ; 21: 20 v. ontmoeten en hoe nu ook Barnabas aan deze Judaïstische afgunst tegen de grote apostel deelnam, hebben wij reeds bij Hand. 18: 23 opgemerkt.
 
-HOOFDSTUK 3
+---HOOFDSTUK---3
 
 DE RECHTVAARDIGHEID VAN HET GELOOF BEVESTIGD, HET JUISTE GEBRUIK VAN DE WET AANGEWEZEN
 
@@ -686,7 +686,7 @@ Maar hoe kan hij zeggen: die hebben Christus aangetrokken, omdat zij gedoopt zij
 
 Zo maakt de blinde de zon niet tot iets anders dan zij is, al geeft zij hem geen licht; zo is een en hetzelfde voedsel voor de gezonde voedend en verkwikkend, maar voor de zieke een middel om zijn ziekte te verergeren.
 
-HOOFDSTUK 4
+---HOOFDSTUK---4
 
 NADERE VERKLARING VAN DE GERECHTIGHEID DOOR DE WET
 
@@ -949,7 +949,7 @@ Hiermee besluit Paulus de allegorie; hij heeft echter uit de woorden dienstmaagd
 
 De apostel stelt in dit vers voor, wat wij volgens de allegorische betekenis van de plaatsen tot hiertoe beschouwd hebben, om daarop dan de vermaning, die volgt, te bouwen. Het staat vast, zegt hij, dat wij niets gemeen hebben met Ismaël, de zoon van de dienstmaagd, maar dat wij in Izaäk, de zoon van de vrije, onze voorganger hebben. Wat wij nu door Gods genade zijn, dat moeten wij ons niet door boze mensen laten ontnemen, dat moeten wij nog veel minder lichtzinnig zelf prijs geven.
 
-HOOFDSTUK 5
+---HOOFDSTUK---5
 
 VERMANING TOT HET RECHT GEBRUIKEN VAN DE CHRISTELIJKE VRIJHEID EN TOT GOEDE WERKEN
 
@@ -1218,7 +1218,7 @@ Er is niet een dorp, zo klein en nietig, waar niet een of twee boeren zijn, die 
 
 Het is geen beleefde wending van de rede dat: "laat ons niet zoekers zijn van ijdele eer", maar de diepste ernst, terwijl Paulus daarbij wel aan zichzelf denkt.
 
-HOOFDSTUK 6
+---HOOFDSTUK---6
 
 HET BEOEFENEN VAN ZACHTMOEDIGHEID EN MILDDADIGHEID
 

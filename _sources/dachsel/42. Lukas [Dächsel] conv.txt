@@ -3,7 +3,7 @@ HET EVANGELIE VAN LUKAS
 
 Wat Lukas voor de kerk als Evangelist is geworden, vooral ook in zijn geschriften - het derde Evangelie en de Handelingen der Apostelen - dat is hij voor haar geworden door de genade van God in Christus en door de gave van de Heilige Geest. Wat het menselijk middel betreft is hij dat vooral geworden door de omgang met zijn leermeester Paulus en door zijn delen in diens	groot	eigenaardig	geloofsinzicht.	Zijn	geschriften	zijn	geheel	naar	de beschouwingswijze van Paulus vervaardigd. Waarschijnlijk ontstond zijn voorstelling van de Evangelische  geschiedenis  onder  diens  ogen,  zoals  eveneens  de  Evangelist  Markus  zijn Evangelie onder de ogen van Petrus heeft vervaardigd. En heeft de Apostel ook niet juist het Evangelie van Lukas zelf bedoeld, toen hij zich op zijn Evangelie beriep (Rom. 2: 16. 2 Tim. 2: 7), dan bedoelde hij toch zeker een bewerking van de Evangelische boodschap, zoals die ten  slotte  haar  geschiedkundige  voorstelling  in  het  Evangelie  van  Lukas  gevonden  heeft. Lukas is de Paulinische Evangelist van de kerk.
 
-HOOFDSTUK 1
+---HOOFDSTUK---1
 
 JOHANNES’ GEBOORTE EN JEUGD
 
@@ -541,7 +541,7 @@ Het is merkwaardig zoals de laatste Messiaanse voorspelling van het Oude Testame
 
 80. En het kind, waarvan al in vs. 66 werd gezegd dat de hand van de Heere met hem was, groeide op en werd gesterkt in de geest, onder de verzorging en leiding van zijn godvruchtige en vrome ouders. Vooral openbaarde zich dit zijn sterk worden in de Geest door ontwikkeling van de macht van de wil over het vlees en de lichamelijkebegeerten en behoeften. Al in zijn jeugd bereidde hij zich met alle strengheid en onthouding van de wereld tot zijn toekomstige roeping voor en was hij in de woestijnen en de onbewoonde streken bij Hebron, tot den dag van zijn vertoning  aan Israël (Hoofdstuk 3: 1 v. ) volgens de wil van God, die hem het daarvoor geschikte uur openbaarde.
 
-HOOFDSTUK 2
+---HOOFDSTUK---2
 
 CHRISTUS’ GEBOORTE, BESNIJDENIS, VOORSTELLING EN GESPREK IN DE TEMPEL
 
@@ -1087,7 +1087,7 @@ op  dat  onze  Heer  in  Zijn  jongelingsjaren  in  het  timmerwerk  is  bezig  
 
 Niet met alle aanhalingen, door Dächsel ons gegeven, over de ontwikkeling van het Kind, vooral niet  met  die  welke  over  Zijn  zelfbewustzijn  handelen,  kunnen  wij instemmen.  De Christus is "God geopenbaard in het vlees", God en mens beide in enigheid van de persoon; toch is het ons niet mogelijk, ten einde de éénheid begrijpelijk te maken, elke onderscheiding op te geven. Niet God is gestorven, maar de mens Jezus Christus; evenwel aanbidden wij in de Kruiseling het eeuwig Woord. Zo dient ook hier onderscheiden te worden de menselijke ontwikkeling en het goddelijke, dat voor vermindering noch vermeerdering vatbaar is. Bij de gehoorde beschouwingen komt ons de vraag voor: hoe kan Christus Gods Zoon zijn en het zelfbewustzijn ooit ontbroken hebben? Hoe was het mogelijk, dat God niet zou weten God te zijn?
 
-HOOFDSTUK 3
+---HOOFDSTUK---3
 
 JOHANNES’	PREDIKING	EN	GETUIGENIS	VAN	CHRISTUS.	DOOP	EN GESLACHTSREGISTER VAN CHRISTUS
 
@@ -1311,7 +1311,7 @@ Wanneer  nu  hier  onmiddellijk  van  David  twee  lijnen  afstammen,  aan  de  
 
 Messias zou voortkomen. In Sealthiël en Zerubbabel komen vervolgens beide lijnen tezamen, in een gewichtig ontwikkelingspunt van de geschiedenis, dat op Christus, de waren leidsman uit Babel naar het land van de belofte heen wijst. Dit bij elkaar komen wordt herhaald, nadat beide lijnen weer uiteengelopen zijn, aan het slot in Jozef en Maria, opdat de belofte in 2 Sam. 7: 12 vv. nog volkomener zou worden verwezenlijkt. Het samenkomen gebeurt ook hier, evenals ten tijde van Sealthiël 3: 19) door het teniet gaan van Nathans lijn met een erfdochter, Maria, die in de andere lijn inhuwt, doordat Jozef haar tot vrouw neemt en nu haar vader Eli volgens genealogisch recht tot vader van haar echtgenoot wordt. Dit tenietgaan is zeker geen toeval, maar goddelijke beschikking, want nu moest de beloofde erfgenaam worden geboren, met wie de hele belofte haar vervulling bereikte.
 
-HOOFDSTUK 4
+---HOOFDSTUK---4
 
 JEZUS WORDT VERZOCHT, PREDIKT EN DOET WONDEREN
 
@@ -1571,7 +1571,7 @@ Hier openbaart zich hoe groot de indruk was die de Heere al bij Zijn eerste open
 
 Hier openbaart zich hoe groot de indruk was die de Heere al bij Zijn eerste openlijk optreden in Galilea en de omtrek maakte. Des te merkwaardiger dat Hij van die geestdrift voor Zichzelf geen gebruik maakte, die eerder vermijdt dan bevordert en zo snel Kapernaüm verlaat, waar toch zoveel harten voor Hem kloppen. Ook dit is een bewijs voor de waarheid van Joh. 2: 23-25 , maar ook een proeve van de wijsheid van de Heere in de vorming van Zijn eerste discipelen.  Hij  wil  ze  roepen  tot  zelfverloochening,  aan  het  reizende  leven  wennen  en oprijzende aardse verwachtingen beteugelen.
 
-HOOFDSTUK 5
+---HOOFDSTUK---5
 
 VAN PETRUS’ VISVANGST, EEN MELAATSE EN VERLAMDE, MATTHEÜS ROEPING EN HET VASTEN VAN DE DISCIPELEN
 
@@ -1801,7 +1801,7 @@ Nieuwe wijn moet in nieuwe leerzakken: 1) zo was het ten tijde van de Heere; 2) 
 
 Tot de vrijheid, waartoe de Heiland Zijn discipelen geroepen en waarop Hij ze recht gegeven heeft,  heeft  Hij  ze  ook  de  macht  geschonken.  Hun  vrijheid  bestaat  niet  slechts  in  een bevrijding van het juk van de verordeningen, maar de vrije, de onbelemmerde beweging van een nieuwe, van een gezonde geest van het inwendige leven. Wat is het Christendom? Het is de nieuwe wijn van het Evangelies, het is de zoete most van de genade en waarheid, die met Christus geworden zijn in een door Hem vernieuwde mensheid. Wie is een Christen, wie een waardig volgeling van de Heere, wie behoort tot de bruiloftskinderen, die niemand kan doen vasten zolang de Heere met hen is? De zondaar, die in het door zijn Heiland gezond gemaakte hart de adem, het nieuwe leven, dat van zijn Heiland uitgaat, ophaalt, die niet slechts nieuwe neigingen, maar ook nieuwe krachten in zich voelt, alles met andere ogen dan te voren ziet en ook  hetzelfde  anders  en  naar  de  kracht  van  een  nieuw  beginsel  doet.  Het  oude  is voorbijgegaan, zie, het is alles nieuw geworden. Zo’n Christen maakt niet de gemeente door haar verkondiging en instellingen, maar de Heere door Zijn Geest.
 
-HOOFDSTUK 6
+---HOOFDSTUK---6
 
 DE UITGEWREVEN AREN, DE VERDORDE HAND, DE ROEPING VAN DE APOSTELEN EN CHRISTUS’ VELDPREDIKING
 
@@ -2080,7 +2080,7 @@ Deze profetische gelijkenis wordt vervuld in het individuele leven overal in de 
 
 Hoe het volk, nadat het de rede van de Heere had gehoord, zich verwonderde over de macht waarmee Hij predikte, zie daarover MATTHEUS. 7: 28 v.
 
-HOOFDSTUK 7
+---HOOFDSTUK---7
 
 DE KNECHT VAN DE HOOFDMAN. DE JONGELING TE NAIN. JOHANNES EN ZIJN DISCIPELEN. DE GROTE ZONDARES
 
@@ -2393,7 +2393,7 @@ beginsel al vervat was in alle daden en in de hele leer van Jezus, dat het Pauli
 
 De Farizeeër had aan Zijn tafel een bittere teug moeten proeven en  stond beschaamd en verlegen. De zondares droeg een erekroon, die de nijd van al de Simons van de aarde haar niet afrukken kon. Die hoogmoedige moest blozen van schaamte, de boetvaardige hief moedig het hoofd naar omhoog.
 
-HOOFDSTUK 8
+---HOOFDSTUK---8
 
 HET ZAAD VAN GODS WOORD. DE STORM OP ZEE. BEZETENEN. DE ZIEKE VROUW. JAIRUS DOCHTERTJE
 
@@ -2692,7 +2692,7 @@ Ook de opwekking van geestelijk doden verricht de Heere meestal in heilige stilt
 
 Dit evangelie herinnert ons aan drieërlei ongeluk, dat toch geen ongeluk is: 1) een plotselinge, onverwachte slag, 2) een langdurig lijden, 3) een vroege dood.
 
-HOOFDSTUK 9
+---HOOFDSTUK---9
 
 DE  TWAALF  APOSTELEN.  DE  VIJF  BRODEN.  CHRISTUS’  VERHEERLIJKING  EN LIJDEN. EERGIERIGHEID EN IJVERZUCHT VAN DE DISCIPELEN
 
@@ -3050,7 +3050,7 @@ In de vier van vs. 51-62 op elkaar volgende tonelen treden de vertegenwoordigers
 
 Men heeft vaak gevraagd welk temperament men de Zoon des mensen moest toeschrijven en heeft soms enigszins ten gunste van een van de vier, bijv. voor het cholerische beslist. Maar de  vergelijking  van  de  gemoedsstemming  en  de  handelingen  van  de  Heere  met  de verschillende mannen die hier voorkomen, laat duidelijk zien, dat ieder sterk te voorschijn tredend  temperament  noodzakelijk  iets  eenzijdigs  voorstelt,  terwijl  juist  in  de  volkomen harmonie van Zijn neigingen, krachten en gemoedsbewegingen, het karakteristieke teken van Jezus geheel enige persoonlijkheid moet worden gezocht.
 
-HOOFDSTUK 10
+---HOOFDSTUK---10
 
 ZEVENTIG DISCIPELEN. GELIJKENIS VAN DE BARMHARTIGE SAMARITAAN. MARIA AAN JEZUS’ VOETEN
 
@@ -3406,7 +3406,7 @@ arbeid voor het Godsrijk - en God mag dat zegenen met Zijn beste zegen! - maar d
 
 Dat Martha de Heere in Zijn terechtwijzend woord heeft begrepen en ook de hele zegen van dit woord deelachtig is geworden, is buiten twijfel; het eigenaardige van haar oorspronkelijke natuur verloochende zich ook later niet, maar werd geheiligd, zij bleef bij alle toenemen in innigheid de bedrijvige Martha, die voornamelijk geschikt was tot het werk en de dienst van de  liefde.  Zoals  Petrus  naast  Johannes  stond,  zo  stond  zij  naast  haar  zuster  Maria;  hoe verschillend de vaten waren, de inwendig verborgen schat was dezelfde. De dagen van de bezoeking, die spoedig over Bethanië’s woning kwamen, geven ons gelegenheid genoeg om ons daarvan te overtuigen (Joh. 11).
 
-HOOFDSTUK 11
+---HOOFDSTUK---11
 
 VOORSCHRIFT EN KRACHT VAN HET GEBED. UITDRIJVING VAN DE SATAN. EIS VAN TEKENEN. STRAFPREDIKING VAN CHRISTUS
 
@@ -3880,7 +3880,7 @@ Zonder twijfel heeft Jezus, toen men begon Hem met vragen te achtervolgen, metee
 
 en ieder (toen Hij al buiten was gekomen, Hem nog buiten de deur vervolgend) loerde en luisterde of Hij Zich niet een woord zou laten ontvallen, waardoor zij Hem beschaamd zouden kunnen maken. Daarom is de aanmerking, die men tegen de geloofwaardigheid van dit bericht heeft  gemaakt, dat  de Heere door Zijn scherpe tafelrede de eisen van de welvoeglijkheid omtrent Zijn gastheer geheel uit het oog zou hebben verloren, wanneer Hij Zich werkelijk zo zou hebben uitgelaten, zonder grond. Hij is van het begin af niet om het eten maar om te getuigen gekomen en als Hij door het laatste het eerste heeft verloren, zal Hij dit verlies wel niet meer hebben betreurd, maar de uitnodiging zelf, met zo vijandige bedoeling tot Hem gericht, was dan toch een veel te twijfelachtige eer, dan dat men daaruit verplichtingen voor Hem  zou  kunnen  afleiden.  Anders  is  het  zeker  met  de  zaak  gesteld  als  men  met Schleiermacher  en  anderen  wilde  aannemen  dat  dit  gesprek  pas  na  de  maaltijd  zou  zijn gehouden. Deze opvatting weerlegt zichzelf als men de aanleiding van de gesprekken in het oog houdt, die toch vóór het maal (vs. 37 en 38) plaats vond. Van hetgeen in Hoofdst. 12 volgt behoort slechts weinig (wellicht alleen het "behoed uzelf voor de zuurdesem van de Farizeeën,  die  geveinsdheid  is")  in  de  onmiddellijk  geschiedkundige  samenhang  met  de zo-even behandelde afdeling, hoewel ook het "daarentussen" een zekere samenhang te kennen geeft, dan wijst toch het "vele duizenden" dat volgt op een enigszins latere tijd en op een andere geschiedenis, die met de onze tot een geheel is verenigd, zoals bij MATTHEUS. 16: 1 (Uit 16: 1) is uiteengezet.
 
-HOOFDSTUK 12
+---HOOFDSTUK---12
 
 OVER DE EIGENSCHAPPEN EN HINDERPALEN VAN HET GELOOF
 
@@ -4185,7 +4185,7 @@ De  uitleggers  weten  meestal  niet  goed,  wat  zij  met  dit  woord,  dat  in
 
 heen te gaan tot beslissing van zijn zaak. Nu moet hij het overige van de weg zich nog snel ten nutte maken, om zijn tegenstander tevreden te stellen en het niet te laten aankomen op het vonnis van de rechter, want dat zou een vonnis tot zware inkerkering worden. Het kan niet zijn, zoals de uitleggers willen, dat God, de Heere, hier aanklager, rechter en gerechtsdienaar in een persoon zou zijn, maar wel zou men, denkend aan Joh. 5: 45 vv. , bij de aanklager aan Mozes, bij de rechter aan God en bij de gerechtsdienaar aan Jezus denken (MATTHEUS. 26: 64). Intussen hebben wij al bij MATTHEUS. 16: 4 een andere opvatting aangegeven, volgens welke de door het Joodse volk beledigde, de door hen met ongeloof, verachting en eindelijke verwerping behandelde Heiland zelf is. Zij, de ongelovige Joden, zijn al met Hem op de weg naar de overheid; Hij gaat nu van hen om hen aan zichzelf over te laten, omdat Hij niets met hen kan beginnen, Zijn openbare werkzaamheid in Galilea is geëindigd (MATTHEUS. 16: 4. Mark. 8: 13) en de tijd is gekomen, dat Hij van hen zal worden weggenomen (Hoofdstuk 9: 51). Nu is hun zeker nog een tijd van genade toegezegd; de beledigde Heiland, die bij Zijn hemelvaart als hun tegenstander tot de Vader zal gaan, wil hun nog gelegenheid geven om zich met Hem te verzoenen, door gelovig Zijn evangelie aan te nemen en hun zelfs boden zenden, die van Zijn kant de verzoening aanbieden (Hoofdstuk 11: 49. Hand. 3: 38-40); maar wat  zal het  bij het  grootste  gedeelte helpen? Het  zal de mate van de vaderen vervullen (MATTHEUS. 23: 32); en dan staat het vonnis al in Lev. 26: 25-39 en Deut. 28: 49-68 geschreven, de gerechtsdienaar, die in de gevangenis werpt, is ook al voorspeld in Dan. 9: 26 Vatten wij zo onze plaats op, dan is eensdeels de samenhang met Joh. 7: 10 behouden, waarop het de evangelist bij dit aanhangsel zo beslist aankomt, aan de andere kant is echter ook de overgang gemaakt tot de beide volgende afdelingen in Hoofdst. 13: 1-9 , die chronologisch met Joh. 10: 39 vv. verbonden zijn.
 
-HOOFDSTUK 13
+---HOOFDSTUK---13
 
 ONDERGANG VAN DE GALILEERS. DE VIJGEBOOM. DE ZIEKE VROUW HET RIJK VAN GOD. DE ENGE POORT. JERUZALEM’S VERWOESTING
 
@@ -4425,7 +4425,7 @@ Die onder  de vleugels van  de hen geen bescherming wil zoeken,  valt  als een b
 
 Voor Jezus’ inwendig oog staat het volk zoals het onder de vloek van de verwerping wandelt tot aan het einde der tijden; maar nog eens wil de Heere, die alle woeste plaatsen van Zion troost (Jes. 51: 3), Zich over Zijn arm volk ontfermen, Hij wil Zich eindelijk toch door hen laten zien en alle geslachten van het volk zullen, door de Geest van de genade en van de gebeten gedreven, hun zonden bewenen en de fontein van de vergeving zal zich ook voor hen openen, zodat zij roepen: "Gezegend is Hij, die komt in de naam van de Heere!"
 
-HOOFDSTUK 14
+---HOOFDSTUK---14
 
 DE  WATERZUCHTIGE.  CHRISTUS’  PREDIKING  OP  EEN  GASTMAAL.  HET  GROTE AVONDMAAL. DE WARE NAVOLGING VAN DE HEERE
 
@@ -4751,7 +4751,7 @@ Uit  liefde  voor  de  mensen  toonde  Onze  Heiland  welke  bezwaren  er  in  d
 
 gezegd had dat Zijn dienaren de roeping en bestemming hadden om voor het mensdom te zijn wat het zout voor het voedsel en voor ander dagelijks gebruik was en dat zij dus behoorden toe te zien dat zij door zedeloosheid niet smakeloos, of zelfs onnuttig zouden worden, omdat heiligheid hun roeping was en het doel van hun streven moest zijn. Op deze manier handelde dan onze Zaligmaker met wijsheid en liefde, kondigde vooraf aan waarop men in Zijn dienst rekening  maken  moest.  Dat  moest  onze  Heiland  tot  eer  verstrekken,  Zijn  apostelen  en discipelen tot welberadenheid en getrouwheid stemmen en elk van zijn hoorders leiden tot ernstig zelfonderzoek, dat niet anders dan tot voordeel voor ieder graag getrouw hart zou verstrekken.
 
-HOOFDSTUK 15
+---HOOFDSTUK---15
 
 LOF VAN GODS BARMHARTIGHEID DOOR GELIJKENISSEN
 
@@ -5174,7 +5174,7 @@ Gevonden! Zo juicht de Zoon als hij de zondaar van de zonde vermoeid vindt, zoal
 
 opnieuw begiftigd, gezegend en verkwikt, daar staat hij, niet als huurling, nee, als een zoon, tot alle gehoorzaamheid van de liefde bereid en vervuld met de geest van de aanneming tot kind, waardoor hij roept: Abba, Vader!
 
-HOOFDSTUK 16
+---HOOFDSTUK---16
 
 MISBRUIK VAN DE RIJKDOM
 
@@ -5625,7 +5625,7 @@ De Heere laat het niet bij woorden, Hij bewijst alles wat Hij zegt door daden, o
 
 De dood vereeuwigt het karakter dat zich op aarde gevormd heeft; het wijzigt noch verandert het. De dood heeft geen wateren, geen kracht voor de wedergeboorte. Zoek de Heere terwijl Hij te vinden is; roep Hem aan terwijl Hij nabij is (Jes. 55: 6). De hemel en de hel zijn eeuwigdurende toestanden van de ziel, evenzeer tegenovergesteld aan elkaar, als de twee polen en evenmin als deze nader tot elkaar te brengen.
 
-HOOFDSTUK 17
+---HOOFDSTUK---17
 
 OVER  ERGERNIS,  VERGEVENSGEZINDHEID,  GELOOF  EN  WERKEN,  OVER  TIEN MELAATSEN EN HET RIJK VAN GOD
 
@@ -5833,7 +5833,7 @@ kan hebben. Even zeker als de arenden, waaronder ook de grote aasgieren begrepen
 
 "Waar het aas is, daar vergaderen de arenden" is in een beeld en spreekwoord  de plaats gekarakteriseerd, waar de catastrofe van het gericht zal plaats hebben; het zal daar plaats hebben, waar zich haar voorwerp bevindt. Het aas of het lijk (Hoofdstuk 17: 37) is het beeld van de gestorvene, waaruit het leven is verdwenen, waaraan nog alleen de vertering haar werk kan hebben. Even zeker als de arenden, waaronder ook de grote aasgieren begrepen zijn, hun door opsporen en niet  achterblijven waar het  aas hen lokt, zo  zeker zal daar het  gericht komen,  waar  de mate van zondige verharding  vol is  en feitelijk  bewezen is,  dat  ook  de voortdurende lankmoedigheid van God geen vonkje van geestelijk leven meer kan opwekken en aanblazen.
 
-HOOFDSTUK 18
+---HOOFDSTUK---18
 
 OVER GEBED EN BEKERING, KRUIS EN LIJDEN
 
@@ -6161,7 +6161,7 @@ dat  men voor God zich niet  moet  schamen om van Hem te bidden, want  die zolan
 
 Die het  lijden van Jezus in dit  leven niet  leert  te begrijpen en genieten, is toch  om niet geboren, een misgeboorte, al de tranen van zijn ongelukkige moeder waard. Die in dit leven het lijden van de Heere niet leert te begrijpen, leeft, leert, lijdt en sterft tevergeefs, het doel van het leven is verzuimd, de winst van het leven is verloren.
 
-HOOFDSTUK 19
+---HOOFDSTUK---19
 
 ZACHEÜS. DE TOEVERTROUWDE PONDEN. CHRISTUS’ INTOCHT IN JERUZALEM. TREURIGE VOORSPELLING EN ERNSTIGE REFORMATIE
 
@@ -6484,7 +6484,7 @@ Uit de overige afdeling is duidelijk dat Jezus Zich geen enkel ogenblik heeft ov
 
 Onze gezegende Verlosser predikte dagelijks in het huis van het gebed voor het volk. Hij bad daar ook met hen en zij volhardden daar in het horen naar Zijn reden, zowel als naar Zijn gebeden. Gebeden heiligen het woord en het woord maakt ons geschikt voor het gebed. Als wij God willen verheerlijken en onszelf stichten, moeten wij vlijtig en bij elke gelegenheid al Zijn instellingen eren en opmerken.
 
-HOOFDSTUK 20
+---HOOFDSTUK---20
 
 CHRISTUS’ GESPREK OVER ZIJN PERSOON EN ZIJN AMBT. OVER DE SCHATTING EN DE OPSTANDING UIT DE DOOD
 
@@ -6669,7 +6669,7 @@ Dit  was  een stoute en opmerkelijke waarschuwing.  Het  was,  bedenken wij dat 
 
 lippen vloeien gedurende Zijn hele leraarambt. Hij was altijd vol genade en medelijden voor de armsten der zondaren. Toorn was niet in Hem, toen Hij Zachéüs, de boetvaardige zondaar, Saulus  de  vervolger  en  de  vrouw  in  Simons  huis  zag.  Maar  toen  Hij  zag  dat  de Schriftgeleerden  en  Farizeeën  slechts  de  mantel  van  de  godsdienst  droegen  en  grote uitwendige  heiligheid  voorgaven,  terwijl  hun  harten  vol  boosheid  waren,  schijnt  Zijn rechtvaardige  ziel  vol  verontwaardiging  geweest  te  zijn.  Acht  keer  in  een  hoofdstuk (MATTHEUS. 23) vinden wij dat Hij zegt: "Wee u gij Schriftgeleerden en Farizeeën, gij geveinsden!" Laat ons niet vergeten dat de Heere Jezus nooit verandert. Hij is gisteren en vandaag dezelfde en tot in de eeuwigheid. Wat wij ook in de godsdienst zijn, laat ons waar zijn. Hoe zwak ons geloof, onze hoop, onze liefde, onze gehoorzaamheid mogen zijn, laat ons toezien dat wij waar, echt en oprecht zijn. Laat ons zelfs het denkbeeld van rolspelerij en huichelarij in ons Christendom verafschuwen. Laat het ons in ieder opzicht geheel en al zijn. Het is een treffend feit dat het eerste deel van de wapenrusting, die Paulus aan de Christelijke krijgsknecht aanbeveelt, de waarheid is. Staat dan, zegt hij, uw lendenen omgord hebbende met de waarheid. (Efeze. 6: 11).
 
-HOOFDSTUK 21
+---HOOFDSTUK---21
 
 DE PENNINGEN VAN DE WEDUWE. DE VERWOESTING VAN JERUZALEM EN HET EINDE VAN DE WERELD
 
@@ -6875,7 +6875,7 @@ Het geheim van de ongebroken kracht, die de Heere tot in het laatste uur van Zij
 
 Als Jezus het nodig had Zich te verfrissen en uit te rusten van het werk van overdag en door stilzijn  en  gebed  tot  Zichzelf  te  komen,  zo  hebben  wij  het  nog  veel  meer  nodig.  De ongelukkigen die geen stille uren kennen in hun leven weten niet hoeveel zij ontberen. Niet zonder reden plaatst het oude spreekwoord het werken en bidden bij elkaar, om daardoor te kennen te geven dat het gebed, hoewel zelf een arbeid, toch ook tevens een genot, ja het genot aller genietingen is en de hoogste herstelling van de arbeid, de hoogste wijding tot de arbeid. Waarlijk, zij hebben het meest in hun leven gedaan, die het meest gebeden hebben en een rijke inhoud heeft daarom het kleine rijmpje: "Houd u rein, acht u klein, wees graag alleen, met God gemeen. "
 
-HOOFDSTUK 22
+---HOOFDSTUK---22
 
 JUDAS DE VERRADER. HET PAASLAM EN AVONDMAAL. EERGIERIGHEID VAN DE DISCIPELEN.   CHRISTUS’   LIJDEN   IN   DE   HOF   EN   VOOR   KAJAFAS.   PETRUS’ VERLOOCHENING
 
@@ -7323,7 +7323,7 @@ het lijden brengt er mij heen. " En mochten wij dit vooral op ons ziekbed zeggen
 
 70. En zij zeiden allen: Zijt Gij dan, want dit ligt in Uw bedreiging opgesloten, als wij het juist begrijpen, de Zoon van God? en Hij zei tot hen: U zegt dat Ik het ben.
 
-HOOFDSTUK 23
+---HOOFDSTUK---23
 
 CHRISTUS’ LIJDEN VOOR PILATUS. ZIJN DOOD EN BEGRAFENIS
 
@@ -7563,7 +7563,7 @@ a) Luk. 8: 2.
 
 Dat was de laatste sabbat. Tot evangelische rustdag is de dag van de Heere geworden, waarop Hij  is  opgestaan,  om  ons  de  vruchten  van  Zijn  verzoeningsdood  ten  eigendom  te  doen worden.
 
-HOOFDSTUK 24
+---HOOFDSTUK---24
 
 CHRISTUS’ OPSTANDING EN HEMELVAART
 
