@@ -1,6 +1,6 @@
 JONA’S GEZEGENDE BOETPREDIKING.
 
-III. Vers 1-10
+## III. Vers 1-10
 Nadat Jona op die wijze in berouw en gehoorzaamheid weer tot den Heere was teruggekeerd, en door de goddelijke barmhartigheid uit den dood wonderbaar was gered, komt op nieuw Gods bevel tot hem. Nu gaat hij naar Ninevé en predikt der stad den ondergang voor hare zonden binnen 40 dagen, De Ninevieten geloven aan God en doen boete in zak en as; daarop verschoont de Heere de stad.
 
 ***1. En het woord des HEEREN geschiedde ten andere maal tot Jona, zeggende:***
