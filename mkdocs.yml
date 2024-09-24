@@ -2396,12 +2396,12 @@ nav:
 #      -   Obadja:
   #      -   Obadja: karlaugustdachsel/Obadja.md
   #      -   Obadja 1: karlaugustdachsel/Obadja/Obadja1.md
-#      -   Jona:
-  #      -   Jona: karlaugustdachsel/Jona.md
-  #      -   Jona 1: karlaugustdachsel/Jona/Jona1.md
-  #      -   Jona 2: karlaugustdachsel/Jona/Jona2.md
-  #      -   Jona 3: karlaugustdachsel/Jona/Jona3.md
-  #      -   Jona 4: karlaugustdachsel/Jona/Jona4.md
+      - Jona:
+        - Jona: karlaugustdachsel/Jona/index.md
+        - Jona 1: karlaugustdachsel/Jona/Jona1.md
+        - Jona 2: karlaugustdachsel/Jona/Jona2.md
+        - Jona 3: karlaugustdachsel/Jona/Jona3.md
+        - Jona 4: karlaugustdachsel/Jona/Jona4.md
 #      -   Micha:
   #      -   Micha: karlaugustdachsel/Micha.md
   #      -   Micha 1: karlaugustdachsel/Micha/Micha1.md
@@ -2690,9 +2690,9 @@ nav:
   #      -   Titus 1: karlaugustdachsel/Titus/Titus1.md
   #      -   Titus 2: karlaugustdachsel/Titus/Titus2.md
   #      -   Titus 3: karlaugustdachsel/Titus/Titus3.md
-#      -   Filémon:
-  #      -   Filémon: karlaugustdachsel/Filemon.md
-  #      -   Filémon 1: karlaugustdachsel/Filemon/Filemon1.md
+      - Filémon:
+        - Filémon: karlaugustdachsel/Filemon/index.md
+        - Filémon 1: karlaugustdachsel/Filemon/Filemon1.md
 #      -   Hebreeën:
   #      -   Hebreeën: karlaugustdachsel/Hebreeen.md
   #      -   Hebreeën 1: karlaugustdachsel/Hebreeen/Hebreeen1.md
