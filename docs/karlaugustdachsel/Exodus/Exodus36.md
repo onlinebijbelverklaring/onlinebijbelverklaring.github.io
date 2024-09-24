@@ -2,21 +2,21 @@
 
 DE DELEN VAN HET HEILIGDOM WORDEN VERVAARDIGD.
 
-I. Vs.1-7. Toen de beide genoemde werkmeesters zich aan hun arbeid willen begeven en alle kunstwerkers,  die  zich  opgewekt  voelen,  het  werk  onder  de  leiding  van  de  eersten  te verrichten,  zich  bij  hen  voegden,  gaf  Mozes  hun  de  reeds  door  het  volk  aangebrachte hefoffers; iedere morgen wordt hier nog zo veel bijgevoegd, dat de arbeiders verklaren, dat er nu meer dan genoeg bouwstoffen voorhanden zijn, waarop het verder bijdragen ophoudt.
+I. Vs.1-7. Toen de beide genoemde werkmeesters zich aan hun arbeid willen begeven en alle kunstwerkers, die zich opgewekt voelen, het werk onder de leiding van de eersten te verrichten, zich bij hen voegden, gaf Mozes hun de reeds door het volk aangebrachte hefoffers; iedere morgen wordt hier nog zo veel bijgevoegd, dat de arbeiders verklaren, dat er nu meer dan genoeg bouwstoffen voorhanden zijn, waarop het verder bijdragen ophoudt.
 
 1. Toen wrocht, 1) maakte zich tot de arbeid gereed, Bezßleël en Ahóliab, en iedereen, die wijs van hart was, aan wie de HEERE wijsheid en verstand gegeven had, om te weten, hoe zij maken zouden elk werk ten dienste van het heiligdom naar alles, dat de HEERE geboden had.
 
 1) Of, Zo maken.
 
-2. Want Mozes had geroepen Bezßleël en Ahóliab, en iedereen, die wijs van hart was, in wiens  hart  God  wijsheid  gegeven  had,  al  wiens  hart  hem  bewogen  had,  dat  hij  toetrad (hoofdstuk 35:10) tot het werk, om dat te maken.
+2. Want Mozes had geroepen Bezßleël en Ahóliab, en iedereen, die wijs van hart was, in wiens hart God wijsheid gegeven had, al wiens hart hem bewogen had, dat hij toetrad (hoofdstuk 35:10) tot het werk, om dat te maken.
 
-3. Zij dan namen van voor het aangezicht van Mozes het gehele hefoffer, dat de kinderen van Israël gebracht  hadden,  tot  het  werk  van de dienst  van het  heiligdom,  omdat  te maken; daarmee had echter de toevloed (hoofdstuk 35:20 vv.), van bouwstoffen nog geenszins een einde; doch zij brachten tot hem ook verder, als het werk reeds aangevangen was, nog elke morgen vrijwillig offer.
+3. Zij dan namen van voor het aangezicht van Mozes het gehele hefoffer, dat de kinderen van Israël gebracht hadden, tot het werk van de dienst van het heiligdom, omdat te maken; daarmee had echter de toevloed (hoofdstuk 35:20 vv.), van bouwstoffen nog geenszins een einde; doch zij brachten tot hem ook verder, als het werk reeds aangevangen was, nog elke morgen vrijwillig offer.
 
 4. Daarom kwamen alle wijzen, die al het werk van het heiligdom maakten, ieder man van zijn werk, dat zij maakten.
 
 5. En zij spraken tot Mozes, zeggende: Het volk brengt te veel, meer dan genoeg is ten dienste van het werk, dat de HEERE geboden heeft te maken.
 
-6. Toen gebood Mozes, dat men een stem zou gaan laten door het leger, zeggende: Man noch vrouw   maakt   geen   werk   meer   ten   hefoffer   voor   het   heiligdom!   Zo   werd   het volkteruggehouden meer te brengen.
+6. Toen gebood Mozes, dat men een stem zou gaan laten door het leger, zeggende: Man noch vrouw maakt geen werk meer ten hefoffer voor het heiligdom! Zo werd het volkteruggehouden meer te brengen.
 
 7. Want aan stof was er overvloedig genoeg tot het gehele werk, dat te maken was; ja, er was over; 1) er was meer dan men nodig had.
 
@@ -24,9 +24,9 @@ I. Vs.1-7. Toen de beide genoemde werkmeesters zich aan hun arbeid willen begeve
 
 onder het Nieuwe Testament, dat men zo karig tezamen brengt, wanneer tot bevordering van een geestelijk heiligdom ook het tijdelijk vermogen gevorderd wordt.
 
-II. Vs.8-38. Bij de volvoering van het werk wordt het eerst het bouwen van de woning zelf ondernomen; vooraf worden de tapijten en deksels, dan de stijlen en richels, hierop de beide voorhangsels  met  de  zuilen,  haken  en  staven  gereed  gemaakt,  geheel overeenkomstig  de bepalingen (hoofdstuk 26).
+II. Vs.8-38. Bij de volvoering van het werk wordt het eerst het bouwen van de woning zelf ondernomen; vooraf worden de tapijten en deksels, dan de stijlen en richels, hierop de beide voorhangsels met de zuilen, haken en staven gereed gemaakt, geheel overeenkomstig de bepalingen (hoofdstuk 26).
 
-8.  Alzo  maakte  een  iedere  wijze  van  hart,  onder  degenen,  die  het  werk  maakten,  naar Bezßleëls en Ahóliabs leiding, de tabernakel, de voor de binnenste wanden bestemde eerste bedeksels (hoofdstuk 26:1-16), van tien gordijnen, van getwijnd fijn linnen, en hemelsblauw, en purper, en scharlaken met cherubim; van het allerkunstigste werk maakte hij ze, naar de regels van de kunst weefden zij cherubbeelden en andere figuren in de grondstof.
+8. Alzo maakte een iedere wijze van hart, onder degenen, die het werk maakten, naar Bezßleëls en Ahóliabs leiding, de tabernakel, de voor de binnenste wanden bestemde eerste bedeksels (hoofdstuk 26:1-16), van tien gordijnen, van getwijnd fijn linnen, en hemelsblauw, en purper, en scharlaken met cherubim; van het allerkunstigste werk maakte hij ze, naar de regels van de kunst weefden zij cherubbeelden en andere figuren in de grondstof.
 
 9. a) De lengte van een gordijn was van acht en twintig el, en de breedte van een gordijn van vier el; al deze gordijnen hadden één maat.
 
@@ -46,7 +46,7 @@ a) Ex.26:10 b) Ex.26:5
 
 a) Ex.26:6
 
-14.  Verder  maakte  hij  gordijnen  van  geitehaar,  tot  een  tent,  tot  een  bedeksel  over  de tabernakel, geheel naar de bepalingen (hoofdstuk 26:7-11); van elf gordijnen maakte hij ze.
+14. Verder maakte hij gordijnen van geitehaar, tot een tent, tot een bedeksel over de tabernakel, geheel naar de bepalingen (hoofdstuk 26:7-11); van elf gordijnen maakte hij ze.
 
 15. De lengte van een gordijn was dertig el, en vier el de breedte van een gordijn; deze elf gordijnen hadden een maat.
 
@@ -54,7 +54,7 @@ a) Ex.26:6
 
 16. En hij voegde vijf gordijnen samen op bijzondere wijze; wederom zes van deze gordijnen op bijzondere wijze, want ook dit bedeksel moest evenals de andere tapijten, uit twee, hoewel niet even grote afdelingen bestaan.
 
-17.  En  hij  maakte  vijftig  strikjes  aan  de  kant  van  het  gordijn,  die  de  uiterste  in  de samenvoeging was; hij maakte ook vijftig strikjes aan de kant van het gordijn van de andere samenvoeging, om deze met de vorige te verbinden.
+17. En hij maakte vijftig strikjes aan de kant van het gordijn, die de uiterste in de samenvoeging was; hij maakte ook vijftig strikjes aan de kant van het gordijn van de andere samenvoeging, om deze met de vorige te verbinden.
 
 18. Hij maakte ook vijftig koperen haakjes om de tent, dit tot uitwendige overkleding bestemd en uit twee afdelingen bestaand bedeksel, samen te voegen, dat zij één ware.
 
@@ -100,11 +100,11 @@ a) Ex.26:23
 
 a) Ex.26:24
 
-30. a) Alzo waren er in het geheel aan de achterzijde acht stijlen, waarvan de beide uiterste tevens de slotkanten van de beide zijwanden bedekten,  zodat  deachterzijde slechts 10 el lengte in het licht had; hij maakte ze met hun zilveren voeten, zijnde zestien voeten: twee voeten onder elke stijl.
+30. a) Alzo waren er in het geheel aan de achterzijde acht stijlen, waarvan de beide uiterste tevens de slotkanten van de beide zijwanden bedekten, zodat deachterzijde slechts 10 el lengte in het licht had; hij maakte ze met hun zilveren voeten, zijnde zestien voeten: twee voeten onder elke stijl.
 
 a) Ex.26:25
 
-31.  a)  Hij maakte  ook  richels  van  sittimhout,  die  de  stijlen,  welke  door  middel van  de houvasten in de onderstukken vaststonden, samenhielden; vijf aan de stijlen van de ene zijde van de tabernakel.
+31. a) Hij maakte ook richels van sittimhout, die de stijlen, welke door middel van de houvasten in de onderstukken vaststonden, samenhielden; vijf aan de stijlen van de ene zijde van de tabernakel.
 
 a) Ex.26:26
 
@@ -112,7 +112,7 @@ a) Ex.26:26
 
 a) Ex.26:27
 
-33. a) En hij maakte de middelste richel doorschietende in het  midden van de stijlen; hij maakte de middelste van deze driemaal vijf richels zó, dat zij midden door de doorboorde stijlen heengingen, van het ene einde tot het andere einde.
+33. a) En hij maakte de middelste richel doorschietende in het midden van de stijlen; hij maakte de middelste van deze driemaal vijf richels zó, dat zij midden door de doorboorde stijlen heengingen, van het ene einde tot het andere einde.
 
 a) Ex.26:28
 
@@ -120,9 +120,9 @@ a) Ex.26:28
 
 a) Ex.26:29
 
-35.  Daarna  maakte  hij,  om  het  Allerheilige  van  het  Heilige  te  scheiden,  een  voorhang (Ex.26:31-33) van hemelsblauw, en purper, en scharlaken, en fijn getwijnd linnen; van het allerkunstigste werk maakte hij die, met cherubim en andere beelden bewerkt.
+35. Daarna maakte hij, om het Allerheilige van het Heilige te scheiden, een voorhang (Ex.26:31-33) van hemelsblauw, en purper, en scharlaken, en fijn getwijnd linnen; van het allerkunstigste werk maakte hij die, met cherubim en andere beelden bewerkt.
 
-36. a) En hij maakte daartoe vier pilaren van sittimhout, die hij overtrok met goud; hun haken, waarmee  het  opgehangen  werd,  waren  van  goud  en  hij  goot  hun  vier  zilveren  voeten, onderstukken, in de gaten waarvan de pilaren geplaatst werden.
+36. a) En hij maakte daartoe vier pilaren van sittimhout, die hij overtrok met goud; hun haken, waarmee het opgehangen werd, waren van goud en hij goot hun vier zilveren voeten, onderstukken, in de gaten waarvan de pilaren geplaatst werden.
 
 a) Ex.26:32
 

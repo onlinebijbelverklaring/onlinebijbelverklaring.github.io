@@ -2,7 +2,7 @@ g---HOOFDSTUK--- 37.
 
 OVER ENIGE GEREEDSCHAPPEN VAN HET HEILIGDOM.
 
-1. Vs.1-29. Nu volgt de vervaardiging van de gereedschappen van de tabernakel, namelijk van de Ark van het Verbond, de tafel van de toonbroden, de kandelaar en het reukaltaar; verder de vervaardiging  van de heilige zalf en het  reukwerk,  geheel volgens de eerder  daaromtrent gegeven bepalingen (hoofdstuk 25 en 30).
+1. Vs.1-29. Nu volgt de vervaardiging van de gereedschappen van de tabernakel, namelijk van de Ark van het Verbond, de tafel van de toonbroden, de kandelaar en het reukaltaar; verder de vervaardiging van de heilige zalf en het reukwerk, geheel volgens de eerder daaromtrent gegeven bepalingen (hoofdstuk 25 en 30).
 
 1. Alzo a) maakte Bezßleël de Ark van sittimhout; twee en een halve el was haar lengte, en anderhalve el haar breedte, en anderhalve el haar hoogte.
 
@@ -88,7 +88,7 @@ a)Ex.25:37,38
 
 a) Ex.25:39
 
-25. a) En hij maakte het  reukaltaar van sittimhout; een el was zijn lengte en een el zijn breedte, vierkant, maar twee el zijn hoogte; hieruit waren zijn hoornen.
+25. a) En hij maakte het reukaltaar van sittimhout; een el was zijn lengte en een el zijn breedte, vierkant, maar twee el zijn hoogte; hieruit waren zijn hoornen.
 
 a) Ex.30:1,2
 
@@ -104,5 +104,5 @@ a) Ex.30:4
 
 a) Ex.30:5
 
-29. a) Hij maakte ook de heilige zalfolie, die tot wijding van het heiligdom en de priesters bevolen,  maar  voor  ander  gebruik  verboden  was,  en  het  reukwerk  van  de  zuiverste welriekende specerijen,  die bij het  dagelijks reukwerk  moesten aangestoken worden,  naar apothekerswerk.
+29. a) Hij maakte ook de heilige zalfolie, die tot wijding van het heiligdom en de priesters bevolen, maar voor ander gebruik verboden was, en het reukwerk van de zuiverste welriekende specerijen, die bij het dagelijks reukwerk moesten aangestoken worden, naar apothekerswerk.
 
