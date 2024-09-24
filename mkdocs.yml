@@ -2740,9 +2740,9 @@ nav:
 #      -   3 Johannes:
   #      -   3 Johannes: karlaugustdachsel/3Johannes.md
   #      -   3 Johannes 1: karlaugustdachsel/3Johannes/3Johannes1.md
-#      -   Judas:
-  #      -   Judas: karlaugustdachsel/Judas.md
-  #      -   Judas 1: karlaugustdachsel/Judas/Judas1.md
+      - Judas:
+        - Judas: karlaugustdachsel/Judas/index.md
+        - Judas 1: karlaugustdachsel/Judas/Judas1.md
 #      -   Openbaring:
   #      -   Openbaring: karlaugustdachsel/Openbaring.md
   #      -   Openbaring 1: karlaugustdachsel/Openbaring/Openbaring1.md

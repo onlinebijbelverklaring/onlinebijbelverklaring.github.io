@@ -1,3 +1,3 @@
-DE BRIEF VAN DE APOSTEL PAULUS AAN FILEMON
+## DE BRIEF VAN DE APOSTEL PAULUS AAN FILEMON
 
 De kleine brief is een voorbeeld van een tedere en toch dringende bede. Hij is een bewijs, hoe de gevangen apostel met de belangrijkste aangelegenheden van het rijk van God bezig gehouden, ook de persoonlijke belangen van enkelen, zelfs van de geringsten met liefde kon behartigen en zo over uitwendige omstandigheden wist te schrijven, dat het inwendige leven erbij kon winnen. In het bijzonder wordt daarin de echt Christelijke betrekking tussen heren en dienstknechten in weinige, krachtige trekken geschilderd. Alhoewel dan Onesimus om zijn vlucht wordt berispt en Filemon ‘s wettig recht op zijn persoon wordt erkend, mag toch met recht deze brief beschouwd worden als de eerste stem, die zich uit de Christelijke kerk tegen de slavernij heeft verheven. En inderdaad, waar ware Christelijke gezindheid is, daar houdt de slavernij vanzelf op.
