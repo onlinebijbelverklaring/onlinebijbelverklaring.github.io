@@ -67,9 +67,7 @@ O Heere, hoe ver gaat toch de blindheid van het schepsel, en hoe breidt zich hie
 
 1) Het einde van het zevende jaar is ene zeer algemene grens van leeftijd, die wij ook wel met zekerheid bij de Hebreeen kunnen veronderstellen om het zevental. 120.000 kinderen tot het einde van het zevende jaar zouden ene bevolking van 600.000 mensen voor Ninevé geven, daar het getal kinderen van dien leeftijd 1/5 der gehele bevolking bedraagt, en er gene reden is voor het Oosten ene werkelijk andere verhouding aan te nemen. Deze bevolking komt geheel overeen met de grootte der stad. Want Ninevé in den wijderen omgang heeft ongeveer 400 engelse of 17 Pruisische vierkante mijlen als vlakte inhoud. Zo kwamen ongeveer 40.000 mensen op de vierkante mijl.
 
-Dit hoofdstuk en deze gehele historie van Jona heeft ten doel, te leren, dat God een God is, niet alleen van de Joden of van een enkel volk, maar ook van de heidenen en van alle mensen, die zich tot Hem bekeren, en wien de misdaad leed doet, en zich verbeteren, en dat Hij niet
-
-wil, dat iemand verloren ga; maar dat de zondaar zich bekere en leve, zoals Petrus zegt: "nu verneem ik in waarheid, dat God geen aannemer des persoons is, maar in allen volke, die Hem vreest en gerechtigheid werkt, Hem aangenaam is".
+Dit hoofdstuk en deze gehele historie van Jona heeft ten doel, te leren, dat God een God is, niet alleen van de Joden of van een enkel volk, maar ook van de heidenen en van alle mensen, die zich tot Hem bekeren, en wien de misdaad leed doet, en zich verbeteren, en dat Hij niet wil, dat iemand verloren ga; maar dat de zondaar zich bekere en leve, zoals Petrus zegt: "nu verneem ik in waarheid, dat God geen aannemer des persoons is, maar in allen volke, die Hem vreest en gerechtigheid werkt, Hem aangenaam is".
 
 Waar God, de Heere, Zijn doen en laten met Ninevé tegenover Jona rechtvaardigt, daar geeft Hij tevens in en met deze woorden een aanmoediging aan berouw hebbende zondaars om van Hem te verwachten alle heil en zaligheid. God is een heilig en rechtvaardig, maar ook een barmhartig en genadig God, die de zonde haat, maar den berouw hebbenden zondaar genadig wil zijn.
 
