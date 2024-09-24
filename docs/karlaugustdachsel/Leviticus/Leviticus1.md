@@ -1,6 +1,6 @@
 WET VAN HET BRANDOFFER.
 
-## I. Vs.1-17
+## I. Vers 1-17
 Nadat de heiligheid van God de tent der samenkomst bedekt heeft (Exodus. 40:34), openbaart God Zich naar Zijn belofte (Exodus. 25:22), voortaan in deze plaats aan Mozes, en deelt hem een wet van het offer mee. Hij begint met de brandoffers, het oudste en voornaamste van de verschillende offers, en bepaalt zowel het materiële als het rituële, d.w.z. zowel de verschillende soorten van dieren, die daartoe moeten gebruikt worden, als de aard en de wijze, waarop zij moeten gebracht worden.
 
 ***1. En de HEERE riep, 1) waarschijnlijk op de dag, die op de oprichting van de tabernakel volgde, Mozes met luide, voor het gehele volk hoorbare stem, dat hij tot Hem in de tabernakel zou naderen, en sprak tot hem uit de tent der samenkomst (van boven het Verzoendeksel, Numeri. 7:89), zeggende:***
