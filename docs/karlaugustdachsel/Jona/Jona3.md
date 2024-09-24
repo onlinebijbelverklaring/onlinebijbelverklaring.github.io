@@ -5,7 +5,7 @@ Nadat Jona op die wijze in berouw en gehoorzaamheid weer tot den Heere was terug
 
 ***1. En het woord des HEEREN geschiedde ten andere maal tot Jona, zeggende:***
 
-***2. Maak u op, ga naar de grote heidense wereld-stad Ninevé\, en predik tegen haar de prediking, die Ik door ingeving van Mijnen Heiligen Geest tot u spreek.***
+***2. Maak u op, ga naar de grote heidense wereld-stad Ninevé, en predik tegen haar de prediking, die Ik door ingeving van Mijnen Heiligen Geest tot u spreek.***
 
 De Heere denkt bij de vernieuwing van het bevel met geen woord aan de schuld van Jona, want Jona is verootmoedigd; in het wonder zijner redding heeft hij geleerd wat gehoorzaamheid is, al weet hij ook nog niet, welke de goddelijke ontferming over een boetedoend heidenvolk is.
 
