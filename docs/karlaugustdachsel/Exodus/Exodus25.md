@@ -166,7 +166,7 @@ De Heere bepaalt de vervaardiging van de kandelaar, die zeven armen moet hebben 
 
 ***31. Gij zult ook een kandelaar van louter goud maken, (volgens de Joodse overlevering drie el hoog). Van dicht gepolijst werk zal deze kandelaar gemaakt worden, zijn schacht, zijn stam, en zijn rieten of takken; zijn schaaltjes of bekers in de vorm aan amandelnoten (vs.33), zijn knopen 1) of knoppen, rond als een granaatappel, en zijn bloemen 2) zullen uit hem 3) zijn; deze zullen ter versiering uit één en hetzelfde stuk gevormd worden.***
 
-1) Zijn knopen. Hieronder moeten verstaan worden, ronde balletjes, in de vorm van granaatappels, (Amos 9:1 Zef.2:14 )
+1) Zijn knopen. Hieronder moeten verstaan worden, ronde balletjes, in de vorm van granaatappels, (Amos 9:1 Zef.2:14)
 
 2) De LXX vertaalt: zijn Lelies. Wij hebben hier echter onder te verstaan, in verband met het woord in de grondtekst, hetwelk van "uitbotten" is afgeleid, afbeeldingen van opengaande, zich ontsluitende bloemen.
 
@@ -192,7 +192,7 @@ De Heere bepaalt de vervaardiging van de kandelaar, die zeven armen moet hebben 
 
 ***38. Zijn snuiters en zijn blusvaten 1) zullen louter goud zijn.***
 
-1) De snuiters dienden, om de lampen, wanneer zij ‘s nachts gebrand hadden, ‘s morgens te reinigen en weer gereed te maken (hoofdstuk 27:20 vv. Leviticus. 24:2 vv. ), de blusvaten om het onreine daarin op te nemen en uit het heiligdom weg te dragen.
+1) De snuiters dienden, om de lampen, wanneer zij ‘s nachts gebrand hadden, ‘s morgens te reinigen en weer gereed te maken (hoofdstuk 27:20 vv. Leviticus. 24:2 vv.), de blusvaten om het onreine daarin op te nemen en uit het heiligdom weg te dragen.
 
 39. Uit een talent 1) louter goud zal men dat maken met al dit gereedschap. a)
 

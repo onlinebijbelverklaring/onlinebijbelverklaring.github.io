@@ -110,7 +110,7 @@ a) Deuteronomium. 1:17
 
 Waarachtige, in de zin van, wakkere mannen, mannen van zedelijke kracht. Volgens de Rabbijnen moest een rechter zijn: wijs, nederig, Godvrezend, de rijkdom minachtende en een liefhebber van de waarheid, geacht bij zijn medemensen en een goede naam bezittende. Bovendien moest hij zijn, zonder enig letsel of gebreken van het lichaam, en ervaren in zeventig talen, opdat hij in het aanhoren van de rechtzaken geen tolk nodig zou hebben. Ook moest hij niet te oud zijn en vader van kinderen, opdat hij wist, wat barmhartigheid te oefenen was.
 
-2) Het volk was van oudsher in "stammen," "geslachten," "vaderhuizen" en "hoofden van gezinnen" ingedeeld. De hoofden van de stammen en geslachten waren "vorsten" (Numeri. 1:44; Jozua. 22:14 ). De gezamenlijke vorsten "de oudsten." In Egypte waren uit deze oudsten de "ambtslieden" (Exodus. 5:6) gekomen; thans worden uit hun getal "de oversten van duizend," "honderd," "vijftig" en "tien" (Deuteronomium. 1:15 vv.) aangesteld.
+2) Het volk was van oudsher in "stammen," "geslachten," "vaderhuizen" en "hoofden van gezinnen" ingedeeld. De hoofden van de stammen en geslachten waren "vorsten" (Numeri. 1:44; Jozua. 22:14). De gezamenlijke vorsten "de oudsten." In Egypte waren uit deze oudsten de "ambtslieden" (Exodus. 5:6) gekomen; thans worden uit hun getal "de oversten van duizend," "honderd," "vijftig" en "tien" (Deuteronomium. 1:15 vv.) aangesteld.
 
 Deze vormden nu samen de Raad, waarvan de leden later zeventig in getal waren. Bij de Zeventig werden later nog gevoegd, óf de vorst van het volk en de vader van het rechthuis, óf de twee schriftgeleerden, waarvan de een veroordeelde en de andere vrijsprak.
 

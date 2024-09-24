@@ -10,23 +10,23 @@ I. Vs.1-24. Op de achtste dag, de dag na de zevendaagse priesterwijding, aanvaar
 
 a) Ex.29:1
 
-1) De in de plaatsstelling van een iets geringer dier, dan in Leviticus. 4:3 bevolen is, tot een priesterlijk zondoffer wijst aan, dat de verzoening van de vorige dagen nog kracht bezit; dat echter in het algemeen een zondoffer moet worden gebracht, wijst erop, dat de oudtestamentische offerdienst niet heiligen kan; voortdurend moet die herhaald worden, want in haar geschiedt ieder jaar weer gedachtenis aan de zonde..
+1) De in de plaatsstelling van een iets geringer dier, dan in Leviticus. 4:3 bevolen is, tot een priesterlijk zondoffer wijst aan, dat de verzoening van de vorige dagen nog kracht bezit; dat echter in het algemeen een zondoffer moet worden gebracht, wijst erop, dat de oudtestamentische offerdienst niet heiligen kan; voortdurend moet die herhaald worden, want in haar geschiedt ieder jaar weer gedachtenis aan de zonde.
 
-2) Nu legde Mozes zijn priesterambt neer en Aäron moest zijn Hogepriesterschap aanvaarden met een zondoffer, om aan te tonen, dat hij, hoewel Hogepriester zijnde, echter een zondig mens, geenszins de ware Hogepriester en maar slechts een voorbeeld was van Hem, Die zonder zonde zijnde, Zichzelf tot een zondoffer en rantsoen voor anderen offeren zou..
+2) Nu legde Mozes zijn priesterambt neer en Aäron moest zijn Hogepriesterschap aanvaarden met een zondoffer, om aan te tonen, dat hij, hoewel Hogepriester zijnde, echter een zondig mens, geenszins de ware Hogepriester en maar slechts een voorbeeld was van Hem, Die zonder zonde zijnde, Zichzelf tot een zondoffer en rantsoen voor anderen offeren zou.
 
 3. Daarna spreek tot de kinderen van Israël, waarvan de oudsten hier tegenwoordig zijn zeggende: neemt een geitebok, 1) ten zondoffer van de gemeente, en een kalf en een lam, eenjarig, volkomen ten brandoffer.
 
-1) D.i. een jong bokje. Voor een bepaalde zonde werd een jong rund ten zondoffer geëist: maar hier was het een zondoffer in het algemeen. Wel een bewijs, dat in de grond van de zaak de verzoening niet afhing van de waarde van het offer, maar van het bloed van het Lam van de verzoening..
+1) D.i. een jong bokje. Voor een bepaalde zonde werd een jong rund ten zondoffer geëist: maar hier was het een zondoffer in het algemeen. Wel een bewijs, dat in de grond van de zaak de verzoening niet afhing van de waarde van het offer, maar van het bloed van het Lam van de verzoening.
 
 4. Ook een os, een mannelijk of vrouwelijk rund (Leviticus. 3:1; 4:10 vv.) en ram 1) ten dankoffer, om voor het aangezicht des HEEREN te offeren; en brengt spijsoffer van meel (Leviticus. 2:1) met olie gemengd; 2) want heden zal de HEERE u verschijnen, 3)u Zijn aanwezigheid op bijzondere wijze openbaren.
 
-1) De woorden in de grondtekst geven aan, dat én de os én de ram tot hun volle kracht moesten gekomen zijn. Een groot offer werd dus geëist, opdat er een kostelijke feestmaaltijd zou zijn..
+1) De woorden in de grondtekst geven aan, dat én de os én de ram tot hun volle kracht moesten gekomen zijn. Een groot offer werd dus geëist, opdat er een kostelijke feestmaaltijd zou zijn.
 
-Voor Aäron werd geen dankoffer geëist, wel voor de vergadering van het volk. Dit komt, omdat Aäron in dit geval priester en offeraar tegelijk was..
+Voor Aäron werd geen dankoffer geëist, wel voor de vergadering van het volk. Dit komt, omdat Aäron in dit geval priester en offeraar tegelijk was.
 
-2) Dit diende, om het dankoffer te volmaken..
+2) Dit diende, om het dankoffer te volmaken.
 
-3) Mozes voorspelde het volk deze gebeurtenis: 1e. Opdat het onder de inwachting van Gods zichtbare aanwezigheid zich stiller en in meer ontzag zou houden. 2e. Ten einde blijdschap in de harten te verwekken, door hen hoop te geven, dat God de offeranden, die men Hem ging aanbieden, gunstig zou aannemen. 3e. Om voor te komen, dat zij de nederdaling van het vuur niet voor een natuurlijk geval zouden aanzien, hetgeen zou hebben kunnen gebeuren, indien zoiets niet was voorzegd gevreest. 4e. Opdat zij zich des te meer zouden beijverigen in een betamelijke voorbereiding om als een heilig volk, dat het Verbond met God maakte, met offeranden de Heere te naderen en Zijn verschijning af te wachten..
+3) Mozes voorspelde het volk deze gebeurtenis: 1e. Opdat het onder de inwachting van Gods zichtbare aanwezigheid zich stiller en in meer ontzag zou houden. 2e. Ten einde blijdschap in de harten te verwekken, door hen hoop te geven, dat God de offeranden, die men Hem ging aanbieden, gunstig zou aannemen. 3e. Om voor te komen, dat zij de nederdaling van het vuur niet voor een natuurlijk geval zouden aanzien, hetgeen zou hebben kunnen gebeuren, indien zoiets niet was voorzegd gevreest. 4e. Opdat zij zich des te meer zouden beijverigen in een betamelijke voorbereiding om als een heilig volk, dat het Verbond met God maakte, met offeranden de Heere te naderen en Zijn verschijning af te wachten.
 
 5. Toen namen zij, Aäron en de oudsten, hetgeen Mozes geboden had, brengende dat tot vóór aan de tent der samenkomst; en de gehele vergadering, vertegenwoordigd door de hoofden van de stammen, geslachten en gezinnen, (Leviticus. 8:3) naderde en stond voor het aangezicht des HEEREN, aan de zuid- en oostzijde van de voorhof.
 
@@ -40,7 +40,7 @@ a) Leviticus. 16:6 Hebr.7:27
 
 1) Hiermee komt de onvolmaaktheid uit van het priesterschap van Aäron. Niet alleen voor het volk, maar ook voor eigen zonde moest de priester verzoening doen. Het Evangelie wijst de
 
-Hogepriester aan, die niet voor eigen zonde behoefde te offeren. Priester en volk waren hier overigens op het nauwste verbonden. Het offer van het volk ontving zijn kracht van de heiligheid van de priester..
+Hogepriester aan, die niet voor eigen zonde behoefde te offeren. Priester en volk waren hier overigens op het nauwste verbonden. Het offer van het volk ontving zijn kracht van de heiligheid van de priester.
 
 8. Toen naderde Aäron, het bevel van Mozes opvolgende, tot het altaar en slachtte aan de noordzijde daarvan het kalf van het zondoffer (vs.2), dat voor hem was.
 
@@ -48,17 +48,17 @@ Hogepriester aan, die niet voor eigen zonde behoefde te offeren. Priester en vol
 
 a)Zach.9:15; 14:20
 
-1) Dit was een afbeelding van het werk van de Heilige Geest, door Wie de verlossing door het bloed van Christus aan de harten van de gelovigen toegepast en verzameld wordt..
+1) Dit was een afbeelding van het werk van de Heilige Geest, door Wie de verlossing door het bloed van Christus aan de harten van de gelovigen toegepast en verzameld wordt.
 
-2) Het bloed werd niet in het Heilige gebracht, omdat het niet diende tot verzoening van een bijzondere zonde..
+2) Het bloed werd niet in het Heilige gebracht, omdat het niet diende tot verzoening van een bijzondere zonde.
 
 10. Maar het vet en de nieren en het net van de lever van het zondoffer heeft hij op het altaar aangestoken, zoals de HEERE Mozes geboden had.
 
 11. Doch het vlees en de huid verbrandde hij met vuur buiten het leger. 1)
 
-1) Met het vlees en de huid wordt gehandeld als met alle zondoffers, welke voor de priester werden gebracht. Dit offer werd nog met aards vuur aangestoken. Wel hebben sommigen gemeend, dat hier bij wijze van vervroeging gesproken wordt, alsof Aäron alleen het vet enz. heeft gelegd op het altaar, maar ten onrechte. Eerst het avondoffer, toen al de aangewezen offers waren gebracht en des Heeren bevel was gehoorzaamd, is op bijzondere wijze door vuur uit de hemel verbrand..
+1) Met het vlees en de huid wordt gehandeld als met alle zondoffers, welke voor de priester werden gebracht. Dit offer werd nog met aards vuur aangestoken. Wel hebben sommigen gemeend, dat hier bij wijze van vervroeging gesproken wordt, alsof Aäron alleen het vet enz. heeft gelegd op het altaar, maar ten onrechte. Eerst het avondoffer, toen al de aangewezen offers waren gebracht en des Heeren bevel was gehoorzaamd, is op bijzondere wijze door vuur uit de hemel verbrand.
 
-Nog is Aäron geen volkomen toegerust hogepriester, maar wordt eerst daarvoor toebereid; daarom handelt hij met het zondoffer, zoals met die gedurende de 7 dagen van zijn wijding (Le.8:14-17, en brengt het bloed niet in het heilige, zoals in hfdts. 4:5-7 voor het zondoffer van de hogepriesters voorgeschreven werd..
+Nog is Aäron geen volkomen toegerust hogepriester, maar wordt eerst daarvoor toebereid; daarom handelt hij met het zondoffer, zoals met die gedurende de 7 dagen van zijn wijding (Le.8:14-17, en brengt het bloed niet in het heilige, zoals in hfdts. 4:5-7 voor het zondoffer van de hogepriesters voorgeschreven werd.
 
 12. Daarna slachtte hij het voor hem (vs.2) bepaalde brandoffer; en de zonen van Aäron leverden aan hem het bloed, en hij sprenkelde dat rondom op het altaar (Leviticus. 1:5).
 
@@ -86,15 +86,15 @@ a) Leviticus. 4:13
 
 22. Daarna, nadat hij zo alle offers gebracht had, hief Aäron zijn handen op tot het volk, ze daardoor middellijk een ieder in het bijzonder opleggende (Genesis 48:14) en zegende hen; 1) en hij kwam af van de om het altaar heenlopende verhevenheid (Exodus. 27:4), nadat hij het zondoffer en brandoffer en dankoffer gedaan (op het altaar aangestoken) had. 2)
 
-1) Voor deze priesterlijke zegening werd later (Numeri. 6:22 vv.), een bijzondere blijvende formule verordend, die nog heden ten dage in de Christelijke kerk bij het zegenen van de gemeente gebruikt wordt..
+1) Voor deze priesterlijke zegening werd later (Numeri. 6:22 vv.), een bijzondere blijvende formule verordend, die nog heden ten dage in de Christelijke kerk bij het zegenen van de gemeente gebruikt wordt.
 
-2) Dat Aäron het volk, na het brengen van de offerande zegende, daarmee gaf hij te kennen, dat alle zegen gegrond is op verzoening..
+2) Dat Aäron het volk, na het brengen van de offerande zegende, daarmee gaf hij te kennen, dat alle zegen gegrond is op verzoening.
 
 23. Toen ging Mozes met Aäron in de tent der samenkomst, 1) daarna kwamen zij uit en zegende het volk, deelden tezamen aan het volk de zegen mee, waarom zij in het heiligdom hadden gebeden. En de heerlijkheid des HEEREN verscheen aanal het volk; 2) op hetzelfde ogenblik, dat zij hun handen over het volk ophieven, uit de wolk, die op de tabernakel rustte (Exodus. 40:34 vv.), lichtte plotseling een wonderbare glans, zoals vroeger (Exodus. 16:10); dat lichten ging echter nu nog met iets bijzonders gepaard.
 
-1) Mozes en Aäron gingen niet in het Heilige, om een reukwerk aan te steken, maar om Aäron in te leiden tot zijn heilig dienstwerk en ‘s Heeren aangezicht te zoeken, opdat Hij Zijn woord en belofte zou vervullen. Want toch, al is alles gedaan naar recht en naar het eigen bevel van de Heere, daarom blijft God toch nog vrijmachtig, om te doen naar Zijn welbehagen. Als Hij straks het avondoffer met vuur uit de hemel zal aansteken, en daarom blijken zal geven van Zijn Goddelijke goedkeuring en zegen, zal dit nog altijd vrije gunst en ontferming zijn. Mozes en Aäron beiden het Heilige binnengaande schaduwen af het Profetisch en het Hogepriesterlijk werk van Christus..
+1) Mozes en Aäron gingen niet in het Heilige, om een reukwerk aan te steken, maar om Aäron in te leiden tot zijn heilig dienstwerk en ‘s Heeren aangezicht te zoeken, opdat Hij Zijn woord en belofte zou vervullen. Want toch, al is alles gedaan naar recht en naar het eigen bevel van de Heere, daarom blijft God toch nog vrijmachtig, om te doen naar Zijn welbehagen. Als Hij straks het avondoffer met vuur uit de hemel zal aansteken, en daarom blijken zal geven van Zijn Goddelijke goedkeuring en zegen, zal dit nog altijd vrije gunst en ontferming zijn. Mozes en Aäron beiden het Heilige binnengaande schaduwen af het Profetisch en het Hogepriesterlijk werk van Christus.
 
-2) De verschijning van de heerlijkheid van Jehova hier zoals Numeri. 16:19; 17:7; 20:6 hebben wij ons vermoedelijk als een plotseling oplichten van een wonderbare lichtglans te denken, welke uit de wolk, die de tabernakel bedekte, wellicht ook van de, in het Allerheilige zich bevindende, wolk te voorschijn kwam, of als een plotselinge, zeer in het oog vallende verandering van de, de Heerlijkheid des Heeren omhullende, wolk in een heldere lichtglans, waarvan dan in dit geval het vuur op de wijze van de bliksemstralen uitging, dat het offer op het altaar verteerde..
+2) De verschijning van de heerlijkheid van Jehova hier zoals Numeri. 16:19; 17:7; 20:6 hebben wij ons vermoedelijk als een plotseling oplichten van een wonderbare lichtglans te denken, welke uit de wolk, die de tabernakel bedekte, wellicht ook van de, in het Allerheilige zich bevindende, wolk te voorschijn kwam, of als een plotselinge, zeer in het oog vallende verandering van de, de Heerlijkheid des Heeren omhullende, wolk in een heldere lichtglans, waarvan dan in dit geval het vuur op de wijze van de bliksemstralen uitging, dat het offer op het altaar verteerde.
 
 24. Want a) een vuur ging uit van 1) het aangezicht des HEEREN, en verteerde op het altaar het brandoffer, en het vet, 2) zodat de offers eensklaps tot as werden verbrand. Als het gehele volk dit zag, zo juichten zij van vreugde en vielen aanbiddend op hun aangezichten; want zij zagen met recht daarin een teken, dat de Heere hun offers genadig had aangenomen (Numeri. 4:4), en hun een priesterschap gegeven had, welks dienst Hem welgevallig was; maar tegelijk hadden zij nu op hun altaar in plaats van het gewone, natuurlijke vuur, een goddelijk, hemels vuur, dat nimmer weer zou uitgaan (Leviticus. 6:13).
 
@@ -104,7 +104,7 @@ a) 1 Kon.18:38; 2 Kron.7:1
 
 gemeenschap met Hem herstellen. Terwijl nu bij de overige volkeren deze behoefte zich alleen in overleveringen uitspreekt, vinden wij bij Israël ook bevrediging van de behoefte door werkelijke vervulling van hetgeen het God zoekende hart begeert. Zie Ex 13.21 zie Ex 19.9.
 
-Letterlijk: Van voor het aangezicht des Heeren, d.i. vanuit de verschijning van Jehova..
+Letterlijk: Van voor het aangezicht des Heeren, d.i. vanuit de verschijning van Jehova.
 
-2) Daar hier staat het brandoffer en het vet, mogen wij veilig aannemen, dat hiermee het avondoffer wordt bedoeld. Alles werd tot as verteerd, tot teken van Gods genoegen in het offer. Dit verklaart de uitdrukking, voorkomende in Psalm. 20:3. Anderen zijn van mening, dat het offer reeds aangestoken was, maar het vuur van het offer nu door goddelijk vuur wordt gewijd..
+2) Daar hier staat het brandoffer en het vet, mogen wij veilig aannemen, dat hiermee het avondoffer wordt bedoeld. Alles werd tot as verteerd, tot teken van Gods genoegen in het offer. Dit verklaart de uitdrukking, voorkomende in Psalm. 20:3. Anderen zijn van mening, dat het offer reeds aangestoken was, maar het vuur van het offer nu door goddelijk vuur wordt gewijd.
 

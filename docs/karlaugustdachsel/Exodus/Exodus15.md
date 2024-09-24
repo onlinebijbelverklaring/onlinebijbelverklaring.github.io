@@ -149,7 +149,7 @@ Hier wordt als reeds geschied voorgesteld, wat nog moest plaats hebben. In de zi
 
 2) Hebreeuws: "de bewoners van Pelesh", de Pelisjthim, de Filistijnen, de bewoners van de zuidwestelijke zeekust van Palestina.
 
-***15. Die verschrikking zal van volk gaan; want de meest nabijwonende Filistijnen zullen de wonderen van God verhalen, en a) dan zullen de vorsten van Edom verbaasd wezen, die aan de andere zijde wonen (Numeri. 20:18 vv.); beving zal de machtigen van de Moabieten bevangen (Numeri. 22:1 vv.) ): al de ingezetenen van Kanaän zullen versmelten 1) (Jozua 2:9 vv.; 9:9).***
+***15. Die verschrikking zal van volk gaan; want de meest nabijwonende Filistijnen zullen de wonderen van God verhalen, en a) dan zullen de vorsten van Edom verbaasd wezen, die aan de andere zijde wonen (Numeri. 20:18 vv.); beving zal de machtigen van de Moabieten bevangen (Numeri. 22:1 vv.)): al de ingezetenen van Kanaän zullen versmelten 1) (Jozua 2:9 vv.; 9:9).***
 
 a) Deuteronomium. 2:4
 
@@ -244,7 +244,7 @@ O.i. gaat men te ver, als men meent, dat hier werkelijk statuten en instellingen
 
 Verzoeken moet hier opgevat worden in de zin van op de proef stellen. De Heere stelde hen op de proef, niet alleen door het water te Mara, dat Hij op hun op de weg deed ontmoeten, welke Hij hen had aangewezen, maar ook door hetgeen Hij tot hen sprak, omtrent het onderhouden van Zijn geboden.
 
-***26. En Jehova gaf hun de belofte van Zijn bewaring en zei: 1) Is het, dat gij met ernst naar de stem van de HEERE, uw God, luisteren zult, en doen, wat recht is in Zijn ogen, en uw oren neigt tot Zijn geboden, en houdt al Zijn instellingen; zo zal Ik geen van de ziekten of plagen op u leggen, die Ik op Egypteland gelegd heb (Exodus. 7:14-12:29). Zó zal het geschieden: want Ik ben de HEERE, uw heelmeester, 2) die alle ziekten ophef en alle plagen wegneem (hoofdstuk 23:25 Deuteronomium. 7:15 ).***
+***26. En Jehova gaf hun de belofte van Zijn bewaring en zei: 1) Is het, dat gij met ernst naar de stem van de HEERE, uw God, luisteren zult, en doen, wat recht is in Zijn ogen, en uw oren neigt tot Zijn geboden, en houdt al Zijn instellingen; zo zal Ik geen van de ziekten of plagen op u leggen, die Ik op Egypteland gelegd heb (Exodus. 7:14-12:29). Zó zal het geschieden: want Ik ben de HEERE, uw heelmeester, 2) die alle ziekten ophef en alle plagen wegneem (hoofdstuk 23:25 Deuteronomium. 7:15).***
 
 1) Mozes verklaart nu, hoedanig dit statuut of edict geweest is, hetwelk God had gesteld. Want hij handelt hier niet over de gehele wet, welke straks op de berg Sinaï zou gegeven worden, maar over de vermaning, welke gediend had, om de boosheid van het volk te kastijden. De hoofdsom nu is, dat indien de Israëliet God onderdanig en gehoorzaam zouden zijn, Hij zelf op Zijn beurt hun een weldoener zou wezen. En het is tevens een stilzwijgend verwijt, opdat zij zouden weten, dat zij door hun zonde, zich de moeilijkheden hadden op de hals gehaald, welke hun waren wedervaren. De Egyptenaren houdt Hij hen als een voorbeeld voor, wier verzet zij hadden gezien, hetgeen God door grote en zware straffen gewroken had. Wat Hij daarop laat volgen: Ik ben de Heere, uw geneesmeester, doet Hij tot bevestiging, alsof Hij wil zeggen: dat de Israëlieten van dezelfde plagen, welke de Egyptenaren getroffen hadden, waren verschoond, en dat zij, om geen andere oorzaak ongedeerd waren gebleven, dan omdat God hun geneesmeester was geweest.
 

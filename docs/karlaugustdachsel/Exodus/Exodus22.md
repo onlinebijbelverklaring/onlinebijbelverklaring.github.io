@@ -57,7 +57,7 @@ De eed moest daarom gedaan worden, als elk bewijs van schuld of onachtzaamheid o
 
 1) Eigenlijk van bij hem, d.i. uit zijn huis of stal.
 
-***13. Is het gewis door een roofdier verscheurd, dat hij hetgeen van het verscheurde stuk vee nog over is, brengt tot getuigen, dat zowel hetgeen hij zegt, waar is, als ook, dat het van zijn zijde niet aan vlijt ontbroken heeft, om aan het roofdier zijn buit te ontnemen (1 Samuel 17:34 vv. Amos 3:12 ); zo hij dit doet, zo zal hij het verscheurde niet weergeven 1) (Genesis 31:39).***
+***13. Is het gewis door een roofdier verscheurd, dat hij hetgeen van het verscheurde stuk vee nog over is, brengt tot getuigen, dat zowel hetgeen hij zegt, waar is, als ook, dat het van zijn zijde niet aan vlijt ontbroken heeft, om aan het roofdier zijn buit te ontnemen (1 Samuel 17:34 vv. Amos 3:12); zo hij dit doet, zo zal hij het verscheurde niet weergeven 1) (Genesis 31:39).***
 
 1) Omdat de eed het onmiddellijk inroepen van God in het recht is (zie Ex 22.11), moet deze beperkt worden; want de handhaving van het recht is door God aan de mens overgegeven, en daarom moet het met de menselijke bemiddeling van het recht werkelijk ernst zijn. Daarop rust de noodzakelijkheid, dat hoe meer zich de menselijke toestanden ontwikkelen, de bepalingen van het recht des te moeilijker worden, en de eenvoudige grondstellingen van het recht, zich tot een wetenschap moeten uitbreiden.
 
@@ -100,7 +100,7 @@ Want de zodanige werkt, door de prikkeling van de zondige hartstochten, mede aan
 
 1) Offeren staat hier voor de gehele eredienst, omdat een offerande brengen, een van de voornaamste manieren van godsverering was.
 
-***21. Gij zult ook de vreemdeling geen overlast doen, noch hem onderdrukken, door hem zijn loon te onthouden of zijn recht te verkorten (Leviticus. 19:33 vv. Deut.24:15,17 ), want gij zijt vreemdelingen geweest in Egypte, 1) en weet daarom uit eigen ervaring, hoe het is als men in een vreemd land verdrukt wordt (hoofdstuk 23:9).***
+***21. Gij zult ook de vreemdeling geen overlast doen, noch hem onderdrukken, door hem zijn loon te onthouden of zijn recht te verkorten (Leviticus. 19:33 vv. Deut.24:15,17), want gij zijt vreemdelingen geweest in Egypte, 1) en weet daarom uit eigen ervaring, hoe het is als men in een vreemd land verdrukt wordt (hoofdstuk 23:9).***
 
 1) De vreemde goden mochten zij niet dienen, maar de vreemdeling zelf, moesten zij mild en liefderijk behandelen, gedenkende dat ook zij vreemdelingen in Egypte waren geweest. Hiermee wil de Heere Israël ongetwijfeld erop wijzen, dat wat het is en wezen zal, het enkel en alleen aan de gunst van zijn Verbondsgod heeft te danken. Tegen alle hoogmoedige zelfverheffing komt dit gebod op.
 
@@ -156,7 +156,7 @@ Onder Overheid hebben wij ook de rechterlijke macht te verstaan, welke het recht
 
 Wat men, als burger van de staat van God, van land en voortbrengselen de Heere, ter onderhouding van de openlijke dienst had op te brengen, werd hier gezegd. Wij kunnen daarin niet met de joodse geleerden een aangegeven volgorde van de opbrengsten opgegeven of gewijzigd zien. Volgens hen zou hier bevolen zijn, eerst de zogenaamde t’rumah of het
 
-vijftigste deel van het pas gedorste graan naar de priesters te brengen, om dit straks door de eerste tienden, voor de Levieten af te zonderen, te laten volgen; waarbij dan nog de tweede tienden kwamen, die men te Jeruzalem gebruikte. Hier is alleen sprake van de eerstelingen van de koren- en wijnoogst. Deze heet "tranen" of vocht, geen "volheid." Zo worden deze woorden ook elders gebezigd (Numeri. 18:27 Deuteronomium. 22:9 ). Een bepaalde maat van opbrengst wordt hier niet aangegeven. Deze was afhankelijk van de maat van dankbaarheid van Gods zegeningen, die in het hart mocht wonen.
+vijftigste deel van het pas gedorste graan naar de priesters te brengen, om dit straks door de eerste tienden, voor de Levieten af te zonderen, te laten volgen; waarbij dan nog de tweede tienden kwamen, die men te Jeruzalem gebruikte. Hier is alleen sprake van de eerstelingen van de koren- en wijnoogst. Deze heet "tranen" of vocht, geen "volheid." Zo worden deze woorden ook elders gebezigd (Numeri. 18:27 Deuteronomium. 22:9). Een bepaalde maat van opbrengst wordt hier niet aangegeven. Deze was afhankelijk van de maat van dankbaarheid van Gods zegeningen, die in het hart mocht wonen.
 
 2) "Niet uitstellen," d.w.z.: niet vertragen om Mij te geven. Met het brengen van de eerstelingen deed Israël belijdenis, dat God recht op alles had. Daarom moest men niet talmen, om de eerstelingen de Heere te brengen, opdat men geen gevaar liep, het geheel te vergeten.
 

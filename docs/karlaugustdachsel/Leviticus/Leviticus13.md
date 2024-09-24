@@ -10,9 +10,9 @@ I. Vs.1-46. Een andere onreinheid, die aan het menselijk lichaam zelf tevoorschi
 
 2. Een mens, als in het vel van zijn vlees of lichaam, een gezwel, 1) puist, of gezweer, schurft, of witte blaar zal zijn, een opgezwollen, glimmende plaats ontstaat, en nu de een of andere van deze blaren, die op zichzelf nietsverontrustends hebben, maar ook weer kunnen weggaan, blijft en zich ontwikkelt, welke in het vel van zijn vlees tot een plaag van de melaatsheid 2) zou worden, hij zal dan tot de hogepriester Aäron, of tot een uit zijn zonen, de gewone priesters, gebracht worden.
 
-1) Omdat de melaatsheid niet de eerste de beste schurftziekte was, en de mens onrein maakte, heeft God de beslissing aan de priesters opdragende, door zekere kentekenen de gewone schurft van de melaatsheid onderscheiden; vervolgens heeft hij het onderscheid tussen verschillende soorten van melaatsheid er bijgevoegd. Want niet alle melaatsheid was ongeneselijk maar, wanneer door het geheel bedorven bloed de huid was verhard, of, tengevolge van het bederf, was opgezwollen. Dit is in de eerste plaats wel op te merken dat de naam lepra bij de Grieken en Latijnen en de naam teru bij de Hebreeën uitgestrekter betekenis heeft, daar deze ongeneselijke ziekte, omdat zij door de medici genoemd wordt elephantiasis, zowel wegens de verharding van de huid, als wegens de verscheidenheid van kleur. Dat God de priesters, en wel in het bijzonder in eerste aanleg, tot rechters heeft aangesteld, strekt tot bewijs dat de geestelijke dienst van God op meer dan op de gezondheid van het lichaam het oog heeft. Indien iemand vraagt, of de ziekte van de melaatsheid niet besmettelijk was, en het daarom dienstig was, dat allen, die met haar besmet waren, van de menselijke samenleving werden afgesneden, dan beken ik, dat dit wel waar is, maar ik ontken, dat hier dat doel voornamelijk op de voorgrond treedt. Want in het vervolg van tijd konden de medici haar, naar eis van de wetenschap, beter leren kennen, maar God legt deze plicht als nu aan de priesters op, en deelt hen de regel van de onderscheiding mee. En niet stelt hij de Levieten, zonder onderscheid, daartoe aan, maar slechts de zonen van Aäron, die de eersten in rang waren, opdat het gewicht van de uitspraak des te klemmender zou zijn..
+1) Omdat de melaatsheid niet de eerste de beste schurftziekte was, en de mens onrein maakte, heeft God de beslissing aan de priesters opdragende, door zekere kentekenen de gewone schurft van de melaatsheid onderscheiden; vervolgens heeft hij het onderscheid tussen verschillende soorten van melaatsheid er bijgevoegd. Want niet alle melaatsheid was ongeneselijk maar, wanneer door het geheel bedorven bloed de huid was verhard, of, tengevolge van het bederf, was opgezwollen. Dit is in de eerste plaats wel op te merken dat de naam lepra bij de Grieken en Latijnen en de naam teru bij de Hebreeën uitgestrekter betekenis heeft, daar deze ongeneselijke ziekte, omdat zij door de medici genoemd wordt elephantiasis, zowel wegens de verharding van de huid, als wegens de verscheidenheid van kleur. Dat God de priesters, en wel in het bijzonder in eerste aanleg, tot rechters heeft aangesteld, strekt tot bewijs dat de geestelijke dienst van God op meer dan op de gezondheid van het lichaam het oog heeft. Indien iemand vraagt, of de ziekte van de melaatsheid niet besmettelijk was, en het daarom dienstig was, dat allen, die met haar besmet waren, van de menselijke samenleving werden afgesneden, dan beken ik, dat dit wel waar is, maar ik ontken, dat hier dat doel voornamelijk op de voorgrond treedt. Want in het vervolg van tijd konden de medici haar, naar eis van de wetenschap, beter leren kennen, maar God legt deze plicht als nu aan de priesters op, en deelt hen de regel van de onderscheiding mee. En niet stelt hij de Levieten, zonder onderscheid, daartoe aan, maar slechts de zonen van Aäron, die de eersten in rang waren, opdat het gewicht van de uitspraak des te klemmender zou zijn.
 
-In het Hebreeuws Dsara’ath. Het werkwoord in het stamverwante Arabisch, Dsara’a, betekent geselen. De melaatsheid werd dan ook in het bijzonder als een gesel van God beschouwd..
+In het Hebreeuws Dsara’ath. Het werkwoord in het stamverwante Arabisch, Dsara’a, betekent geselen. De melaatsheid werd dan ook in het bijzonder als een gesel van God beschouwd.
 
 3. En de priester zal de plaag in het vel van het vlees, puist, schurft of blaar, bezien, zo het aan nature donkere haar in die plaag van het aangestoken lichaamsdeel in wit veranderd is, 1) en het aanzien van de plaag dieper is dan het vel van zijn vlees, de plaats in vergelijking van de overige huid ingezonken en dieper schijnt, het is de plaag van de melaatsheid; als de priester, om het aanwezig gevaar ter rechter tijd te ontdekken, hem bezien zal hebben, dan zal hij hem onrein verklaren.
 
@@ -22,7 +22,7 @@ Dikwijls jarenlang, voordat de ziekte werkelijk uitbreekt, vertonen zich witte, 
 
 speekselvloed. Stompheid van zinnen, grote zwakte en magerheid, buikloop stinkende adem, algemene waterzucht en sluipkoortsen maken een einde aan het lijden van de ongelukkigen.
 
-Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte vlekken zwart zijn gebleven, daarentegen als ongeneselijk, wanneer zij wit zijn geworden..
+Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte vlekken zwart zijn gebleven, daarentegen als ongeneselijk, wanneer zij wit zijn geworden.
 
 4. Maar zo de blaar in het vel van zijn vlees wit is, en dus de tweede van de drie opgenoemde ziekten zich openbaart, en toch haar aanzien niet dieper is dan het vel,en het haar niet in wit veranderd is, de beide kentekenen van de werkelijke melaatsheid, (vs.3) nog ontbreken, zo zal de priester hem, die de plaag heeft, namelijk degene die tot hem gebracht is, zeven dagen opsluiten, en daardoor van het verkeer met anderen afzonderen.
 
@@ -40,7 +40,7 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 10. Indien de priester dan merken zal, dat, ziet, een wit gezwel, melaatsheid, in het vel is, dat het haar in de omtrek, reeds in wit veranderd heeft, en behalve dit,gezondheid van levend rood vlees 1) in dat gezwel is; en op die plaats voortwoekert;
 
-1) In het Hebreeuws Michjath basar chai. Door onze Statenvertalers weergegeven door gezondheid van levend vlees. Deze vertaling is minder zuiver of duidelijk. Beter is het te vertalen, en een teken van levend, d.i. wild vlees in het gezwel is. Wel betekent het eerste woord, beweging van het leven, of levensonderhoud, maar hier en in vs.24 heeft het die van, teken, kenteken. Zo vertaalt ook de Syriër en Onkelos. Wat Mozes hier dan leert op goddelijk bevel, leert ook het verloop van de ziekte. Want bij deze soort van melaatsheid is er in de gezwellen noch etter noch vuil water, maar zij zijn weggetrokken in de dikke, witte huid maar daaronder verschijnt het wilde, sponsachtige vlees, dat ook pleegt voor de dag te komen, en soms in grootte een moerbei nabij komt, waarop het ook zeer lijkt, zoals Hillary heeft opgemerkt..
+1) In het Hebreeuws Michjath basar chai. Door onze Statenvertalers weergegeven door gezondheid van levend vlees. Deze vertaling is minder zuiver of duidelijk. Beter is het te vertalen, en een teken van levend, d.i. wild vlees in het gezwel is. Wel betekent het eerste woord, beweging van het leven, of levensonderhoud, maar hier en in vs.24 heeft het die van, teken, kenteken. Zo vertaalt ook de Syriër en Onkelos. Wat Mozes hier dan leert op goddelijk bevel, leert ook het verloop van de ziekte. Want bij deze soort van melaatsheid is er in de gezwellen noch etter noch vuil water, maar zij zijn weggetrokken in de dikke, witte huid maar daaronder verschijnt het wilde, sponsachtige vlees, dat ook pleegt voor de dag te komen, en soms in grootte een moerbei nabij komt, waarop het ook zeer lijkt, zoals Hillary heeft opgemerkt.
 
 11. Dat is zeker een verouderde melaatsheid, die in het vel van zijn vlees verborgen geweest en eerst nu tevoorschijn gekomen is; daarom zal hem, de aangetaste, de priester zonder uitstel, onrein verklaren; hij zal hem niet tot verdere onderzoeking doen opsluiten, want hij is reeds onrein.
 
@@ -56,7 +56,7 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 17. Als de priester hem bezien zal hebben, dat, ziet, de plaag in wit veranderd is, zo zal de priester hem, die de plaag heeft, rein verklaren: hij is rein, daar is geen gevaar meer te vrezen. 1)
 
-1) Hieraan sluit zich nu (vs.18-23) een derde gevaar aan, namelijk, wanneer de melaatsheid zich uit een reeds genezende gewone zweer ontwikkelt en zich door dezelfde kentekenen openbaart als die welke volgens vs.28 uit de gewone huid uitbreekt. De wijze, waarop zulke zieken door de priester moeten behandeld worden, komt geheel met de eerste overeen..
+1) Hieraan sluit zich nu (vs.18-23) een derde gevaar aan, namelijk, wanneer de melaatsheid zich uit een reeds genezende gewone zweer ontwikkelt en zich door dezelfde kentekenen openbaart als die welke volgens vs.28 uit de gewone huid uitbreekt. De wijze, waarop zulke zieken door de priester moeten behandeld worden, komt geheel met de eerste overeen.
 
 18. Het vlees ook, als in dit vel een op zichzelf weinig betekenende zweer zal geweest zijn, zo het genezen is.
 
@@ -70,7 +70,7 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 23. Maar indien de blaar in haar plaats gedurende de zeven dagen zal staande blijven, niet uitgespreid zijnde, het is de roof van die zweer, de van de zweer nog overgebleven ontsteking, die in een korst overgaat en als zodanig langzamerhand afvalt, zo zal de priester hem rein verklaren. 1)
 
-1) Het vierde, tot het voorgaande in betrekking staande geval is het volgende: wanneer aan een brandwond zich kentekenen van melaatsheid opdoen: hierin moet de priester handelen, zoals in het derde geval..
+1) Het vierde, tot het voorgaande in betrekking staande geval is het volgende: wanneer aan een brandwond zich kentekenen van melaatsheid opdoen: hierin moet de priester handelen, zoals in het derde geval.
 
 24. Of wanneer in het vel van het vlees een vurige brand zal geweest zijn, en het gezonde van die brand een witte roodachtige of witte blaar is, en op de verbrande plaats een etterende puist zich vertoont, die er roodachtig of wit uitziet.
 
@@ -82,7 +82,7 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 28. Maar indien de blaar in haar plaats, op de plaats van de brandwond, staan zal blijven, noch in het vel uitgespreid maar ingetrokken, de kleur geheel verdwenen zalzijn, het is een gezwel van de brand; daarom zal de priester hem rein verklaren; want het is de roof van de brand 1) (vs.23).
 
-1) In de vijfde plaats wordt over het geval gehandeld (vs.29-37), dat op een met haar bezette plaats van het menselijk lichaam, het hoofd of de kin, zich een zweer vormt, die aan melaatsheid doet denken; ook dan moet de priester handelen als in het vorige geval..
+1) In de vijfde plaats wordt over het geval gehandeld (vs.29-37), dat op een met haar bezette plaats van het menselijk lichaam, het hoofd of de kin, zich een zweer vormt, die aan melaatsheid doet denken; ook dan moet de priester handelen als in het vorige geval.
 
 29. Verder, als in een man of vrouw een plaag zal zijn in het hoofd of in de baard.
 
@@ -102,13 +102,13 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 37. Maar indien die schurft, voor zover hij zien kan, op de plaats waar zij vroeger te zien was, is staande gebleven en zwart haar daarop gegroeid is (zie "Le 13.31), die schurftheid is genezen, hij, de daardoor aangetaste, is rein: daarom zal de priester hem rein verklaren. 1)
 
-1) Hierna (vs.38,39) wordt in de zesde plaats van de onschadelijke uitslag of de witte melaatsheid (Hebreeuws: bohak) melding gemaakt..
+1) Hierna (vs.38,39) wordt in de zesde plaats van de onschadelijke uitslag of de witte melaatsheid (Hebreeuws: bohak) melding gemaakt.
 
 38. Verder als een man, of vrouw, aan het vel van hun vlees blaren zullen hebben, witte blaren; een puist of een lichte witte vlek.
 
 39. En de priester zal gemerkt hebben, dat, ziet, ingetrokken witte blaren in het vel van hun vlees zijn de witte vlek niet blinkend wit is, maar er flauw en bleek uitziet: het is een witte puist in het vel uitgebot, geen eigenlijke melaatsheid, hij, de daardoor aangetaste, is rein. 1)
 
-1) Eindelijk ten zevende (vs.40-44), de op een kaal hoofd, het zij voor- of achterhoofd, uitbrekende melaatsheid..
+1) Eindelijk ten zevende (vs.40-44), de op een kaal hoofd, het zij voor- of achterhoofd, uitbrekende melaatsheid.
 
 40. En als een man zijn hoofdhaar voor of achter zal uitgevallen zijn, hij is kaal, hij heeft een kaal hoofd, hij is rein: zo’n kaal worden van het hoofd verontreinigt op zichzelf niet.
 
@@ -124,7 +124,7 @@ Bij de Arabieren geldt de melaatsheid voor geneselijk, als de haar op de witte v
 
 even dezelfde kracht is, als iemand rechterlijk te brandmerken. Mozes nu neemt als uitgemaakt aan, dat God met openbare eerloosheid tekent, wie Hij met de melaatsheid heeft getroffen, en daarop herinnert hij, dat hij deze straf naar verdienste en naar recht draagt. Het hierna volgende en het daarop volgende bevatten de wijze van uitvoering van het vonnis, nl. dat hij zijn kleed gescheurd zal dragen, hetgeen een teken is van oneer; met ontbloot hoofd zal voortgaan en met bewimpelde mond, opdat hij daardoor zelf een prediker van zijn verontreiniging zij; vervolgens, dat hij woont buiten de legerplaats, als het ware afgesloten van de gemeenschap van mensen. Waar Mozes de tegenwoordige toestand van het volk op het oog heeft, moest hij in de woestijn als vreemdeling verkeren. Want eerst sedert het volk het land bewoonde, zijn de melaatsen gebannen uit steden en dorpen, om, op zichzelf wonende, het leven door te brengen. Dat hier nu beweerd wordt dat zij de mond of de lippen omhuld zouden hebben, daaruit willen sommigen afleiden dat zij de gezonden niet door de stank van hun adem zouden kwellen, maar ik weet niet, of dit wel zo vast is. Ik meen, dat dit moest, omdat zij burgerlijk dood waren; zo was ook die bewimpelde mond een teken van de dood, zodat hun verlaten toestand hen van het gewone leven uitsloot.
 
-Nu volgen eerst (vs.45,46) voorschriften voor hem, die door de priester melaats wordt bevonden, waar hij in zijn ziekte wonen en hoe hij zich gedragen zal..
+Nu volgen eerst (vs.45,46) voorschriften voor hem, die door de priester melaats wordt bevonden, waar hij in zijn ziekte wonen en hoe hij zich gedragen zal.
 
 45. Voorts zullen de kleren van de melaatsen, in wie die plaag is, en die daarom onrein verklaard is, tot een teken van diepe droefheid, gescheurd voor aan de borst ingescheurd (Genesis 37:29) zijn, en zijn hoofd zal ontbloot zijn, zijn hoofdhaar ongekamd en niet gezalfd (Leviticus. 10:6), en hij zal de bovenste lip, de onderkin met de baard a) bewimpelen (Ezech.24:17,22), daartoe zal hij steeds roepen: onrein, onrein! opdat niemand hem te dicht nadere en alzo verontreinigd worde.
 
@@ -134,7 +134,7 @@ a)Klaagl.4:15
 
 1) De reden van deze afzondering van de melaatsen is niet zozeer in de vrees voor een lichamelijke bevlekking gelegen. Deze is alleen bij te nauwe aanraking te vrezen en niet groter dan bij vele andere ziekten; waarom later de melaatsen niet verboden werd in de synagogen te komen, waar zij alleen op een afgezonderde plaats moesten blijven. Veeleer is het de buitengewone hoge graad van levitische onreinheid, welk een melaatse aankleeft en hem niet alleen van het heiligdom, maar ook van alle verkeer van anderen uitsluit, zolang de plaag duurt. Voor een in de hoogste graad onreine wordt hij door de wet eensdeels daarom gehouden, daar hij in zulk een toestand het lichamelijk beeld van de zonde en haar gruwelen met zich omdraagt en anderdeels, omdat hij in zulk een toestand tegelijk een levend lijk (Numeri. 12:12), of een rondwandelend graf is (Sepulcrum ambulans). In het eerste opzicht zullen wij later (Matth.8:2) gelegenheid hebben nog verder over de melaatsheid te spreken; alleen wordt hier nog opgemerkt, dat juist, omdat de melaatsheid het beeld van de zonde en
 
-Gods voornaamste gesel is, het onderzoek en de beoordeling van de aangetasten door de priesters als wachters van de wet en plaatsbekleders van God moest geschieden..
+Gods voornaamste gesel is, het onderzoek en de beoordeling van de aangetasten door de priesters als wachters van de wet en plaatsbekleders van God moest geschieden.
 
 II. Vs.47-59. Met de melaatsheid aan mensen staan in verband zekere verschijnselen aan linnen kleren, of aan gereedschappen, ook aan leren stoffen en voorwerpen. ook deze zullen daarom door de priester onderzocht en, ingeval zij als de werkelijke kleermelaatsheid openbaar worden, met vuur verbrand worden.
 
@@ -144,7 +144,7 @@ II. Vs.47-59. Met de melaatsheid aan mensen staan in verband zekere verschijnsel
 
 49. En die plaag aan het kleed, of aan het vel, of aan de scheerdraad, of aan de inslag, of aan enig vellentuig groenachtig of roodachtig is; het is de plaag van demelaatsheid, een verschijnsel, waaruit de werkelijke melaatsheid ontstaan kan, daarom zal zij de priester vertoond worden. 1)
 
-1) Het is wetenschappelijk nog niet bewezen, wat onder deze melaatsheid aan kleren en stoffen moet verstaan worden. Enige denken aan vlekken, die voorkomen aan wollen tuig, van de wol van een ziek of dood schaap vervaardigd; maar deze wol mocht in het geheel niet gebruikt worden, en bovendien is hier sprake van nog andere dan wollen voorwerpen. Anderen denken aan een door melaatsen aan kleren en stoffen meegedeelde en ook in deze verder zich uitbreidende melaatsheid; en wanneer ook geneeskundigen een dergelijke aansteking mogelijk achten, toch doelt de wet nergens op een zodanige. Nog anderen zijn van mening, dat de bedoelde kentekenen van melaatsheid niets meer zijn dan gewone uitslag, zoals deze door vochtigheid en gebrek aan lucht ontstaat, en eindelijk een kleed op een stof zo verteert, dat de verteerde stof als molm uiteenvalt. Wij zullen met deze laatste verklaring tevreden moeten zijn, zolang nog niet door verder onderzoek de duistere zaak is opgehelderd..
+1) Het is wetenschappelijk nog niet bewezen, wat onder deze melaatsheid aan kleren en stoffen moet verstaan worden. Enige denken aan vlekken, die voorkomen aan wollen tuig, van de wol van een ziek of dood schaap vervaardigd; maar deze wol mocht in het geheel niet gebruikt worden, en bovendien is hier sprake van nog andere dan wollen voorwerpen. Anderen denken aan een door melaatsen aan kleren en stoffen meegedeelde en ook in deze verder zich uitbreidende melaatsheid; en wanneer ook geneeskundigen een dergelijke aansteking mogelijk achten, toch doelt de wet nergens op een zodanige. Nog anderen zijn van mening, dat de bedoelde kentekenen van melaatsheid niets meer zijn dan gewone uitslag, zoals deze door vochtigheid en gebrek aan lucht ontstaat, en eindelijk een kleed op een stof zo verteert, dat de verteerde stof als molm uiteenvalt. Wij zullen met deze laatste verklaring tevreden moeten zijn, zolang nog niet door verder onderzoek de duistere zaak is opgehelderd.
 
 50. En de priester zal de plaag bezien; en hij, overtuigd, dat de plaag aanwezig is, zal hetgeen de plaag heeft, het kleed, het tuig, het vel, zeven dagen doen opsluiten.
 
@@ -152,7 +152,7 @@ II. Vs.47-59. Met de melaatsheid aan mensen staan in verband zekere verschijnsel
 
 52. Daarom zal hij dat kleed, of die werpte, 1) of die inslag van wol, of van linnen, of alle vellentuig, waarin die plaag zal zijn, verbranden: want het is een knagende melaatsheid; het zal met vuur verbrand worden.
 
-1) Onder werpte hebben wij te verstaan, het voor de schering bestemde garen, bestaande uit wol of vlas..
+1) Onder werpte hebben wij te verstaan, het voor de schering bestemde garen, bestaande uit wol of vlas.
 
 53. Doch indien de priester zal zien, dat, ziet, de plaag aan het kleed, of aan de scheerdraad, of aan de inslag, of aan enig vellentuig niet uitgespreid is.
 
@@ -172,5 +172,5 @@ II. Vs.47-59. Met de melaatsheid aan mensen staan in verband zekere verschijnsel
 
 1) Het kleed is voor de mens niet maar iets uitwendigs, het staat innerlijk tot het wezen en de toestand van zijn leven in betrekking. Om deze nauwe en innige betrekking, waarin het kleed tot de mens staat, is voor de wet de melaatsheid van het kleed een beeld van de melaatsheid van de mens en neemt zij daaruit aanleiding om de aard van de menselijke melaatsheid in het voorschrift over de kleermelaatsheid nog duidelijker te doen uitkomen; zoals de heiliging van de menselijke eerstgeboorte zich eerst door de handelwijs met de eerstgeboorte van de dieren in haar diepste diepte openbaart (Exodus. 13:11 vv.). Terwijl nu bij de kleermelaatsheid een spoedige vernietiging door vuur kennelijk bedoeld wordt, zo is tegenover de melaatsheid van
 
-de mensen met alle strengheid toch ook nog een sparen van het leven op te merken; dit kan nu echter alleen zo worden verstaan, dat uit de instandhouding van het menselijk geslacht nog een meer volledige reiniging en heiliging van de melaatsheid zich zou ontwikkelen. Deze hoop is ook later in Christus verwezenlijkt, wiens geboorte uit een vrouw alleen door het sparen van het menselijk leven en geslacht mogelijk is geworden..
+de mensen met alle strengheid toch ook nog een sparen van het leven op te merken; dit kan nu echter alleen zo worden verstaan, dat uit de instandhouding van het menselijk geslacht nog een meer volledige reiniging en heiliging van de melaatsheid zich zou ontwikkelen. Deze hoop is ook later in Christus verwezenlijkt, wiens geboorte uit een vrouw alleen door het sparen van het menselijk leven en geslacht mogelijk is geworden.
 
