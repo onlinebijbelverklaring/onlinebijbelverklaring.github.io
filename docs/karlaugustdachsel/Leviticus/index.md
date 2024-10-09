@@ -1,4 +1,3 @@
-
 HET DERDE BOEK VAN MOZES, LEVITICUS.
 
 (Priesterordening).

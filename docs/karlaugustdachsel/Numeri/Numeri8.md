@@ -1,0 +1,106 @@
+---HOOFDSTUK---8.
+
+WIJDING VAN DE LEVIETEN.
+
+I. Vs.1-4. Eer nu het bericht met het verhaal van de laatste omstandigheden, die aan het opbreken van de Sinaï, vooraf gingen, wordt voortgezet, wordt nog een bepaling van de Heere meegedeeld, betreffende de zorg, die er moest gedragen worden voor de heilige lampen van de gouden kandelaar (Exodus. 27:20 vv. Leviticus. 24:1-4). Nauwkeuriger dan dit eerder (Exodus. 25:37) nog gebeurd is, wordt hier opgegeven, in welke richting deze lampen, naar de wil van de Heere, in het heiligdom hangen zouden. Daar Israël thans het oord, waar het tot hiertoe van de wereld afgescheiden, met zijn God alleen geweest was, verlaat en weer de wereld ingaat, heeft het een nieuwe herinnering nodig aan zijn hoge roeping, die in de zeven lampen is afgebeeld, om namelijk als lichten te schijnen te midden van een krom en verdraaid geslacht.
+
+1. En de HEERE sprak, in de laatste dagen voor het opbreken, tot Mozes, zeggende:
+
+2. Spreek tot Aäron, die de gouden kandelaar in het Heilige, bij het dagelijks morgen- en avondoffer, te verzorgen heeft, en zeg tot hem: als gij ‘s avonds delampen aansteken zult, om de gehele nacht door te branden, echt tegenover of naar de voorzijde van de kandelaar zullen de zeven lampen lichten. 1)
+
+1) Dit betekende, dat God is de Vader van de lichten, die met Zijn Geest de Kerk bestraalt, opdat zij in de duisternis niet zou verdwalen. Dat alzo, wanneer duisternis de gehele wereld vervult, Hij Zijn gelovigen als een zon en maan tot een eeuwig licht zou zijn, zoals Jesaja zegt Jesaja 60:19)
+
+Het licht van de kandelaar moest de gehele ruimte van het Heilige beschijnen. Dit voorschrift is geen blote herhaling van hetgeen in Exodus. 25:37 bevolen is. Veeleer wordt door dit bevel het vorige nader bestemd. Werd eerder (Exodus. 27:21) eenvoudig het aansteken en het toerichten van de kandelaar bevolen, hier wordt de wijze, waarop dit geschieden moest, nader aangegeven. Israël ontvangt hier tevens een wenk, dat het als een licht zou moeten schijnen, dat overal zijn stralen heenzond; als een licht te midden van een krom en verdraaid geslacht.
+
+3. En Aäron deed alzo; tegenover vooraan, d.i. ze naar de voorzijde van de kandelaar gekeerd hebbende, stak hij nu, met nog groter zorgvuldigheid dan tevoren, deze lampen aan, zoals de HEERE Mozes geboden had.
+
+4. Dit werk nu van de kandelaar was van dicht, massief goud vervaardigd, tot zijn schacht of zijn standaard, tot zijn pijpen met hun versierselen, of bloemen toe (Exodus. 25:31 vv.) was het een werkstuk van dicht goud; naar de gedaante, die de HEERE Mozes op de berg (Exodus. 25:9), vertoond had, alzo had hij, door de dienst van de verordende kunstenaars (Exodus. 31:1 vv.) de kandelaar gemaakt(Exodus. 37:17 vv.).
+
+De huidige, met de wil van God op het nauwst overeenkomende bediening van de kandelaar door Aäron (vs.3) beantwoordde alzo volkomen aan de reeds vroeger bestede zorgvuldigheid, waarmee Mozes de kandelaar zelf, overeenkomstig de aanwijzing van de Heere, had laten vervaardigen. Hoe had Israël zich dan steeds ijverig moeten betoond hebben, om zich door nauwgezette waarneming van het goddelijk woord te openbaren als een licht in de Heere.
+
+Zoals de kandelaar was van dicht geslagen werk, en de olie van geslagen olijven, zo is het werk van de getrouwe Dienaren van het Woord geen gemakkelijk, maar een zwaar werk, dat veeltijds met verdrukking gepaard gaat, terwijl ook het maaksel van de kandelaar, naar de gedaante, die de Heere aan Mozes getoond had, tot waarschuwing moest strekken, dat geen ander voorbeeld van de leer moet voortgebracht en van de Kerk ingevoerd worden, dan, waarvan God zelf de ingever en eerste oorzaak is.
+
+II. Vs.5-26. Zich aansluitend aan de in hoofdstuk 7 berichte schenking van offergaven door de stamvorsten van Israël, volgt nu het tweede van de laatste bijzonderheden, die bij de Sinaï plaatshadden, de inwijding namelijk van de tot uiterlijke dienst van het heiligdom verordende Levieten (hoofdstuk 3 en 4). Zij heeft, even als die van de priesters (Exodus. 29:1 vv.) bij een dubbele behandeling plaats, maar is, wat haar afzonderlijke handelingen betreft, daaraan ondergeschikt en komt slechts als een flauw afschijnsel daarvan voor, zoals zij dan ook niet een heiligen, maar slechts een reinigen genoemd wordt. In de eerste handeling heeft hier, in plaats van de wassing, een besprenkeling met ontzondigingswater, in plaats van de zalving, een afscheren van het haar, in plaats van de bekleding, slechts een wassen van de klederen voor, en in de tweede, in plaats van het vullen van de handen, alleen een bewegen voor de Heere. Dit alles beantwoordde juist aan de plaats, die de Levieten in de theocratie beslaan en aan het beroep, waarin zij aan het heiligdom dienen moesten. Voor deze wordt, nu er van de vaste dienst en niet meer, zoals in hoofdstuk 4:3 van het vervoer van de verscheidene bestanddelen van de tabernakel sprake is, een ouderdom van 25 tot 50 jaar bepaald.
+
+5. En de HEERE sprak 1) verder tot Mozes, zeggende:
+
+1) Ofschoon het de Levieten niet geoorloofd was, het heiligdom binnen te treden, daar zij slechts dienaars van de priester waren, en tot bijna slaafse arbeid verordend: omdat zij echter het heiligdom met de heilige vaten moesten dragen, de offerdieren bereiden, de as wegnemen en alle andere onreinheden van het altaar, wilde God, dat zij ook door een plechtig ritueel Hem gewijd werden. Want, zoals geheel Israël, met het oog op de volkeren, een bijzonder volk van God was, zo was het huis van Levi, uit het volk zelf, tot een bijzonder eigendom uitverkoren, zoals hier gezegd wordt. Maar, opdat zij zich niet meer aanmatigden, dan geoorloofd was, komt God hun overmoed breidelen. Allereerst, doordat Hij hun wijding tot een latere tijd verschuift; vervolgens, doordat Hij wilde, dat zij niet door Mozes, maar door Aäron werden gewijd; ten derde, doordat Hij een geheel andere ceremonie voor hen instelt. Want, indien zij op dezelfde tijd waren gewijd, zouden zij wellicht, met dit voorwendsel tot wapen, om gelijkheid in rang gestreden hebben. Daarom, nadat de priesters reeds van het volk waren afgezonderd, bleven zij, opdat zij het ambt van deze zouden eerbiedigen, tot nog toe private personen. Vervolgens, omdat, indien zij op de algemene wijze door Mozes werden aangeboden, er gevaar was, dat zij tegen al de anderen zich trots zouden gedragen, wordt
+
+Aäron bevolen, hen te wijden, opdat zij zich zedig aan zijn gezag zouden onderwerpen. Nu, omdat zij slechts met water en een offerande werden gewijd, doch er geen zalving nodig was, vermaande hen het onderscheid in de uiterlijke rites, dat zij niet hetzelfde of een gelijk eerambt bezaten.
+
+6. Neem de Levieten uit het midden van de kinderen van Israël, en reinig 1) hen, tot het hun bestemde ambt.
+
+1) Voor de priesters wordt het woord heiligen gebruikt, voor de Levieten het woord reinigen. In de grondtekst vindt men ook twee verschillende woorden. Het was, om duidelijk voor ogen te stellen, de veel grotere waardigheid van de priesters, dan die van de Levieten.
+
+7. En aldus zult gij hen doen, om hen te reinigen: sprenkel op hen water van ontzondiging 1) en zij zullen het scheermes over hun gehele vlees 2) doen gaan, en zij zullen hun kleren-want een bijzonder ambtsgewaad zoals de priester hebben zij niet te dragen-wassen met water uit het koperen wasvat, en op deze wijze zich reinigen, 3) zodat zij door deze besprenkeling, beschering en wassing van de kleren rein zijn.
+
+1) Waarin dit water bestaan moest, wordt niet gezegd. De uitleggers zijn het dan ook oneens, of hier aan een bijzonder, toebereid sprengwater, zoals het in Leviticus. 14:5 enz. vermelde, of het in Numeri. 19:9 voorgeschrevene gedacht worden moet, dan of er eenvoudig zuiver water uit een bron of uit het koperen wasvat bedoeld is. De eerste mening schijnt de voorkeur te verdienen.
+
+Allereerst wordt Aäron bevolen, hen te besprenkelen met het water van ontzondiging, dat hen zou reinigen van alle onreinheden. Maar dit niet alleen, zij moesten ook hun kleren wassen, opdat zij zich ijverig zouden hoeden voor alle besmetting rondom, waardoor de verontreiniging op hen zou kunnen komen. Ten derde worden zij bevolen, hun huid te scheren met een scheermes, opdat zij, nadat zij ontdaan waren van de besmettingen van het vlees, als nieuwe mensen zouden beginnen. Een offerande wordt er nog bijgevoegd, en wel een dubbele, om hen te verzoenen. Om welke reden ook de oplegging van de handen hun bevolen wordt. Nadat dit volbracht was, wordt Aäron bevolen, volgens het recht en het eerambt van het Hogepriesterschap, hen te bewegen, niet anders als het heilig brood en de wierook werd bewogen. Het doel hiervan was, dat zij zouden erkennen, dat zij niet meer van hen zelf waren, maar God toegevoegd, om tot de dienst in Zijn heiligdom hun werk te verrichten. Dat nu ook tegelijk sommigen uit het volk bevolen werden, de handen op hen te leggen, dat geschiedde als een getuigenis van vervreemding, alsof alle stammen door deze ceremonie het getuigenis afleggen, dat met hun volle toestemming de Levieten overgingen tot een bijzonder eigendom van God, dat zij als het ware een deel waren van of toevoeging bij het heiligdom. Private personen pleegden hun handen op de offeranden te leggen, maar niet om dezelfde reden als de priesters.
+
+2) Over hun gehele vlees. Dit wordt ook gezegd van de melaatsen, als zij ter reiniging bij de priesters kwamen. Zij moesten dan alle haar van het gehele lichaam afscheren. Ditzelfde wordt hier ook geëist van de Levieten; hoewel sommigen, o.i. ten onrechte, van mening zijn,
+
+dat hier alleen het hoofdhaar bedoeld werd. Van het zich moeten baden, zoals de melaatse, werden zij vrij gesteld. Alleen het besprenkelen met het water van ontzondiging wordt voorgeschreven, zichzelf zuiveren met het water van de reiniging.
+
+3) De grote naarstigheid van hen vereist, om zichzelf te reinigen, verstrekt alle Christenen, en nog veel meer de dienaren van Gods huis, tot een les, om door een waarachtige toevluchtneming tot de grote priester Christus Jezus, door een gedurige gebruikmaking van Zijn bloed en door een gestadige smeking, om Zijn reinigmakende Geest, alsmede door ernstige boetvaardigheid en bekering, en door een dadelijke afstand van aanklevende verdorvenheden, zichzelf te reinigen van alle besmettingen van het vlees en van de geest, en de heiligmaking te voleindigen in de vrees voor God.
+
+8. Daarna zullen zij nemen een var, namelijk een jong rund ten brandoffer (vs.12), met zijn bijbehorend spijsoffer van meelbloem met olie gemengd, naar de in hoofdstuk 15:9 opgegeven maat, en een andere var, namelijk een jong rund, zult gij nemen ten zondoffer,opdat door dit hun zonde uitgewist, zoals door dat eerstgenoemde hun volledige overgave aan de Heere bewerkt wordt.
+
+9. En gij zult, nadat alzo alles tot de eigenlijke wijding voorbereid is, de Levieten voor de tent der samenkomst, in de voorhof doen naderen, en gij zult de gehele vergadering van de kinderen van Israël op dezelfde plaats doen verzamelen.
+
+10. Ja, gij zult de Levieten voor het aangezicht van de HEERE bij het brandofferaltaar, doen naderen! en de kinderen van Israël, door hun oudsten of stamhoofden vertegenwoordigd, zullen, om hun alzo hun verplichting tot de dienst van het heiligdom op te dragen, hun handen op de Levieten leggen.
+
+11. En Aäron zal de Levieten, door ze naar de ingang van de tabernakel heen en van daar weer naar het brandofferaltaar terug te leiden, bewegen ten beweegoffer voor hetaangezicht van de HEERE; 1) want Ik neem hen aan, als een geschenk of een offergave (vs.16), vanwege de kinderen van Israël, en geef ze wederom als een geschenk (vs.19) aan Aäron en zijn zonen, opdat zij zijn, om de dienst van de HEERE te bedienen.
+
+1) Ook: zie Ex 29.24.
+
+12. En de Levieten zullen, na alzo bewogen en tot hun ambt gewijd te zijn, hun handen op het hoofd van de beide varren leggen, om deels hun schuld op de hun plaatsbekledende offerdieren over te dragen, deels hun bereidwilligheid tot een volledige overgave aan de dienst van de Heere te betuigen; daarna bereidt gij een ten zondoffer en een ten brandoffer voor de HEERE, om over de Levieten verzoening te doen, en hen Mij welgevallig te maken.
+
+13. En gij zult de Levieten stellen voor het aangezicht van Aäron en voor het aangezicht van zijn zonen, ten teken dat zij hun van nu aan als dienaars en helpers toegeschikt zijn zullen, en gij zult hen bewegen 1) ten beweegoffer voor de HEERE, d.i. door deze formele overgave aan
+
+de Heere en aan Zijn dienaren daadwerkelijk ten uitvoer leggen, hetgeen hun beweging (vs.11) zinnebeeldig heeft aangeduid.
+
+1) Deze overgave zal Aäron zo uitvoeren, dat hij de Levieten als een beweegoffer voor Jehova, vanwege de kinderen van Israël beweegt, d.i. als een vanwege de Israëlieten gebracht offer, de Heere zinnebeeldig brengt. Het bewegen gebeurde zonder twijfel zo, dat Aäron de Levieten plechtig van en tot het altaar heen en weer voerde.
+
+Wellicht dat de Apostel van het geloof in Rom.12:1 op deze handeling het oog heeft gehad en daarmee de geestelijke betekenis ervan heeft verklaard, als hij schrift: Ik bid u dan, broeders! door de ontferming van God, dat gij uw lichamen stelt tot een levende, heilige en God welbehaaglijke offerande, welke is uw redelijke godsdienst.
+
+14. En gij zult de Levieten, door ze alzo tot hun bediening in te leiden, uit het midden van de kinderen van Israël scheiden, opdat de Levieten niet als deze een gewonelevenstaak kiezen, maar, zoals Ik hen (hoofdstuk 3:45) daartoe verordend heb, van Mij zijn, als hen, die Mij en de bediening van Mijn heiligdom zijn toegewijd.
+
+15. En daarna zullen de Levieten, in het binnenste van het heiligdom, zodra dit door de priesters tot afbreken gereed gemaakt zijn zal (hoofdstuk 4:5-15), inkomen, om, op de in Numeri. 4:19 vv. beschreven wijze, de tent der samenkomst te bedienen; en gij zult hen dus, zoals Ik u (vs.5 vv.) nauwkeurig aangewezen heb, allereerst (vs.7), reinigen, en zult hen vervolgens ook ten beweegoffer (vs.9 vv.) bewegen, en alzo zowel de negatieve als de positieve wijding aan hen voltrekken.
+
+16. Want zij zijn gegeven; zij zijn Mij gegeven uit het midden van de kinderen van Israël, zoals deze zelf door de handoplegging (vs.10) betuigd hebben; voor de opening van alle baarmoeder, voor de eerstgeborenen namelijk van een ieder uit de kinderen van Israël heb Ik ze Mij genomen, ten gevolge van de plaatsvervanging, waarvan Ik u tevoren (hoofdstuk 3:12 vv.) gesproken heb.
+
+Opdat de andere stammen niet zouden klagen, dat het kader van het volk kleiner werd, openbaarde God, dat zij Zijn eigendom waren uit het geslacht van Abraham, omdat Hij hen zelf had verworven, toen Hij alle eerstgeborenen in Egypte sloeg. Het is nu zeker, dat, zowel de eerstgeborenen van het volk, als de eerstgeborene vrucht van de dieren op een verwonderlijke wijze zijn ontrukt aan het algemeen verderf. Daarom, zoals God hen door een bijzondere bescherming bevrijd heeft, alzo behoudt Hij hen zich ook door de weldaad van de verlossing.
+
+17. Want elke eerstgeborene onder de kinderen van Israël is van Mij, en onder de mensen en onder de beesten; ten dage dat Ik alle eerstgeboorte in Egypte sloeg, daarentegen die van de kinderen van Israël spaarde, heb Ik deze voor Mijgeheiligd, door hen zo bijzonder te sparen.
+
+18. En Ik heb later de Levieten, genomen voor alle eerstgeborenen onder de kinderen van Israël.
+
+19. En Ik heb de Levieten, als een Mij toegekomen gift, weer aan Aäron en aan zijn zonen, mijn naaste en meest onmiddellijke dienaren, tot een gift gegeven, uit hetmidden van de kinderen van Israël, om de dienst in plaats van de kinderen van Israël, die anders zelf deze te vervullen hadden, in de tent der samenkomst te bedienen; daar de kinderen van Israël zelf deze niet waarnemen kunnen en uit hoofde van hun onreinheid niet tot Mijn heiligdom naderen mogen, en alsmede heb Ik Mij de Levieten, die de plaats van de anderen vervangen, verkoren, gereinigd en aan de priesters gegeven, om voor de kinderen van Israël verzoening te doen, of hen tegen Mijn toorn te bedekken, 1) opdat er geen plaag, zoals die, waardoor Aärons beide zonen zo plotseling omgekomen zijn (Leviticus. 10:2), zij onder de kinderen van Israël, als de kinderen van Israël zelf, in hun natuurlijke onreinheid, die door deze bijzondere reiniging Mijnerzijds is weggenomen, zoals dit bij de Levieten het geval is, tot het heiligdom naderen zouden, om daaraan de dienst te verrichten (1 Samuel 6:19 vv.).
+
+1) Verg. Leviticus. 1:4b.
+
+20. En Mozes deed, en in vereniging met hem deden Aäron en de gehele vergadering van de kinderen van Israël, door haar stamhoofden vertegenwoordigd, aan de Levieten; naar alles, wat de HEERE Mozes geboden had van de Levieten, zo deden dekinderen van Israël aan hen.
+
+21. En de Levieten ontzondigden zich, doordat zij zich met het ontzondigingswater lieten besprenkelen, en het haar afscheerden, en wasten hun kleren (vs.7), en Aäron bewoog hen ten beweegoffer voor het aangezicht van de HEERE, op de in vs.11 aangewezen wijze, enAäron deed, door de beide (vs.12) vermelde offeranden, verzoening over hen, om hen aan de staat van de onreinheid, waarin ze tot nog toe waren, te ontnemen, en dus te reinigen, zodat zij nu de kinderen van Israël tot een verzoening of bedekking strekken konden (vs.19).
+
+22. En daarna, toen men tot het afbreken van het heiligdom overging (hoofdstuk 10:11 vv.), kwamen de Levieten, om een ieder naar het werk, dat voor elk van hun drie geslachten bepaald was (hoofdstuk 4), hun dienst te bedienen in de tent der samenkomst, voor het aangezicht van Aäron en voor het aangezicht van zijn zonen, en dus onder hun hoede (hoofdstuk 4:17 vv.), en volgens hun aanwijzing (hoofdstuk 4:27,33); zoals de HEERE Mozes de Levieten geboden had, alzo deden zij aan hen.
+
+23. En de HEERE, van de huidige diensten van de Levieten heenwijzende naar de tijd, waarop zij in het land Kanaän de uiterlijke gereedschappen bij het heiligdom zouden te bezorgen hebben, sprak tot Mozes, zeggende:
+
+24. Dit is het wat de Levieten aangaat, 1) van vijfentwintig jaar2) en ouder zullen zij inkomen om, als gezalfde strijders (hoofdstuk 4:3), de strijd te strijden 3) in de dienst van de tent der samenkomst.
+
+1) Hier wordt de leeftijd vastgesteld, waarop de Levieten zouden beginnen en ophouden hun ambt waar te nemen. God beveelt, dat zij met het vijfentwintigste jaar zouden beginnen, maar staat verlichting toe met het vijftigste jaar. En dat beide, om een zeer goede reden. Want, indien zij als knapen werden toegelaten, kon hun onnozelheid veel aan de eerbied voor het
+
+heilige wegnemen, niet slechts, omdat zij meestal onbezonnen handelen, die nog niet tot de rijpe, mannelijke leeftijd gekomen zijn, maar vooral, omdat zij uit onachtzaamheid, of lichtzinnigheid, of onbedachtzaamheid, of onervarenheid, of dwaling vele dingen, omtrent de dienst van God, bij vergissing in de war zouden brengen. Doch evenals zij volstrekt niet eerder geschikt waren, om het ambt te beoefenen, totdat zij bezonnenheid en deftigheid hadden vergaderd, zo ook was het billijk, dat zij, opdat zij niet door de ouderdom krachteloos zouden zijn, op tijd hun ontslag kregen. Want het was een zwaarwichtige arbeid, en die een ferme lichaamskracht vereiste. Indien men nu dit op het herderlijk ambt wil overbrengen, zal men dit in het algemeen moeten vaststellen, dat niet ieder, die wil, moet gekozen worden, maar zij, die bewijs van hun bezadigdheid hebben gegeven, dat men hen niet bovenmate moet bezwaren, die zich volijverig eraan wijden, nog meer van hen vergen, dan hun kracht vermag. Daarom is het dwaas, wanneer sommigen op de jaren op zichzelf letten, alsof vóór het vierentwintigste jaar men niemand tot herder zou mogen verkiezen, die overigens met de nodige talenten is toegerust.
+
+2) Dit is niet in strijd met Numeri. 4:3. Daar wordt wel de dertigjarige leeftijd voorgeschreven, maar alleen in voor zover zij de tabernakel moesten vervoeren. Daartoe werd de volle mannelijke leeftijd vereist. Hier wordt over heel de dienst van de tabernakel gehandeld, niet alleen in de woestijn, maar ook als Israël eenmaal in Kanaän zou zijn gekomen. David heeft later de leeftijd van 20 jaar bepaald (1 Kronieken 23:24)
+
+3) De strijd strijden, wordt ook hier gebruikt voor het zijn in werkelijke dienst, voor het uit elkaar nemen en vervoeren van de tabernakel in de woestijn en voor alle zware werkzaamheden bij de tabernakel en bij de tempel.
+
+25. Maar wanneer hij vijftig jaar oud is, zal hij, de Leviet, van de strijd van deze dienst afgaan, en hij zal niet meer dienen.
+
+26. Doch hij zal met zijn broeders, de nieuw in dienst tredende Levieten, dienen in de tent der samenkomst, om de wacht waar te nemen, 1) zodat hij de aankomenden in hun dienstwerk terechtwijze en over hen wake, opdat allesordelijk en eerlijk toega 1 Corinthiers. 14:40); maar de dienst zal hij zelf niet meer bedienen. Alzo zult gij aan of met de Levieten doen in hun wachten, en ieder al naar gelang zijn ouderdom het een en ander ter bewaking in de dienst van de tabernakel opdragen.
+
+1) In het Hebreeuws Lischmoor mischméréth. Deze uitdrukking staat tegenover het de dienst waarnemen, of de strijd strijden in de dienst. Hier wordt bedoeld, het opzicht houden over de heilige zaken van de tabernakel.
+
