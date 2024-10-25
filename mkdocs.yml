@@ -2743,8 +2743,8 @@ nav:
       - Judas:
         - Judas: karlaugustdachsel/Judas/index.md
         - Judas 1: karlaugustdachsel/Judas/Judas1.md
-#      -   Openbaring:
-  #      -   Openbaring: karlaugustdachsel/Openbaring.md
+      - Openbaring:
+        - Openbaring: karlaugustdachsel/Openbaring/index.md
   #      -   Openbaring 1: karlaugustdachsel/Openbaring/Openbaring1.md
   #      -   Openbaring 2: karlaugustdachsel/Openbaring/Openbaring2.md
   #      -   Openbaring 3: karlaugustdachsel/Openbaring/Openbaring3.md
@@ -2754,7 +2754,7 @@ nav:
   #      -   Openbaring 7: karlaugustdachsel/Openbaring/Openbaring7.md
   #      -   Openbaring 8: karlaugustdachsel/Openbaring/Openbaring8.md
   #      -   Openbaring 9: karlaugustdachsel/Openbaring/Openbaring9.md
-  #      -   Openbaring 10: karlaugustdachsel/Openbaring/Openbaring10.md
+        - Openbaring 10: karlaugustdachsel/Openbaring/Openbaring10.md
   #      -   Openbaring 11: karlaugustdachsel/Openbaring/Openbaring11.md
   #      -   Openbaring 12: karlaugustdachsel/Openbaring/Openbaring12.md
   #      -   Openbaring 13: karlaugustdachsel/Openbaring/Openbaring13.md
