@@ -34,7 +34,7 @@ I. Vs.1-49. Daar Israël nu die tijd van 40-jarige omzwerving geheel achter zich
 
 15. Zo vertrokken zij van Rafidim en legerden zich in de woestijn van Sinaï, waar zij bijna een heel jaar bleven en de wet ontvingen (Ex.19:1-Num.10:10).
 
-16. En zij vertrokken uit de woestijn van Sinaï, en legerden zich in Kibrôth-Thßäva (= lustgraven, Numeri. 10:11-11:34).
+16. En zij vertrokken uit de woestijn van Sinaï, en legerden zich in Kibrôth-Thaäva (= lustgraven, Numeri. 10:11-11:34).
 
 17. En zij vertrokken van Kibrôth-Thaäva en legerden zich in Hazerôth (Numeri. 11:35-12:15).
 
@@ -50,13 +50,13 @@ De Retem- of bremstruik, waarnaar het voornoemde station zijn naam draagt (door 
 
 21. En zij vertrokken van Libna, en legerden zich in Rissa.
 
-22. En zij vertrokken van Rissa, en legerden zich in Kehelßtha.
+22. En zij vertrokken van Rissa, en legerden zich in Kehelatha.
 
-23. En zij vertrokken van Kehelßtha, en legerden zich in het gebergte van Safer.
+23. En zij vertrokken van Kehelatha, en legerden zich in het gebergte van Safer.
 
-24. En zij vertrokken van het gebergte Safer, en legerden zich in Hßrada.
+24. En zij vertrokken van het gebergte Safer, en legerden zich in Harada.
 
-25. En zij vertrokken van Hßrada, en legerden zich in Makhelôth.
+25. En zij vertrokken van Harada, en legerden zich in Makhelôth.
 
 26. En zij vertrokken van Makhelôth, en legerden zich in Tachath.
 
@@ -66,13 +66,13 @@ De Retem- of bremstruik, waarnaar het voornoemde station zijn naam draagt (door 
 
 30. En zij vertrokken van Hasmóna, en legerden zich in Moséroth aan de berg Hor (Deuteronomium. 10:6).
 
-31. En zij vertrokken van Moréroth, en legerden zich in Bene-Jßäka, wellicht Ain-el-Weibeh (hoofdstuk 20:22).
+31. En zij vertrokken van Moréroth, en legerden zich in Bene-Jaäka, wellicht Ain-el-Weibeh (hoofdstuk 20:22).
 
-32. En zij vertrokken van Bene-Jßäka, en legerden zich in Hor-Gidgad.
+32. En zij vertrokken van Bene-Jaäka, en legerden zich in Hor-Gidgad.
 
-33. En zij vertrokken van Hor-Gidgad, en legerden zich in Jotbßtha.
+33. En zij vertrokken van Hor-Gidgad, en legerden zich in Jotbatha.
 
-34. En zij vertrokken van Jotbßtha, en legerden zich in Abróna.
+34. En zij vertrokken van Jotbatha, en legerden zich in Abróna.
 
 35. En zij vertrokken van Abróna, en legerden zich in Ezeon-Geber (zie "Nu 20.1).
 
@@ -98,21 +98,21 @@ a) Numeri. 20:25 Deuteronomium. 32:50
 
 43. En zij vertrokken van Funon, en legerden zich in Oboth (hoofdstuk 21:10).
 
-44. En zij vertrokken van Oboth, en legerden zich aan de heuvels van Abßrim, in het gebied van Moab (hoofdstuk 21:11).
+44. En zij vertrokken van Oboth, en legerden zich aan de heuvels van Abarim, in het gebied van Moab (hoofdstuk 21:11).
 
-45. En zij vertrokken van de heuvels van Abßrim, en legerden zich na de rustplaatsen aan de beek Zared, aan de Arnon, bij Beër-Elim en Mattana te zijn voorbij getrokken, gedeeltelijk in Nahaliël, gedeeltelijk in Dibon-Gad (hoofdstuk 21:12-19).
+45. En zij vertrokken van de heuvels van Abarim, en legerden zich na de rustplaatsen aan de beek Zared, aan de Arnon, bij Beër-Elim en Mattana te zijn voorbij getrokken, gedeeltelijk in Nahaliël, gedeeltelijk in Dibon-Gad (hoofdstuk 21:12-19).
 
 46. En zij vertrokken van Dibon-Gad, en legerden zich gedeeltelijk in Bamoth (hoofdstuk 21:19), gedeeltelijk in Almon-Diblathaïm.
 
-47. En zij vertrokken van Almon-Diblathaïm, en legerden zich aan de bergen Abßrim, en wel op de berg Pisga tegenover het westen van Nebo (hoofdstuk 21:20).
+47. En zij vertrokken van Almon-Diblathaïm, en legerden zich aan de bergen Abarim, en wel op de berg Pisga tegenover het westen van Nebo (hoofdstuk 21:20).
 
-48. En zij vertrokken van de bergen Abßrim, en legerden zich in de vlakke velden van de Moabieten aan de Jordaan ten oosten van Jericho (hoofdstuk 22:1).
+48. En zij vertrokken van de bergen Abarim, en legerden zich in de vlakke velden van de Moabieten aan de Jordaan ten oosten van Jericho (hoofdstuk 22:1).
 
 49. En zij legerden zich aan de Jordaan van Beth-Jesimôth (d.i. woeste huizen) af, tot aan de brede vlakte Abel-Sittim in de vlakke velden van de Moabieten, die tot deze zich langs de Jordaan uitstrekkende vlakte behoren.
 
 II. Vs.50-34:29. Na zulk een terugblik op het verleden richt de Heere de blik van Zijn volk nu geheel op de hiernavolgende toekomst, en geeft hun vele bijzondere aanwijzingen betreffende de in bezitneming van het eigenlijke Kanaän, of het land aan de overzijde van de Jordaan. Vervolgens doet Hij hun Zijn wil aankondigen betreffende de gehele uitroeiing van de Kanaänieten en hun afgodendienst, zowel als over de wijze, waarop het veroverde land onder
 
-de negen en een halve stam moest verdeeld worden (hoofdstuk 33:50-56), daarna bepaalt hij de grenzen van het te veroveren land (hoofdstuk 34:1-15), en noemt vervolgens die aanvoerders van het volk, die onder de leiding van de Hogepriester Eleßzar en het toekomstige legerhoofd Jozua de verdeling met het lot zullen op zich nemen, reeds met hun namen.
+de negen en een halve stam moest verdeeld worden (hoofdstuk 33:50-56), daarna bepaalt hij de grenzen van het te veroveren land (hoofdstuk 34:1-15), en noemt vervolgens die aanvoerders van het volk, die onder de leiding van de Hogepriester Eleazar en het toekomstige legerhoofd Jozua de verdeling met het lot zullen op zich nemen, reeds met hun namen.
 
 50. En de HEERE sprak tot Mozes, in de vlakke velden van de Moabieten aan de Jordaan van Jericho, waar Israël (vanaf hoofdstuk 22:1 vrg. hoofdstuk 33:48 vv.) gelegerd was, zeggende: omdat nu na degebeurtenissen die beschreven zijn in hoofdstuk 22:2; 32:42 de in bezitneming van het beloofde land al gedurig naderde:
 

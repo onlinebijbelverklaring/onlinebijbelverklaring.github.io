@@ -14,7 +14,7 @@ morrenden te straffen, vooreerst nog slechts van verre tonen, om het volk een he
 
 2. Toen riep het volk, als het zag hoe het vuur steeds verder om zich greep, tot Mozes, de kracht van wiens voorbede, aan de Sinaï zo treffend gebleken (Exodus. 32-34), hun nog levendig voor de geest stond; en Mozes bad tot deHEERE; en het vuur werd gedempt 1) (Amos 7:4-6).
 
-1) Eigenlijk staat er: Het vuur zonk neer. Thab-éra en hij Kebrôth-Thßäva zijn niet twee verschillende plaatsen. Het uiterste van het leger werd met eerstgenoemde naam aangeduid. De gehele plaats met laatstgenoemde. Het is mogelijk, dat geen mensenlevens te betreuren vielen, maar de Schrift zwijgt ervan. Er zijn er, die gemeend hebben, dat hier aan een verzengend vuur moet gedacht worden, die de achterblijvenden en de morrenden naar de legerplaats dreef, maar o.i. zonder grond. Duidelijk staat er: het vuur van de Heere.
+1) Eigenlijk staat er: Het vuur zonk neer. Thab-éra en hij Kebrôth-Thaäva zijn niet twee verschillende plaatsen. Het uiterste van het leger werd met eerstgenoemde naam aangeduid. De gehele plaats met laatstgenoemde. Het is mogelijk, dat geen mensenlevens te betreuren vielen, maar de Schrift zwijgt ervan. Er zijn er, die gemeend hebben, dat hier aan een verzengend vuur moet gedacht worden, die de achterblijvenden en de morrenden naar de legerplaats dreef, maar o.i. zonder grond. Duidelijk staat er: het vuur van de Heere.
 
 3. Daarom noemde hij de naam van die plaats Thab-éra, brand of brandplaats, omdat het vuur van de HEERE onder hen gebrand had.
 
@@ -182,7 +182,7 @@ Niet alsof het genot van het kwakkelvlees op zichzelf zo gevaarlijk voor hen gew
 
 ongelovigen en vleselijk gezinde kinderen van de wereld overkomt (Luk.12:20 Boek der Wijsheid 5:7 vv)
 
-34. Daarom noemt men de naam van deze plaats, die, naar het (vs.1 vv.) vermelde voorval reeds Thab-éra genoemd was, met een tweede woord, dat later (hoofdstuk 33:16) die eerste naam verving, Kibrôth Thßäva: d.i. graven van de lust of lustgraven; want daar begroeven zij het volk, dat belust was geweest op vlees, en waarvan de begeerte de Heere wel bevredigde, maar dat Hij daarna ook in Zijn toorn ten dele deed omkomen.
+34. Daarom noemt men de naam van deze plaats, die, naar het (vs.1 vv.) vermelde voorval reeds Thab-éra genoemd was, met een tweede woord, dat later (hoofdstuk 33:16) die eerste naam verving, Kibrôth Thaäva: d.i. graven van de lust of lustgraven; want daar begroeven zij het volk, dat belust was geweest op vlees, en waarvan de begeerte de Heere wel bevredigde, maar dat Hij daarna ook in Zijn toorn ten dele deed omkomen.
 
 De zichtbare gave was hier dus geen onderpand van de goddelijke genade. Dikwijls gebeurt het dan ook, dat aan enig mens een lang, eigenzinnig en driftig gekoesterde begeerte, onder zichtbare werking van de voorzienigheid Gods, ingewilligd wordt, maar dat met die inwilliging het Godsgericht aanvangt.
 
@@ -196,7 +196,7 @@ Ook vroeger had Israël om vlees gevraagd en verkregen. Nu echter wordt het gest
 
 II. Vs.35-12:15. Na een verdere tocht van omstreeks twee dagreizen komt Israël op de tweede rustplaats te Hazerôth aan. Hier kantten Mirjam en Aäron zich aan tegen Mozes en de bevoorrechte plaats, waarop hij voor zich aanspraak maakte, alzo hij alleen de profeet van de Heere en de Middelaar van de Goddelijke openbaring zijn wilde. Terwijl zij met minachting spreken van zijn familiebetrekkingen, verheffen zij zich op eigen gaven en krachten, maar de Heere, aan wie Mozes deze ergerlijke zaak met een zachtmoedig stilzwijgen overliet, treedt voor Zijn trouwe knecht op, trekt de tegenstrevers voor zijn gericht en verklaart de bestredene uitdrukkelijk voor Zijn hoogste profeet. Als daarna Mirjam tot straf voor haar opstand, waardoor de betekenis van haar naam (Mirjam = hun wederstrevigheid) in een bepaald feit vervuld werd, melaats werd als sneeuw, verzoekt Aäron Mozes om vergiffenis van het aangedane onrecht en neemt hij voor hun beider zuster de toevlucht tot diens voorbede. Deze wordt haar dan ook verleend, zij moet evenwel naar de wil van de Heere, ter heilzame verootmoediging wegens haar trots, eerst zeven dagen buiten het leger gesloten blijven, voordat zij weer opname in Israëls volk en gemeenschap verkrijgen kan.
 
-35. Van Kibrôth Thßäva, lustgraven in Disahab, vertrok het volk, toen de wolk, na een oponthoud aldaar van meer dan een maand, opnieuw het teken tot vertrek gaf, naar het noordelijk gelegen Hazerôth; en zij bleven enige tijd in Hazerôth.
+35. Van Kibrôth Thaäva, lustgraven in Disahab, vertrok het volk, toen de wolk, na een oponthoud aldaar van meer dan een maand, opnieuw het teken tot vertrek gaf, naar het noordelijk gelegen Hazerôth; en zij bleven enige tijd in Hazerôth.
 
 Omstreeks 5 Duitse mijl ten noorden van Dahab bevindt zich de bron el Hudhera of Hadhra met een wel, die gedurende het hele jaar tamelijk goed, slechts enigszins zout water geeft. Verreweg de meeste uitleggers stellen daarom Hazerôth in dit oord. Hier begint de grote en huiveringwekkende (Deuteronomium. 1:19; 8:15) woestijn Paran, waarvan verder bij hoofdstuk 12:16 zal gesproken worden.
 

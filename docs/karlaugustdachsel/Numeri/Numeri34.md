@@ -8,15 +8,15 @@ GRENZEN VAN HET BELOOFDE LAND. HOE EN DOOR WIE HET VERDEELD MOEST WORDEN.
 
 3. De zuiderhoek nu zal u zijn van de woestijn Zin, aan de zijden van Edom (het huidig gebergteland van de Azazimeh, zie "Nu 13.1); en de zuiderlandgrens zal u zijn van het einde van de Zoutzee, tegen het oosten; van de zuidelijke punt van de Dode Zee, die in een zoutmoerasuitloopt Jozua 15:2).
 
-4. En deze grens zal u omgaan van het zuiden naar de opgang van Akrßbbim, 1) van het zuiden van de Dode Zee, zuidwaarts op, en doorgaan naar Zin, de brede dalkloof wady murreh (zie "Nu 13.1); en haar uitgangen zullen zijn, van het zuiden naar Kades-Barnéa, en strekken zich verder zuidwaarts uit tot aan Kades-Barnéa aan het westelijke einde van de woestijn Zin, en zij zal uitgaan naar Hazar-Addar, een dorp alzo genoemd naar de bij elkaar liggende dorpen Hezron en Adar Jozua 15:3) en doorgaan naar Karkau en Azmon.
+4. En deze grens zal u omgaan van het zuiden naar de opgang van Akrabbim, 1) van het zuiden van de Dode Zee, zuidwaarts op, en doorgaan naar Zin, de brede dalkloof wady murreh (zie "Nu 13.1); en haar uitgangen zullen zijn, van het zuiden naar Kades-Barnéa, en strekken zich verder zuidwaarts uit tot aan Kades-Barnéa aan het westelijke einde van de woestijn Zin, en zij zal uitgaan naar Hazar-Addar, een dorp alzo genoemd naar de bij elkaar liggende dorpen Hezron en Adar Jozua 15:3) en doorgaan naar Karkau en Azmon.
 
-1) De "hoogte Akrßbbim," waarnaar de streek later Akrabattinh, Akrabathnh heet (1 Makk.5:3) is veelmeer hoogstwaarschijnlijk de op een afstand van circa 8 Engelse mijl beneden de Dode Zee, zich schuin over de Araba heenstrekkende, in 60-80 voet hoge rij van witte klippen, die, van de zuidwestkant van de Dode Zee gezien, het Ghor schijnen te sluiten, en de scheidingslinie tussen de beide zijden van het grote dal vormen, dat aan de ene zijde el-Ghor en aan de andere zijde el-Araba heet.
+1) De "hoogte Akrabbim," waarnaar de streek later Akrabattinh, Akrabathnh heet (1 Makk.5:3) is veelmeer hoogstwaarschijnlijk de op een afstand van circa 8 Engelse mijl beneden de Dode Zee, zich schuin over de Araba heenstrekkende, in 60-80 voet hoge rij van witte klippen, die, van de zuidwestkant van de Dode Zee gezien, het Ghor schijnen te sluiten, en de scheidingslinie tussen de beide zijden van het grote dal vormen, dat aan de ene zijde el-Ghor en aan de andere zijde el-Araba heet.
 
 5. Voorts zal deze grens omgaan van Azmon naar de rivier van Egypte 1) en haar uitgangen zullen zijn naar de grote of Middellandse Zee. 2)
 
 1) De rivier, of eigenlijk zoals er staat, de beek van Egypte is hier de z.g. Wady-el-Arisch, die op verschillende plaatsen als de zuidelijke grens van het land wordt genoemd, o.a. 1 Kon.8:65; 2 Koningen. 24:7 Jesaja. 27:12
 
-2) Zuidelijk van de Dode Zee gaat terstond het Ghor of de laagte tussen bergketens ter rechter- en ter linkerzijde voort, waarin de Jordaan van het meer van Genézareth af zijn loop heeft (zie Jozua 3.1); daarop volgt een rij witachtige klippen van 60-80 voet hoog, die van de zuidwestelijke punt van de Rode Zee gezien, het Ghor schijnen te sluiten en de Schorpioentrap of Akrßbbim genoemd worden. Aan de andere zijde sluit zich de Arabah (zie Nu 20.1) daar onmiddellijk aan, in het begin zich enigszins verheffende, maar die langzamerhand tot de hoogte van de watervlakte van de Dode Zee afdaalt, en eindelijk in de
+2) Zuidelijk van de Dode Zee gaat terstond het Ghor of de laagte tussen bergketens ter rechter- en ter linkerzijde voort, waarin de Jordaan van het meer van Genézareth af zijn loop heeft (zie Jozua 3.1); daarop volgt een rij witachtige klippen van 60-80 voet hoog, die van de zuidwestelijke punt van de Rode Zee gezien, het Ghor schijnen te sluiten en de Schorpioentrap of Akrabbim genoemd worden. Aan de andere zijde sluit zich de Arabah (zie Nu 20.1) daar onmiddellijk aan, in het begin zich enigszins verheffende, maar die langzamerhand tot de hoogte van de watervlakte van de Dode Zee afdaalt, en eindelijk in de
 
 golf van Elan te niet loopt. Bijzonder opmerkenswaardig is het, hoe nauwkeurig de hier beschreven zuidelijke grens van het beloofde land met de gesteldheid van de grond samenhangt; zij is de grensscheiding tussen de geelachtige woestijn in het zuiden en de groene steppen of grasvlakten in het noorden; de natuur van Arabië eindigt hier; het rijk van de dood heeft een einde, en een nieuw leven waait de reiziger, die van het zuiden komt uit de met groen bedekte vlakten tegen.
 
@@ -56,7 +56,7 @@ Over de oorspronkelijke bewoners van het land, en waarvan zij zijn afgestamd hee
 
 16. Voorts sprak de HEERE tot Mozes, hem nog nader aanwijzing gevende van de verdeling van het rijk door het lot, zoals in hoofdstuk 33:54 en 34:13 geboden was, opdat de kinderen van Israël des te zekerder konden zijn, dat deze wijze van verdeling werkelijk van Godwas (hoofdstuk 26:55 vv.), zeggende:
 
-17. Dit zijn de namen van de mannen, die u dat land tot een erfgoed zullen uitdelen: Eleßzar, de priester, en Jozua, de zoon van Nun, die ook tot aanvoerder van het leger bestemd was. In hun betrekking tot elkaar, aangewezen in hoofdstuk 27:21, zouden zij dit werk ten uitvoer brengen.
+17. Dit zijn de namen van de mannen, die u dat land tot een erfgoed zullen uitdelen: Eleazar, de priester, en Jozua, de zoon van Nun, die ook tot aanvoerder van het leger bestemd was. In hun betrekking tot elkaar, aangewezen in hoofdstuk 27:21, zouden zij dit werk ten uitvoer brengen.
 
 18. Daartoe zult gij uit elke stam een overste nemen, uit elk van de 9« stam, die het eigenlijke Kanaän moesten delen volgens vs.13, de vorst van een geslacht, om het land tot een erfgoed uit te delen; 1) door hun hand zal het lot getrokken worden.
 
@@ -80,7 +80,7 @@ Over de oorspronkelijke bewoners van het land, en waarvan zij zijn afgestamd hee
 
 27. En van de stam van de kinderen van Aser, de overste Achihud, zoon van Selómi;
 
-28. En van de stam van de kinderen van Nafthali, de overste Pedßël, zoon van Ammihud, niet dezelfde als in vs.20.
+28. En van de stam van de kinderen van Nafthali, de overste Pedaël, zoon van Ammihud, niet dezelfde als in vs.20.
 
 29. Dit zijn ze, die de HEERE, door het in vs.16 vv. gegeven bevel, geboden heeft de kinderen van Israël de erfenissen uit te delen, in het land Kanaän.
 

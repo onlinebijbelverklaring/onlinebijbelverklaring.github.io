@@ -2,13 +2,13 @@
 
 ER WORDT EEN BEGIN GEMAAKT MET HET IN BEZIT NEMEN VAN HET LAND KANAÄN.
 
-I. Vs.1-42. De beide stammen, Ruben en Gad, die zeer rijk waren aan kuddes vee, wensen, dat hun het land Jßëzer in Gilead gegeven wordt, dat de Amorieten ontnomen was en voortreffelijk in hun behoeften voorziet; als het hun toegestaan wordt, willen zij afzien van een erfenis in het eigenlijke Kanaän. Nadat Mozes hun het onbehoorlijke en gevaarlijke van hun begeerte nadrukkelijk heeft voorgehouden, en zij zich plechtig verbonden hebben, om niet hun weerbare mannen tot het laatste toe deel te nemen aan de verovering van het Westjordaanse, wordt hun verzoek ingewilligd, jegens drie geslachten van de Machirieten van de stam Manasse echter, die zich zeer ijverig betoont hebben bij het veroveren van het noordelijk gedeelte van het rijk de Amorieten, wordt een plicht van de gerechtigheid geoefend; Mozes geeft hun namelijk vrijwillig het noorden van Gilead met geheel Bazan in bezit. Hierdoor komt bij het eigenlijke Kanaän nog een district, dat oorspronkelijk niet aan Israël beloofd was, het land aan de overzijde van de Jordaan, en door wederopbouw van de verwoeste stad en het oprichten van schaapskooien wordt dit reeds dadelijk bewoonbaar gemaakt.
+I. Vs.1-42. De beide stammen, Ruben en Gad, die zeer rijk waren aan kuddes vee, wensen, dat hun het land Jaëzer in Gilead gegeven wordt, dat de Amorieten ontnomen was en voortreffelijk in hun behoeften voorziet; als het hun toegestaan wordt, willen zij afzien van een erfenis in het eigenlijke Kanaän. Nadat Mozes hun het onbehoorlijke en gevaarlijke van hun begeerte nadrukkelijk heeft voorgehouden, en zij zich plechtig verbonden hebben, om niet hun weerbare mannen tot het laatste toe deel te nemen aan de verovering van het Westjordaanse, wordt hun verzoek ingewilligd, jegens drie geslachten van de Machirieten van de stam Manasse echter, die zich zeer ijverig betoont hebben bij het veroveren van het noordelijk gedeelte van het rijk de Amorieten, wordt een plicht van de gerechtigheid geoefend; Mozes geeft hun namelijk vrijwillig het noorden van Gilead met geheel Bazan in bezit. Hierdoor komt bij het eigenlijke Kanaän nog een district, dat oorspronkelijk niet aan Israël beloofd was, het land aan de overzijde van de Jordaan, en door wederopbouw van de verwoeste stad en het oprichten van schaapskooien wordt dit reeds dadelijk bewoonbaar gemaakt.
 
-1. De kinderen van Ruben nu hadden veel vee, en de kinderen van Gad hadden machtig veel; in Egypte toch waar zij het oostelijk gedeelte van het land Gosen bewoonden, hadden zij het patriarchale herdersleven het meest bewaard (zie "Ex 1.7). En zij bezagen het land van Jßëzer, het landschap dat tot het gebied van Jßëzer behoorde (hoofdstuk 21:32), en het land van Gilead, dat aan de noord- en zuidzijde van de Jabbok gelegen was, en ziet, deze plaats was een plaats voor vee; deze gehele streek aan de overzijde van de Jordaan bood een voortreffelijke gelegenheid aan tot het weiden van vee door de overvloedige grasvelden, die daar waren.
+1. De kinderen van Ruben nu hadden veel vee, en de kinderen van Gad hadden machtig veel; in Egypte toch waar zij het oostelijk gedeelte van het land Gosen bewoonden, hadden zij het patriarchale herdersleven het meest bewaard (zie "Ex 1.7). En zij bezagen het land van Jaëzer, het landschap dat tot het gebied van Jaëzer behoorde (hoofdstuk 21:32), en het land van Gilead, dat aan de noord- en zuidzijde van de Jabbok gelegen was, en ziet, deze plaats was een plaats voor vee; deze gehele streek aan de overzijde van de Jordaan bood een voortreffelijke gelegenheid aan tot het weiden van vee door de overvloedige grasvelden, die daar waren.
 
-2. Zo kwamen de kinderen van Gad en de kinderen van Ruben, vertegenwoordigd door hun oudsten, en spraken tot Mozes en tot Eleßzar, de priester, en tot de oversten van devergadering, zeggende:
+2. Zo kwamen de kinderen van Gad en de kinderen van Ruben, vertegenwoordigd door hun oudsten, en spraken tot Mozes en tot Eleazar, de priester, en tot de oversten van devergadering, zeggende:
 
-3. Atarôth en Dibon en Jßëzer en Nimra (Beth-Nimra) en Hesbon en Eleßle en Schebam en Nebo en Behon (Baäl-Behon) (vs.4-38);
+3. Atarôth en Dibon en Jaëzer en Nimra (Beth-Nimra) en Hesbon en Eleale en Schebam en Nebo en Behon (Baäl-Behon) (vs.4-38);
 
 4. Dit land, waarin deze steden liggen, dat de HEERE voor het aangezicht van de vergadering van Israël geslagen heeft, is een land voor vee; en uw knechten hebben zeerveel vee; het zou dus voor ons juist geschikt zijn.
 
@@ -98,7 +98,7 @@ hiertoe hem dreigend heeft achtervolgd en het strafgericht steeds nader heeft ge
 
 1) Het blijkt niet, dat alle getelden van deze stammen werden gevorderd, om zich ten strijde toe te rusten, want van de honderdduizend, die zij ongeveer tezamen uitmaakten, trokken er niet meer dan veertigduizend over de Jordaan, om voor het aangezicht van de Heere te strijden Jozua 4:13), het zij omdat men oordeelde, dat sommigen werden achtergelaten, om de akkerbouw waar te nemen en het land te bewonen, of wel, dat de Heere niet wilde, dat al hun strijdbare mannen tot de oorlog zouden uittrekken, opdat de overwinning zou blijken en bekend worden, van de Heere te wezen, zoals de Kerk naderhand tot Zijn verheerlijking erkent.
 
-28. Toen gebood Mozes de priester Eleßzar en Jozua, de zoon van Nun, en de hoofden van de vaderen van de stammen van de kinderen van Israël Jozua 1:13; 4:12).
+28. Toen gebood Mozes de priester Eleazar en Jozua, de zoon van Nun, en de hoofden van de vaderen van de stammen van de kinderen van Israël Jozua 1:13; 4:12).
 
 29. En Mozes zei tot hen: Indien de kinderen van Gad en de kinderen van Ruben met u over de Jordaan zullen trekken, een ieder, die toegerust is tot de oorlog, voor het aangezicht van de HEERE, als het land voor uw aangezicht zal te ondergebracht zijn, zodat gij kunt ophouden oorlog te voeren om tot de verdeling over te gaan, zo zult gij hun het land Gilead tot bezitting geven (zie "Nu 21.30"; Deuteronomium. 34:1 Joz.22:9 Richteren. 5:17).
 
@@ -122,11 +122,11 @@ Wel had de stam van Manasse er niet om verzocht, zoals die van Ruben en Gad, maa
 
 34. En de kinderen van Gad herbouwden Dibon, een uur ten noorden van de middelste Arnon, Atarôth, bij de berg Attarus, en Aroër, van Ruben, aan de noordzijde van de middelste Arnon.
 
-35. En Atroth-Sofan, waarvan de ligging niet meer aan te wijzen is, en Jßëzer, drie duitse mijl ten noorden van Hesbon (hoofdstuk 21:32), en Jógbeha of Jagbeha (Richteren. 8:11), twee uren ten noordwesten van Rabbath-Ammon.
+35. En Atroth-Sofan, waarvan de ligging niet meer aan te wijzen is, en Jaëzer, drie duitse mijl ten noorden van Hesbon (hoofdstuk 21:32), en Jógbeha of Jagbeha (Richteren. 8:11), twee uren ten noordwesten van Rabbath-Ammon.
 
-36. En Beth-Nimra (plaats van het heldere water) in de velden van Moab, en Beth-Hßran, 1 duitse mijl zuidwaarts van Beth-Nimra, tot vaste steden en schaapskooien, zij versterkten deze steden, en richtten daarbij schaapskooien op (vs.1,6).
+36. En Beth-Nimra (plaats van het heldere water) in de velden van Moab, en Beth-Haran, 1 duitse mijl zuidwaarts van Beth-Nimra, tot vaste steden en schaapskooien, zij versterkten deze steden, en richtten daarbij schaapskooien op (vs.1,6).
 
-37. En de kinderen van Ruben bouwden Hesbon, de voormalige Residentie van koning Sihon (hoofdstuk 21:26), midden tussen de beken Jabbok en Arnon gelegen, 4 duitse mijl ten oosten van de Jordaan, en Eleßle, een half uur ten noordoosten van Hesbon, en Kirjathaïm (Genesis 14:15 Jozua. 13:19).
+37. En de kinderen van Ruben bouwden Hesbon, de voormalige Residentie van koning Sihon (hoofdstuk 21:26), midden tussen de beken Jabbok en Arnon gelegen, 4 duitse mijl ten oosten van de Jordaan, en Eleale, een half uur ten noordoosten van Hesbon, en Kirjathaïm (Genesis 14:15 Jozua. 13:19).
 
 38. En Nebo, bij de berg van deze naam (hoofdstuk 27:12 Deuteronomium. 32:49 vv.), en Baäl-Meon, volledig Beth-Baäl-Meon, een uur ten zuidwesten van Hesbon, veranderd zijnde van naam, en Sibma, dat zijn naam behield, slechts 500 schreden van Hesbon verwijderd; en zij noemden de namen van de steden, die zij bouwden, met andere namen; soms echter traden de oude namen in de plaats van de nieuwe.
 

@@ -16,7 +16,7 @@ verontreinigen. Vervolgens, zo dikwijls zij besmet waren met enige onreinheid, l
 
 2) Een rode, volkomen vaars, waarin geen gebrek is, waarop geen juk gekomen is. Het dier was daarom niet van het mannelijk geslacht, zoals bij de zondoffers, maar van het vrouwelijke, omdat het vrouwelijk geslacht het leven voortbrengt. Over de kleur zijn de meingen verschillend. Waar Calvijn het vermoeden uit, dat de kleur genomen is, omdat zij algemeen voorkwam, en wit of zwart iets opzichtigs zou geweest zijn, zijn er anderen, zoals Felix, in navolging van de Kerkvaders, die het verklaren, als zou zij op Christus zien, die rood was van bloed, als de drager van Gods toorn, terwijl Bähr en meerderen van oordeel zijn, dat zij zag op het innerlijke leven, dat in het bloed zijn zetel heeft en in de rode kleur van het gezicht, van de wangen en lippen tevoorschijn treedt. Daar de andere vereisten, nl. volkomen, zonder gebrek, en onder geen juk gebracht, dus vrij, zien op de plaatsbekleding, moet ook o.i. de kleur daarop zien en daarom de rode kleur, de kleur van het bloed, dat in de plaats komt en uitgestort wordt voor het leven van de mens, dat gezondigd heeft, daarop betrekking hebben. In zoverre ziet het gehele dier, wat kleur, geslacht en gesteldheid van het lichaam aangaat, op de Christus Gods, die Zijn bloed heeft uitgestort voor het leven van de mensen, die zonder gebrek, zonder zonde en vrij van de wet, zichzelf onder de wet heeft gesteld, om Zijn kinderen te verlossen van de vloek van de wet.
 
-3. a) En gij zult die geven aan Aärons oudste zoon, Eleßzar, de priester, 1)de toekomstige opvolger van zijn vader in de hogepriesterlijke waardigheid; en hij zal ze, door de dienst van een reine man, uitbrengena) tot buiten het leger, aan de oostzijde, en men zal haar aldaarvoor zijn aangezicht slachten.
+3. a) En gij zult die geven aan Aärons oudste zoon, Eleazar, de priester, 1)de toekomstige opvolger van zijn vader in de hogepriesterlijke waardigheid; en hij zal ze, door de dienst van een reine man, uitbrengena) tot buiten het leger, aan de oostzijde, en men zal haar aldaarvoor zijn aangezicht slachten.
 
 a)Hebr.13:11,12
 
@@ -24,7 +24,7 @@ a)Hebr.13:11,12
 
 tot verzoening was, heeft Hij echter niets van Zijn heiligheid verloren, terwijl juist Zijn heiligheid de oorzaak van de heiligheid werd van de gehele wereld. Hij heeft zichzelf door de Geest geofferd en is met Zijn eigen bloed het heiligdom binnengegaan (Hebr.10:14) en Zijn dood wordt ergens door Paulus genoemd een offer van een zeer lieflijke reuk (Efe.5:2 Fil.4:8)
 
-4. En Eleßzar, de priester, zal een beetje van haar bloed met zijn vinger nemen, en hij zal, zich naar het westen kerende, van haar bloed naar die zijden heen, die recht tegenover de tent der samenkomst is, zevenmaal sprenkelen.
+4. En Eleazar, de priester, zal een beetje van haar bloed met zijn vinger nemen, en hij zal, zich naar het westen kerende, van haar bloed naar die zijden heen, die recht tegenover de tent der samenkomst is, zevenmaal sprenkelen.
 1)
 
 1) Het sprenkelen van het bloed diende hierom vooral, omdat het offer daardoor in betrekking werd gebracht tot de Heere; dat het leven, dat in het bloed was, daarom tot verzoening en reiniging van de zonde werd overgegeven. Predikte die vaars, dat Israël de dood had verdiend, naar ziel en lichaam, werd daarom alles verbrand: het bloed gesprenkeld voor het altaar, duidde aan dat het leven, door de dood van het dier, zinnebeeldig was aangebracht. Daarom ook de verordening in het volgende vers.

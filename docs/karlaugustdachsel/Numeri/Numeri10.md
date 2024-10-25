@@ -59,25 +59,25 @@ II. Vs.11-36. Op de twintigste dag van de tweede maand verheft zich de wolk van 
 
 13. Alzo togen zij, en wel degenen, die hun legerafdeling tegen het oosten hadden (hoofdstuk 2:3-9), voorop, alzo togen zij eerst op, op het geklank van de heilige trompetten, naar de mond van de HEERE, door de hand van Mozes.
 
-14. Want allereerst toog op de banier van het leger van de kinderen van Juda naar hun legers, uitmakende een getal van 74.600 strijdbare mannen, en over dit leger was Nahesson, de zoon van Amminßdab.
+14. Want allereerst toog op de banier van het leger van de kinderen van Juda naar hun legers, uitmakende een getal van 74.600 strijdbare mannen, en over dit leger was Nahesson, de zoon van Amminadab.
 
-15. En over het, tot dezelfde banier behorende leger van de stam van de kinderen van Issaschar, bedragende 54.400 man, was Nethßneël, de zoon van Zuhar.
+15. En over het, tot dezelfde banier behorende leger van de stam van de kinderen van Issaschar, bedragende 54.400 man, was Nethaneël, de zoon van Zuhar.
 
 16. En over het, eveneens tot de banier van Juda behorende leger van de stam van de kinderen van Zebulon, die 57.400 man sterk waren, was Eliab de zoon van Helon; zodat onder deze banier, die het zinnebeeld van een leeuw voerde, een gezamenlijk getal van 186.400 mannen optrok.
 
-17. Toen de banier van Juda voortgetrokken was, werd de tabernakel afgenomen, de voorhofsbekleedselen, het voorste voorhangsel van de tabernakel en zijn 4 dekkleden werden opgerold, en de pilaren, onderlagen en planken met hun richels werden uit elkaar gezet, en de zonen van Gerson en de zonen van Merßri trokken op, dragende of vervoerende, namelijk met de 6 wagens (hoofdstuk 7:3 vv.), de tabernakel, terwijl de zonen van Gerson daarbij voor de 4 dekkleden enz. (hoofdstuk 4:25 vv.), en de zonen van Merßri voor de planken enz. (hoofdstuk 7:31 vv.) zorg droegen.
+17. Toen de banier van Juda voortgetrokken was, werd de tabernakel afgenomen, de voorhofsbekleedselen, het voorste voorhangsel van de tabernakel en zijn 4 dekkleden werden opgerold, en de pilaren, onderlagen en planken met hun richels werden uit elkaar gezet, en de zonen van Gerson en de zonen van Merari trokken op, dragende of vervoerende, namelijk met de 6 wagens (hoofdstuk 7:3 vv.), de tabernakel, terwijl de zonen van Gerson daarbij voor de 4 dekkleden enz. (hoofdstuk 4:25 vv.), en de zonen van Merari voor de planken enz. (hoofdstuk 7:31 vv.) zorg droegen.
 
 18. Daarna, bij het tweede geklank van de zilveren trompetten, toog op de banier van het, naar de zuidzijde gelegerde, leger van Ruben naar hun legers; en over dit leger van 46.500 man was Elizur, de zoon van Sedéür.
 
 19. En over het leger van de stam van de kinderen van Simeon, tot diezelfde banier behorende, wier zinnebeeld een mensenhoofd was en wier getal 59.300 bedroeg, was Selûmiël, de zoon van Zurísaddai.
 
-20. En over het heer van de stam van de kinderen van Gad, behorende evenzo tot de banier van Ruben, en 45.650 man sterk, zodat de tweede legerafdeling, die de Gersonieten en Merßrieten volgde, in het geheel 151.450 man bedroeg, wasEljasaf, de zoon van Dehuël.
+20. En over het heer van de stam van de kinderen van Gad, behorende evenzo tot de banier van Ruben, en 45.650 man sterk, zodat de tweede legerafdeling, die de Gersonieten en Merarieten volgde, in het geheel 151.450 man bedroeg, wasEljasaf, de zoon van Dehuël.
 
-21. Toen trokken op de Kahathieten (hoofdstuk 2:17), dragende met hun schouders, op draagbaren het heiligdom, het rook- en brandofferaltaar, de gouden kandelaar, de tafel van de toonbroden en het koperen wasvat (hoofdstuk 4:15) en de anderen, namelijk de achter de banier van Juda volgende Gersonieten en Merßrieten (vs.17) richtten, als zij op een nieuwe legerplaats waren aangekomen, aanstonds de tabernakel, grondslagen, planken, stijlen enz. op, en bekleedden die met de behangselen, voorhangsels en dekkleden tegen dat deze, de Kahathieten met de heiligegereedschappen, kwamen, opdat deze zonder oponthoud, de heilige voorwerpen op hun plaats konden zetten.
+21. Toen trokken op de Kahathieten (hoofdstuk 2:17), dragende met hun schouders, op draagbaren het heiligdom, het rook- en brandofferaltaar, de gouden kandelaar, de tafel van de toonbroden en het koperen wasvat (hoofdstuk 4:15) en de anderen, namelijk de achter de banier van Juda volgende Gersonieten en Merarieten (vs.17) richtten, als zij op een nieuwe legerplaats waren aangekomen, aanstonds de tabernakel, grondslagen, planken, stijlen enz. op, en bekleedden die met de behangselen, voorhangsels en dekkleden tegen dat deze, de Kahathieten met de heiligegereedschappen, kwamen, opdat deze zonder oponthoud, de heilige voorwerpen op hun plaats konden zetten.
 
-22. Daarna, bij het derde geklank van de zilveren trompetten, trok op de, naar de westzijde gelegerde (hoofdstuk 2:18-24) banier van het leger van de kinderen van Efraïm, dat een stier tot zinnebeeld had, naar hun legers, die tezamen 108.100 man uitmaakten; en over dit leger (nl. Efraïm), dat op zichzelf 40.500 telde, was Elisßma, de zoon van Ammihud.
+22. Daarna, bij het derde geklank van de zilveren trompetten, trok op de, naar de westzijde gelegerde (hoofdstuk 2:18-24) banier van het leger van de kinderen van Efraïm, dat een stier tot zinnebeeld had, naar hun legers, die tezamen 108.100 man uitmaakten; en over dit leger (nl. Efraïm), dat op zichzelf 40.500 telde, was Elisama, de zoon van Ammihud.
 
-23. En over het leger van de, tot voornoemde banier behorende, stam van de kinderen van Manasse, 32.200 man in getal, was Gamaliël, de zoon van Pedßzur.
+23. En over het leger van de, tot voornoemde banier behorende, stam van de kinderen van Manasse, 32.200 man in getal, was Gamaliël, de zoon van Pedazur.
 
 24. En over het leger van de stam van de kinderen van Benjamin, die 35.400 man telde en mede tot de banier van Efraïm behoorde, was Abidan, de zoon van Gideóni.
 

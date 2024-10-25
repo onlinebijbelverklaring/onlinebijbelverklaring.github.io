@@ -4,7 +4,7 @@ HET JOODSE VOLK WORDT OPNIEUW GETELD.
 
 I. Vs.1-65. Voordat Israël tot de heilige tocht tegen de Midianieten uittrekken kan, moet het in zijn gewapende manschap weer tot een leger van de Heere worden, evenals vroeger bij Sinaï (vgl.inl.hoofdstuk 1); want zij die toen gemonsterd werden, zijn intussen in de woestijn gestorven. Daarom wordt nu een nieuwe telling ondernomen van hen, die twintig jaar en ouder zijn; de stam van Levi wordt ook ditmaal bijzonder geteld, des te meer, daar deze nieuwe monstering in nauwe betrekking staat tot de aanstaande verdeling van het beloofde land, waarbij Levi niet onmiddellijk zijn deel krijgt. De monstering levert aan beide zijden bijna dezelfde uitkomst op als vroeger. Van hen die vroeger gemonsterd werden, zijn echter Jozua en Kaleb alleen in het leven gebleven.
 
-1. Het geschiedde nu na die plaag, 1) dat de HEERE sprak tot Mozes en tot Eleßzar, de zoon van Aäron, de priester; die nu in de plaats van zijn vader het Hogepriesterlijk ambt bekleedde (hoofdstuk 20:28), zeggende:
+1. Het geschiedde nu na die plaag, 1) dat de HEERE sprak tot Mozes en tot Eleazar, de zoon van Aäron, de priester; die nu in de plaats van zijn vader het Hogepriesterlijk ambt bekleedde (hoofdstuk 20:28), zeggende:
 
 2. Neemt de som van de gehele vergadering van de kinderen van Israël op, zoals Gij reeds eenmaal op Mijn bevel, bij de berg Sinaï gedaan hebt (hoofdstuk 1:1), van twintig jaar en ouder, naar het huis van hun vaderen, naar de verschillende families, waarin zij door hun afstamming verdeeld zijn, al wie ten strijde in Israël uittrekt.
 
@@ -12,7 +12,7 @@ I. Vs.1-65. Voordat Israël tot de heilige tocht tegen de Midianieten uittrekken
 
 Deze telling had in het bijzonder tot doel, om de straks volgende verdeling van het land te bevorderen. Daarom worden ook nu de geslachten van de enkele stammen opgesomd, hetgeen bij de telling bij Sinaï niet heeft plaatsgehad.
 
-3. Mozes dan en Eleßzar, de priester, nadat zij de oversten van de stammen ontboden hadden, spraken hen aan, en door deze het volk, in de vlakke velden van Moab, aan de Jordaan van Jericho, zeggende:
+3. Mozes dan en Eleazar, de priester, nadat zij de oversten van de stammen ontboden hadden, spraken hen aan, en door deze het volk, in de vlakke velden van Moab, aan de Jordaan van Jericho, zeggende:
 
 4. Dat men neme van twintig jaar en ouder; zoals de HEERE Mozes reeds bij de eerste monstering (hoofdstuk 1:1-3) geboden had, en de kinderen van Israël, die uit Egypte vertrokken waren. Deze hadden zich toen tot monstering geschaard; nu kwam het jongere geslacht aan de beurt.
 
@@ -92,7 +92,7 @@ a) Jozua. 17:1
 
 32. En van Semida (= roem van kennis) het geslacht van de Semidaïeten; en van Hefer (= put) het geslacht van de Heferieten Jozua 17:2).
 
-33. a) Doch Zelßfead (= doorbraak), de zoon van Hefer, had geen zonen, maar dochters; en de namen van de dochters van Zelßfead waren: Machla (= ziekte) en Noa (= zwerving), Hogla (= patrijs), Milka (= koningin) en Tirza (= aangenaam).
+33. a) Doch Zelafead (= doorbraak), de zoon van Hefer, had geen zonen, maar dochters; en de namen van de dochters van Zelafead waren: Machla (= ziekte) en Noa (= zwerving), Hogla (= patrijs), Milka (= koningin) en Tirza (= aangenaam).
 
 a) Numeri. 27:1
 
@@ -128,7 +128,7 @@ Deze opgaven verschillen enigermate van die, welke in Genesis 46:21 opgetekend z
 
 47. Dat zijn de geslachten van de zonen van Aser, naar hun getelden: drieënvijftigduizend en vierhonderd, bij de eerste telling 41.500 (hoofdstuk 1:41).
 
-48. De zonen van Nafthali, naar hun geslachten (Genesis 46:24): van Jßhzeël het geslacht van de Jßhzeëlieten; van Guni het geslacht van de Gunieten;
+48. De zonen van Nafthali, naar hun geslachten (Genesis 46:24): van Jahzeël het geslacht van de Jahzeëlieten; van Guni het geslacht van de Gunieten;
 
 49. Van Jezer het geslacht van de Jezerieten; van Sillem het geslacht van de Sillemieten;
 
@@ -152,13 +152,13 @@ Zoals overal in de leiding en besturing van het volk van God, zo is het ook hier
 
 56. Naar het lot zal ieders erfenis gedeeld worden, tussen de velen en de weinigen;
 
-57. Dit zijn nu de getelden van Levi, want na de telling van de overige stammen wordt deze nog bijzonder gemonsterd (vs.62 hoofdstuk 3:14), naar hun geslachten: van Gerson het geslacht van de Gersonieten; van Kahath het geslacht van de Kahathieten; van Merßri hetgeslacht van de Merßrieten; deze drie vormden de hoofdgeslachten (Ex.6:16-19).
+57. Dit zijn nu de getelden van Levi, want na de telling van de overige stammen wordt deze nog bijzonder gemonsterd (vs.62 hoofdstuk 3:14), naar hun geslachten: van Gerson het geslacht van de Gersonieten; van Kahath het geslacht van de Kahathieten; van Merari hetgeslacht van de Merarieten; deze drie vormden de hoofdgeslachten (Ex.6:16-19).
 
-58. Dit zijn dan verder de volgende voornaamste geslachten van Levi, in welke deze drie hoofdgeslachten zich splitsten: het geslacht van de Libnieten, een tak van de Gersonieten (hoofdstuk 3:21), het geslacht van de Hebronieten, een tak van de Kahathieten (hoofdstuk 3:27), het geslacht van de Machlieten, het geslacht van de Musieten, beide takken van de Merßrieten (hoofdstuk 3:33), het geslacht van de Korachieten, eveneens van de Kahathieten, en wel van de Izharieten, een zijtak van dit geslacht, (hoofdstuk 3:27 hoofdstuk 16:3). Een derde tak van de Kahathieten, met name de Amramieten, vormde een afdeling op zichzelf, namelijk de stand van de priesters, en zijn geslachtsregister is het volgende: en Kahath gewon Amram.
+58. Dit zijn dan verder de volgende voornaamste geslachten van Levi, in welke deze drie hoofdgeslachten zich splitsten: het geslacht van de Libnieten, een tak van de Gersonieten (hoofdstuk 3:21), het geslacht van de Hebronieten, een tak van de Kahathieten (hoofdstuk 3:27), het geslacht van de Machlieten, het geslacht van de Musieten, beide takken van de Merarieten (hoofdstuk 3:33), het geslacht van de Korachieten, eveneens van de Kahathieten, en wel van de Izharieten, een zijtak van dit geslacht, (hoofdstuk 3:27 hoofdstuk 16:3). Een derde tak van de Kahathieten, met name de Amramieten, vormde een afdeling op zichzelf, namelijk de stand van de priesters, en zijn geslachtsregister is het volgende: en Kahath gewon Amram.
 
 59. En de naam van de vrouw van Amram was Jochebed, de dochter van Levi, welke de vrouw van Levi baarde in Egypte; en deze baarde aan Amram, die haar neef was en vervolgens haar echtgenoot was geworden, Aäron en Mozes, en Mirjam, hun zuster (Exodus. 2:1,2; 6:19).
 
-60. En aan Aäron werden geboren Nadab en Abihu, Eleßzar en Ithamar (Exodus. 6:23).
+60. En aan Aäron werden geboren Nadab en Abihu, Eleazar en Ithamar (Exodus. 6:23).
 
 61. Nadab nu en Abihu waren gestorven toen zij vreemd vuur brachten voor het aangezicht van de HEERE (Leviticus. 10:2 Numeri. 3:4; 1 Kronieken 24:2.
 
@@ -166,7 +166,7 @@ Zoals overal in de leiding en besturing van het volk van God, zo is het ook hier
 
 De telling is niet volledig, omdat bij Aäron, als de voornaamste van allen, het geslachtsregister afbreekt.
 
-63. Dat, zowel het getal, in vs.51 als in vs.62 aangewezen, zijn de getelden van Mozes en Eleßzar, de priester, die de kinderen van Israël telden in de vlakke velden van Moab, aan de Jordaan van Jericho;
+63. Dat, zowel het getal, in vs.51 als in vs.62 aangewezen, zijn de getelden van Mozes en Eleazar, de priester, die de kinderen van Israël telden in de vlakke velden van Moab, aan de Jordaan van Jericho;
 
 64. En onder deze was niemand uit de getelden van Mozes en Aäron, de priester, als zij de kinderen van Israël telden in de woestijn van Sinaï, want het oude geslacht was reeds geheel in de woestijn weggehaald (hoofdstuk 21:12).
 
