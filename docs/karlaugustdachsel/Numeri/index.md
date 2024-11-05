@@ -1,4 +1,3 @@
-
 HET VIERDE BOEK VAN MOZES, NUMERI. 
 
 (Getallen).

@@ -42,9 +42,6 @@ theme:
     - navigation.prune
     - navigation.tabs.sticky
     - toc.follow
-#    - search.suggest
-#    - search.highligt
-#    - search.share
     - content.tabs.link
     - content.code.annotatioin
     - content.code.copy
@@ -1575,9 +1572,9 @@ nav:
         - Numeri 5: karlaugustdachsel/Numeri/Numeri5.md
         - Numeri 6: karlaugustdachsel/Numeri/Numeri6.md
         - Numeri 7: karlaugustdachsel/Numeri/Numeri7.md
-#        - Numeri 8: karlaugustdachsel/Numeri/Numeri8.md
-#        - Numeri 9: karlaugustdachsel/Numeri/Numeri9.md
-#        - Numeri 10: karlaugustdachsel/Numeri/Numeri10.md
+        - Numeri 8: karlaugustdachsel/Numeri/Numeri8.md
+        - Numeri 9: karlaugustdachsel/Numeri/Numeri9.md
+        - Numeri 10: karlaugustdachsel/Numeri/Numeri10.md
 #        - Numeri 11: karlaugustdachsel/Numeri/Numeri11.md
 #        - Numeri 12: karlaugustdachsel/Numeri/Numeri12.md
 #        - Numeri 13: karlaugustdachsel/Numeri/Numeri13.md
