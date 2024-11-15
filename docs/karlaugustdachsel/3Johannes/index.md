@@ -1,0 +1,3 @@
+## DE DERDE BRIEF VAN DE APOSTEL JOHANNES
+
+De tweede en derde brief van Johannes hebben als tweelingzusters met elkaar overeenkomst; maar bij alle gelijkheid in vorm zijn zij toch zeer onderscheiden in onderwerp en strekking. Terwijl de tweede brief nevens de levendige blijdschap van de apostel over het wandelen van de zijnen in de waarheid de tederste zorg voor deze tegenover de dwaalleraars krachtig uitdrukt en tegen vertrouwelijke omgang met deze zeer beslist waarschuwt, wijst de derde brief, naast diezelfde vreugde, op de ondersteunende deelneming in reizende predikers als onveranderlijke plicht van elk in het bijzonder en van de gemeente en berispt, dreigt en bidt hij met grote kracht.

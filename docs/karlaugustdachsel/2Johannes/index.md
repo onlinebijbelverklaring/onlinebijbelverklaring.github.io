@@ -1,0 +1,3 @@
+## DE TWEEDE BRIEF VAN DE APOSTEL JOHANNES
+
+Deze brief is een kostbaar overblijfsel, waaruit men kan zien, welk een vriendelijke omgang mondeling en schriftelijk bij de eerste Christenen is onderhouden en wat een apostel door zo?n schriftelijke toespraak aan een wakkere huismoeder tot versterking op de weg van de waarheid heeft aangebracht. Wel is de naam "Johannes" niet boven dit schrijven geplaatst, maar men merkt die gemakkelijk op aan de wijze van schrijven. Zo is evenmin bekend, wie die huismoeder is geweest, die hij als een uitverkoren vrouw aanspreekt in de hemel is haar naam aangeschreven en zo wij in de waarheid wandelen, zullen wij eenmaal met haar aan het gewenste doel aankomen.

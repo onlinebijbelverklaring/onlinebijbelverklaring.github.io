@@ -2722,19 +2722,19 @@ nav:
   #      -   2 Petrus 1: karlaugustdachsel/2Petrus/2Petrus1.md
   #      -   2 Petrus 2: karlaugustdachsel/2Petrus/2Petrus2.md
   #      -   2 Petrus 3: karlaugustdachsel/2Petrus/2Petrus3.md
-#      -   1 Johannes:
-  #      -   1 Johannes: karlaugustdachsel/1Johannes.md
-  #      -   1 Johannes 1: karlaugustdachsel/1Johannes/1Johannes1.md
-  #      -   1 Johannes 2: karlaugustdachsel/1Johannes/1Johannes2.md
-  #      -   1 Johannes 3: karlaugustdachsel/1Johannes/1Johannes3.md
-  #      -   1 Johannes 4: karlaugustdachsel/1Johannes/1Johannes4.md
-  #      -   1 Johannes 5: karlaugustdachsel/1Johannes/1Johannes5.md
-#      -   2 Johannes:
-  #      -   2 Johannes: karlaugustdachsel/2Johannes.md
-  #      -   2 Johannes 1: karlaugustdachsel/2Johannes/2Johannes1.md
-#      -   3 Johannes:
-  #      -   3 Johannes: karlaugustdachsel/3Johannes.md
-  #      -   3 Johannes 1: karlaugustdachsel/3Johannes/3Johannes1.md
+      - 1 Johannes:
+        - 1 Johannes: karlaugustdachsel/1Johannes/index.md
+        - 1 Johannes 1: karlaugustdachsel/1Johannes/1Johannes1.md
+        - 1 Johannes 2: karlaugustdachsel/1Johannes/1Johannes2.md
+        - 1 Johannes 3: karlaugustdachsel/1Johannes/1Johannes3.md
+        - 1 Johannes 4: karlaugustdachsel/1Johannes/1Johannes4.md
+        - 1 Johannes 5: karlaugustdachsel/1Johannes/1Johannes5.md
+      - 2 Johannes:
+        - 2 Johannes: karlaugustdachsel/2Johannes/index.md
+        - 2 Johannes 1: karlaugustdachsel/2Johannes/2Johannes1.md
+      - 3 Johannes:
+        - 3 Johannes: karlaugustdachsel/3Johannes/index.md
+        - 3 Johannes 1: karlaugustdachsel/3Johannes/3Johannes1.md
       - Judas:
         - Judas: karlaugustdachsel/Judas/index.md
         - Judas 1: karlaugustdachsel/Judas/Judas1.md
