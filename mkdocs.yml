@@ -2139,20 +2139,20 @@ nav:
   #      -   Spreuken 29: karlaugustdachsel/Spreuken/Spreuken29.md
   #      -   Spreuken 30: karlaugustdachsel/Spreuken/Spreuken30.md
   #      -   Spreuken 31: karlaugustdachsel/Spreuken/Spreuken31.md
-#      -   Prediker:
-  #      -   Prediker: karlaugustdachsel/Prediker.md
-  #      -   Prediker 1: karlaugustdachsel/Prediker/Prediker1.md
-  #      -   Prediker 2: karlaugustdachsel/Prediker/Prediker2.md
-  #      -   Prediker 3: karlaugustdachsel/Prediker/Prediker3.md
-  #      -   Prediker 4: karlaugustdachsel/Prediker/Prediker4.md
-  #      -   Prediker 5: karlaugustdachsel/Prediker/Prediker5.md
-  #      -   Prediker 6: karlaugustdachsel/Prediker/Prediker6.md
-  #      -   Prediker 7: karlaugustdachsel/Prediker/Prediker7.md
-  #      -   Prediker 8: karlaugustdachsel/Prediker/Prediker8.md
-  #      -   Prediker 9: karlaugustdachsel/Prediker/Prediker9.md
-  #      -   Prediker 10: karlaugustdachsel/Prediker/Prediker10.md
-  #      -   Prediker 11: karlaugustdachsel/Prediker/Prediker11.md
-  #      -   Prediker 12: karlaugustdachsel/Prediker/Prediker12.md
+      - Prediker:
+        - Prediker: karlaugustdachsel/Prediker.md
+        - Prediker 1: karlaugustdachsel/Prediker/Prediker1.md
+        - Prediker 2: karlaugustdachsel/Prediker/Prediker2.md
+        - Prediker 3: karlaugustdachsel/Prediker/Prediker3.md
+  #      - Prediker 4: karlaugustdachsel/Prediker/Prediker4.md
+  #      - Prediker 5: karlaugustdachsel/Prediker/Prediker5.md
+  #      - Prediker 6: karlaugustdachsel/Prediker/Prediker6.md
+  #      - Prediker 7: karlaugustdachsel/Prediker/Prediker7.md
+  #      - Prediker 8: karlaugustdachsel/Prediker/Prediker8.md
+  #      - Prediker 9: karlaugustdachsel/Prediker/Prediker9.md
+  #      - Prediker 10: karlaugustdachsel/Prediker/Prediker10.md
+  #      - Prediker 11: karlaugustdachsel/Prediker/Prediker11.md
+  #      - Prediker 12: karlaugustdachsel/Prediker/Prediker12.md
 #      - Hooglied:
 #        - Hooglied: karlaugustdachsel/Hooglied.md
 #        - Hooglied 1: karlaugustdachsel/Hooglied/Hooglied1.md
@@ -2442,7 +2442,7 @@ nav:
   #      -   Zacharía 13: karlaugustdachsel/Zacharia/Zacharia13.md
   #      -   Zacharía 14: karlaugustdachsel/Zacharia/Zacharia14.md
 #      -   Maleáchi:
-  #      -   Maleáchi: karlaugustdachsel/Maleachi.md
+  #      -   Maleáchi: karlaugustdachsel/Maleachi/index.md
   #      -   Maleáchi 1: karlaugustdachsel/Maleachi/Maleachi1.md
   #      -   Maleáchi 2: karlaugustdachsel/Maleachi/Maleachi2.md
   #      -   Maleáchi 3: karlaugustdachsel/Maleachi/Maleachi3.md
@@ -2479,7 +2479,7 @@ nav:
   #      -   Matthéüs 27: karlaugustdachsel/Mattheus/Mattheus27.md
   #      -   Matthéüs 28: karlaugustdachsel/Mattheus/Mattheus28.md
 #      -   Markus:
-  #      -   Markus: karlaugustdachsel/Markus.md
+  #      -   Markus: karlaugustdachsel/Markus/index.md
   #      -   Markus 1: karlaugustdachsel/Markus/Markus1.md
   #      -   Markus 2: karlaugustdachsel/Markus/Markus2.md
   #      -   Markus 3: karlaugustdachsel/Markus/Markus3.md
@@ -2497,7 +2497,7 @@ nav:
   #      -   Markus 15: karlaugustdachsel/Markus/Markus15.md
   #      -   Markus 16: karlaugustdachsel/Markus/Markus16.md
 #      -   Lukas:
-  #      -   Lukas: karlaugustdachsel/Lukas.md
+  #      -   Lukas: karlaugustdachsel/Lukas/index.md
   #      -   Lukas 1: karlaugustdachsel/Lukas/Lukas1.md
   #      -   Lukas 2: karlaugustdachsel/Lukas/Lukas2.md
   #      -   Lukas 3: karlaugustdachsel/Lukas/Lukas3.md
@@ -2523,7 +2523,7 @@ nav:
   #      -   Lukas 23: karlaugustdachsel/Lukas/Lukas23.md
   #      -   Lukas 24: karlaugustdachsel/Lukas/Lukas24.md
 #      -   Johannes:
-  #      -   Johannes: karlaugustdachsel/Johannes.md
+  #      -   Johannes: karlaugustdachsel/Johannes/index.md
   #      -   Johannes 1: karlaugustdachsel/Johannes/Johannes1.md
   #      -   Johannes 2: karlaugustdachsel/Johannes/Johannes2.md
   #      -   Johannes 3: karlaugustdachsel/Johannes/Johannes3.md
@@ -2546,7 +2546,7 @@ nav:
   #      -   Johannes 20: karlaugustdachsel/Johannes/Johannes20.md
   #      -   Johannes 21: karlaugustdachsel/Johannes/Johannes21.md
 #      -   Handelingen:
-  #      -   Handelingen: karlaugustdachsel/Handelingen.md
+  #      -   Handelingen: karlaugustdachsel/Handelingen/index.md
   #      -   Handelingen 1: karlaugustdachsel/Handelingen/Handelingen1.md
   #      -   Handelingen 2: karlaugustdachsel/Handelingen/Handelingen2.md
   #      -   Handelingen 3: karlaugustdachsel/Handelingen/Handelingen3.md
@@ -2576,7 +2576,7 @@ nav:
   #      -   Handelingen 27: karlaugustdachsel/Handelingen/Handelingen27.md
   #      -   Handelingen 28: karlaugustdachsel/Handelingen/Handelingen28.md
 #      -   Romeinen:
-  #      -   Romeinen: karlaugustdachsel/Romeinen.md
+  #      -   Romeinen: karlaugustdachsel/Romeinen/index.md
   #      -   Romeinen 1: karlaugustdachsel/Romeinen/Romeinen1.md
   #      -   Romeinen 2: karlaugustdachsel/Romeinen/Romeinen2.md
   #      -   Romeinen 3: karlaugustdachsel/Romeinen/Romeinen3.md
@@ -2594,7 +2594,7 @@ nav:
   #      -   Romeinen 15: karlaugustdachsel/Romeinen/Romeinen15.md
   #      -   Romeinen 16: karlaugustdachsel/Romeinen/Romeinen16.md
 #      -   1 Korinthe:
-  #      -   1 Korinthe: karlaugustdachsel/1Korinthe.md
+  #      -   1 Korinthe: karlaugustdachsel/1Korinthe/index.md
   #      -   1 Korinthe 1: karlaugustdachsel/1Korinthe/1Korinthe1.md
   #      -   1 Korinthe 2: karlaugustdachsel/1Korinthe/1Korinthe2.md
   #      -   1 Korinthe 3: karlaugustdachsel/1Korinthe/1Korinthe3.md
@@ -2612,7 +2612,7 @@ nav:
   #      -   1 Korinthe 15: karlaugustdachsel/1Korinthe/1Korinthe15.md
   #      -   1 Korinthe 16: karlaugustdachsel/1Korinthe/1Korinthe16.md
 #      -   2 Korinthe:
-  #      -   2 Korinthe: karlaugustdachsel/2Korinthe.md
+  #      -   2 Korinthe: karlaugustdachsel/2Korinthe/index.md
   #      -   2 Korinthe 1: karlaugustdachsel/2Korinthe/2Korinthe1.md
   #      -   2 Korinthe 2: karlaugustdachsel/2Korinthe/2Korinthe2.md
   #      -   2 Korinthe 3: karlaugustdachsel/2Korinthe/2Korinthe3.md
@@ -2627,7 +2627,7 @@ nav:
   #      -   2 Korinthe 12: karlaugustdachsel/2Korinthe/2Korinthe12.md
   #      -   2 Korinthe 13: karlaugustdachsel/2Korinthe/2Korinthe13.md
 #      -   Galaten:
-  #      -   Galaten: karlaugustdachsel/Galaten.md
+  #      -   Galaten: karlaugustdachsel/Galaten/index.md
   #      -   Galaten 1: karlaugustdachsel/Galaten/Galaten1.md
   #      -   Galaten 2: karlaugustdachsel/Galaten/Galaten2.md
   #      -   Galaten 3: karlaugustdachsel/Galaten/Galaten3.md
@@ -2635,7 +2635,7 @@ nav:
   #      -   Galaten 5: karlaugustdachsel/Galaten/Galaten5.md
   #      -   Galaten 6: karlaugustdachsel/Galaten/Galaten6.md
 #      -   Éfeze:
-  #      -   Éfeze: karlaugustdachsel/Efeze.md
+  #      -   Éfeze: karlaugustdachsel/Efeze/index.md
   #      -   Éfeze 1: karlaugustdachsel/Efeze/Efeze1.md
   #      -   Éfeze 2: karlaugustdachsel/Efeze/Efeze2.md
   #      -   Éfeze 3: karlaugustdachsel/Efeze/Efeze3.md
@@ -2643,31 +2643,31 @@ nav:
   #      -   Éfeze 5: karlaugustdachsel/Efeze/Efeze5.md
   #      -   Éfeze 6: karlaugustdachsel/Efeze/Efeze6.md
 #      -   Filipenzen:
-  #      -   Filipenzen: karlaugustdachsel/Filipenzen.md
+  #      -   Filipenzen: karlaugustdachsel/Filipenzen/index.md
   #      -   Filipenzen 1: karlaugustdachsel/Filipenzen/Filipenzen1.md
   #      -   Filipenzen 2: karlaugustdachsel/Filipenzen/Filipenzen2.md
   #      -   Filipenzen 3: karlaugustdachsel/Filipenzen/Filipenzen3.md
   #      -   Filipenzen 4: karlaugustdachsel/Filipenzen/Filipenzen4.md
 #      -   Kolossenzen:
-  #      -   Kolossenzen: karlaugustdachsel/Kolossenzen.md
+  #      -   Kolossenzen: karlaugustdachsel/Kolossenzen/index.md
   #      -   Kolossenzen 1: karlaugustdachsel/Kolossenzen/Kolossenzen1.md
   #      -   Kolossenzen 2: karlaugustdachsel/Kolossenzen/Kolossenzen2.md
   #      -   Kolossenzen 3: karlaugustdachsel/Kolossenzen/Kolossenzen3.md
   #      -   Kolossenzen 4: karlaugustdachsel/Kolossenzen/Kolossenzen4.md
 #      -   1 Thessalonicenzen:
-  #      -   1 Thessalonicenzen: karlaugustdachsel/1Thessalonicenzen.md
+  #      -   1 Thessalonicenzen: karlaugustdachsel/1Thessalonicenzen/index.md
   #      -   1 Thessalonicenzen 1: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen1.md
   #      -   1 Thessalonicenzen 2: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen2.md
   #      -   1 Thessalonicenzen 3: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen3.md
   #      -   1 Thessalonicenzen 4: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen4.md
   #      -   1 Thessalonicenzen 5: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen5.md
 #      -   2 Thessalonicenzen:
-  #      -   2 Thessalonicenzen: karlaugustdachsel/2Thessalonicenzen.md
+  #      -   2 Thessalonicenzen: karlaugustdachsel/2Thessalonicenzen/index.md
   #      -   2 Thessalonicenzen 1: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen1.md
   #      -   2 Thessalonicenzen 2: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen2.md
   #      -   2 Thessalonicenzen 3: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen3.md
 #      -   1 Timótheüs:
-  #      -   1 Timótheüs: karlaugustdachsel/1Timotheus.md
+  #      -   1 Timótheüs: karlaugustdachsel/1Timotheus/index.md
   #      -   1 Timótheüs 1: karlaugustdachsel/1Timotheus/1Timotheus1.md
   #      -   1 Timótheüs 2: karlaugustdachsel/1Timotheus/1Timotheus2.md
   #      -   1 Timótheüs 3: karlaugustdachsel/1Timotheus/1Timotheus3.md
@@ -2675,13 +2675,13 @@ nav:
   #      -   1 Timótheüs 5: karlaugustdachsel/1Timotheus/1Timotheus5.md
   #      -   1 Timótheüs 6: karlaugustdachsel/1Timotheus/1Timotheus6.md
 #      -   2 Timótheüs:
-  #      -   2 Timótheüs: karlaugustdachsel/2Timotheus.md
+  #      -   2 Timótheüs: karlaugustdachsel/2Timotheus/index.md
   #      -   2 Timótheüs 1: karlaugustdachsel/2Timotheus/2Timotheus1.md
   #      -   2 Timótheüs 2: karlaugustdachsel/2Timotheus/2Timotheus2.md
   #      -   2 Timótheüs 3: karlaugustdachsel/2Timotheus/2Timotheus3.md
   #      -   2 Timótheüs 4: karlaugustdachsel/2Timotheus/2Timotheus4.md
 #      -   Titus:
-  #      -   Titus: karlaugustdachsel/Titus.md
+  #      -   Titus: karlaugustdachsel/Titus/index.md
   #      -   Titus 1: karlaugustdachsel/Titus/Titus1.md
   #      -   Titus 2: karlaugustdachsel/Titus/Titus2.md
   #      -   Titus 3: karlaugustdachsel/Titus/Titus3.md
@@ -2689,7 +2689,7 @@ nav:
         - Filémon: karlaugustdachsel/Filemon/index.md
         - Filémon 1: karlaugustdachsel/Filemon/Filemon1.md
 #      -   Hebreeën:
-  #      -   Hebreeën: karlaugustdachsel/Hebreeen.md
+  #      -   Hebreeën: karlaugustdachsel/Hebreeen/index.md
   #      -   Hebreeën 1: karlaugustdachsel/Hebreeen/Hebreeen1.md
   #      -   Hebreeën 2: karlaugustdachsel/Hebreeen/Hebreeen2.md
   #      -   Hebreeën 3: karlaugustdachsel/Hebreeen/Hebreeen3.md
@@ -2704,21 +2704,21 @@ nav:
   #      -   Hebreeën 12: karlaugustdachsel/Hebreeen/Hebreeen12.md
   #      -   Hebreeën 13: karlaugustdachsel/Hebreeen/Hebreeen13.md
 #      -   Jakobus:
-  #      -   Jakobus: karlaugustdachsel/Jakobus.md
+  #      -   Jakobus: karlaugustdachsel/Jakobus/index.md
   #      -   Jakobus 1: karlaugustdachsel/Jakobus/Jakobus1.md
   #      -   Jakobus 2: karlaugustdachsel/Jakobus/Jakobus2.md
   #      -   Jakobus 3: karlaugustdachsel/Jakobus/Jakobus3.md
   #      -   Jakobus 4: karlaugustdachsel/Jakobus/Jakobus4.md
   #      -   Jakobus 5: karlaugustdachsel/Jakobus/Jakobus5.md
 #      -   1 Petrus:
-  #      -   1 Petrus: karlaugustdachsel/1Petrus.md
+  #      -   1 Petrus: karlaugustdachsel/1Petrus/index.md
   #      -   1 Petrus 1: karlaugustdachsel/1Petrus/1Petrus1.md
   #      -   1 Petrus 2: karlaugustdachsel/1Petrus/1Petrus2.md
   #      -   1 Petrus 3: karlaugustdachsel/1Petrus/1Petrus3.md
   #      -   1 Petrus 4: karlaugustdachsel/1Petrus/1Petrus4.md
   #      -   1 Petrus 5: karlaugustdachsel/1Petrus/1Petrus5.md
 #      -   2 Petrus:
-  #      -   2 Petrus: karlaugustdachsel/2Petrus.md
+  #      -   2 Petrus: karlaugustdachsel/2Petrus/index.md
   #      -   2 Petrus 1: karlaugustdachsel/2Petrus/2Petrus1.md
   #      -   2 Petrus 2: karlaugustdachsel/2Petrus/2Petrus2.md
   #      -   2 Petrus 3: karlaugustdachsel/2Petrus/2Petrus3.md
@@ -2741,7 +2741,7 @@ nav:
       - Openbaring:
         - Openbaring: karlaugustdachsel/Openbaring/index.md
         -   Openbaring 1: karlaugustdachsel/Openbaring/Openbaring1.md
-  #      -   Openbaring 2: karlaugustdachsel/Openbaring/Openbaring2.md
+        -   Openbaring 2: karlaugustdachsel/Openbaring/Openbaring2.md
   #      -   Openbaring 3: karlaugustdachsel/Openbaring/Openbaring3.md
   #      -   Openbaring 4: karlaugustdachsel/Openbaring/Openbaring4.md
   #      -   Openbaring 5: karlaugustdachsel/Openbaring/Openbaring5.md
