@@ -1,6 +1,6 @@
 CHRISTUS’ GESLACHTSREGISTER, ONTVANGENIS, NAAM EN GEBOORTE.
 
-## I. Vers 1-17.
+## I. Vers 1-17
 Het doel van Mattheus met zijn Evangelie, dat in de eerste plaats voor Christenen uit het Jodendom is bestemd, is om het duidelijk bewijs te leveren, dat aan Jezus van Nazareth alle merk- en kentekenen gevonden worden, die in de schriften van het Oude Testament in betrekking tot Israël’s Messias gevonden worden, en dat Hij dus inderdaad de Messias, de beloofde Zaligmaker van Zijn volk is. Hij begint met een geslachtsregister, dat Hem van de zijde van Jozef, de man van Maria, als een zoon van David, de zoon van Abraham, doet kennen (Luk. 3: 23-38).
 
 x) Deze opgaaf van paragrafen heeft betrekking op de harmonie van de vier Evangeliën naar de tijdsorde van de gebeurtenissen. De lezer wordt daardoor in staat gesteld, zich wat de chronologische samenhang van elke afdeling die hij voor zich heeft, aangaat te oriënteren en zo gemakkelijk tot een goed begrip te komen.
@@ -85,7 +85,7 @@ Abraham en David staan aan het hoofd - voorzeker! ieder van deze namen is een ce
 
 van het Evangelie, die Gods vrije genade verkondigt in Christus aan allen zonder aanzien des persoons; en naast de goddelijke waarheid: dat ook de gruwelijkste zonde in Christus vergeving heeft, staat de andere goddelijke waarheid: dat alleen Gods verkiezing en Gods weg Gods doel bereiken.
 
-## II. Vers 18-25.
+## II. Vers 18-25
 In het voorafgaande geslachtsregister had de Evangelist Jezus in genealogisch opzicht geheel als een lichamelijke zoon van Jozef behandeld, hoewel Hij slechts zijn pleegzoon was. Het is thans zijn doel aan de ene zijde de lichamelijke afstamming van Jozef tegenover het gewone volksgeloof (hoofdstuk . 13: 55vv.) met evenveel beslistheid tegen te spreken, als aan de andere zijde het genealogisch behoren tot Jozef aan te wijzen, even alsof er een lichamelijke afstamming aanwezig geweest ware. Dit dubbele doel bereikt hij door een familiegeschiedenis mee te delen, waarin een bepaalde belofte van het Oude Testament vervuld wordt. Jezus, door Zijn moeder in haar maagdelijke staat ontvangen door de Heilige Geest, is in de volle zin, wat volgens het woord van de profeet Jesaja de toekomstige Messias zou zijn, namelijk de Emmanuel, d. i. God met ons. Daar vervolgens Jozef Maria met de nog ongeboren vrucht, overeenkomstig het goddelijk bevel, in echtelijke verbintenis opgenomen heeft, en voor de gehele tijd tot aan de geboorte zich van echtelijke gemeenschap onthouden heeft, heeft hij daardoor aan de eerste zoon van zijn vrouw zijn eigen karakter als David’s zoon meegedeeld op een wijze, die aan Zijn karakter als Emmanuel geen schade veroorzaakt.
 
 ***18. De geboorte van Jezus Christus was nu aldus. Was in vs. 16 gezegd - niet, dat Jozef Hem gewon, maar dat hij de man was van Maria, uit wie Jezus geboren is, zo willen wij nu nadere verklaring van dit grote geheim geven: a) want als Maria, Zijn moeder, te voren met Jozef ondertrouwd was, met hem verloofd was, eer zij als gehuwden samengekomen waren, werd zij na haar terugkeer van het bezoek aan Elizabeth tegen het einde van het jaar 5 voor Chr. Luk. 1: 56), als reeds gedurende drie maanden zwanger bevonden, en wel uit de Heilige Geest, hetgeen echter Jozef, haar bruidegom niet wist; hij kon, toen haar toestand openbaar geworden was, slechts denken, dat zij de hem verschuldigde trouw gebroken had.***
