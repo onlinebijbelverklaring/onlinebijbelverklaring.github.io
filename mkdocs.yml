@@ -2372,11 +2372,11 @@ nav:
   #      -   Hoséa 12: karlaugustdachsel/Hosea/Hosea12.md
   #      -   Hoséa 13: karlaugustdachsel/Hosea/Hosea13.md
   #      -   Hoséa 14: karlaugustdachsel/Hosea/Hosea14.md
-#      -   Joël:
-  #      -   Joël: karlaugustdachsel/Joel.md
-  #      -   Joël 1: karlaugustdachsel/Joel/Joel1.md
-  #      -   Joël 2: karlaugustdachsel/Joel/Joel2.md
-  #      -   Joël 3: karlaugustdachsel/Joel/Joel3.md
+      - Joël:
+        - Joël: karlaugustdachsel/Joel/index.md
+        - Joël 1: karlaugustdachsel/Joel/Joel1.md
+        - Joël 2: karlaugustdachsel/Joel/Joel2.md
+        - Joël 3: karlaugustdachsel/Joel/Joel3.md
 #      -   Amos:
   #      -   Amos: karlaugustdachsel/Amos.md
   #      -   Amos 1: karlaugustdachsel/Amos/Amos1.md
