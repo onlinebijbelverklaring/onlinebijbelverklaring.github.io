@@ -1,0 +1,146 @@
+---HOOFDSTUK---3
+
+DE   VERDORDE   HAND.   HET   ONTWIJKEN   VAN   CHRISTUS.   KEUZE   VAN   DE APOSTELEN. LASTERING VAN DE SCHRIFTGELEERDEN. VRIENDEN VAN GOD
+
+V.  Vs.  1-12  (zie  ook).  Zowel  chronologisch  als  pragmatisch  3.  23)  is  aan  de  vorige geschiedenis de nu volgende op het nauwste verbonden. Daags na het plukken van de aren geneest Jezus in de synagoge van de stad, in wier nabijheid dat had plaats gehad, een man met een verdorde hand. De vijandschap van de daar wonende farizee?n stijgt nu al zo hoog dat men er aan denkt Hem om het leven te brengen. Met  dat doel verbinden zij zich met de dienaren van Herodes, hoewel men anders met deze op geen goede voet stond.
+
+1. En Hij ging de volgende dag, de laatste feestdag van pasen, die met een sabbat gelijk stond, wederom  in  de  synagoge  te  Chorazin.  En  daar  was,  waarschijnlijk  met  opzet,  door  de farizee?n (vgl. Luk. 14: 2) een mens gebracht, hebbende een verdorde hand, die ten gevolge van enig ongeluk verstorven en zo onbruikbaar was geworden.
+
+2. En zij, door het woord in Hoofdstuk 2: 27 geenszins tot rechte erkenning van de eigenlijke betekenis  van  de  sabbat  gebracht,  maar  door  het  andere  (Hoofdstuk  2:  28)  integendeel bevestigd in de argwaan dat Jezus op geen sabbatsgebod meer acht gaf, namen Hem waar met vijandige bedoeling, of Hij heden op de sabbat hem genezen zou. Zij bespiedden Hem, opdat zij Hem beschuldigen mochten en van sabbatsschennis aanklagen; want dat was volgens hun mening zelfs de genezing van een zieke wanneer die op die dag plaats had, omdat het toch een soort van arbeid was.
+
+Het bezoeken van de synagoge op de sabbat was een vaste gewoonte in het leven van Jezus. Waar Hij Zich ophield, daar kon men Hem op de sabbat in de synagoge verwachten. Zijn vijanden lieten niet na deze gewoonte van Zijn leven vijandig aan te wenden en het zo aan te leggen dat Hij in de synagoge aanleiding kreeg om iets te spreken of te doen dat men tegen Hem kon aanwenden.
+
+3. En nadat Hij de tegenstanders al door een voorlopige toespraak tot zwijgen had gebracht 12: 12"), zei Hij tot de mens die de verdorde hand had: Sta nu op hier in het midden van de kamer.
+
+4. En Hij zei verder tot hen: Is het geoorloofd op sabbatdagen goed te doen of kwaad te doen? iemand een weldaad te bewijzen of hem leed te veroorzaken? een mens te behouden door de zieke en ongelukkige de gezondheid weer te geven, of hem te doden door hem in zijn ellende te laten? En zij zwegen stil, omdat zij niet wilden antwoorden.
+
+5.  En  toen  Hij hen  met  woede  rondom aangezien  had,  meteen  bedroefd  zijnde  over  de verharding van hun hart,  zei Hij tot  de mens, zonder er Zich om te bekommeren welke gevolgen Zijn woord en Zijn daad bij hen zouden hebben: Strek uw hand uit. En hij strekte ze uit in gehoorzaamheid van het geloof; a)en zijn hand werd hersteld, gezond zoals de andere.
+
+a) 1 Kon. 13: 6.
+
+Op  de  vorige  sabbat  werd  het  werk  van  de  noodzakelijkheid  gerechtvaardigd;  op  deze rechtvaardigt de Heere het werk van de liefde.
+
+De farizee?n dwingen Jezus te antwoorden op de vraag of het geoorloofd was op de sabbat te genezen; Jezus doet de wedervraag of het op de Sabbat geoorloofd was goed te doen of kwaad te doen? want een mens in ellende te laten die men kan helpen, was toch inderdaad een kwaad doen.
+
+Onder de categorie van goed doen, recht handelen, behoort natuurlijk de werkzaamheid van de liefde tot de naaste, terwijl het nalaten daarvan slechts in de categorie van het kwaad doen kan  vallen,  waartoe  ook  zonder  twijfel  de  zonde  van  nalatigheid  behoort.  Uit  hetzelfde gezichtspunt is het tweede alternatief gesteld: een leven behouden of doden? Het toont aan hoe  juist  Luther  het  vijfde  gebod  verklaart  (bij  ons  het  6e.  Zie  de  verklaring  van  de Heidelbergse Catechismus Zondag 40). Wanneer hij daarin leest: "dat wij onze naaste aan zijn lichaam geen schade of leed aandoen, maar hem in alle lichamelijke nood helpen en bijstaan. " Dat na te laten behoort tot de categorie van de doodslag, dat te beoefenen tot die van redding van het leven. De instelling van de sabbat kan niet tegen dit gebod zijn. Ook Jezus? tegenstanders kunnen die stelling niet loochenen; omdat zij die echter niet willen erkennen zwijgen zij.
+
+Zij geven  nu  alleen  het  antwoord  van  hooghartig  zwijgen,  wat  zegt  dat  zij niet  kunnen tegenspreken. Na de genezing daarentegen geven zij het  antwoord door hun  schandelijke daad, dat zij zich veroorloven, in vereniging met de wereldse macht voor de eerste maal het moordplan te bespreken.
+
+6. a) En de farizee?n, verbitterd over de nederlaag die hen in de strijd tegen Jezus nog veel erger dan de vorigen dag overkomen was, gingen uit de synagoge en hebben meteen met de Herodianen, die toen juist naar Chorazin waren gekomen 12: 14"), tezamen raad gehouden tegen  Hem.  Zij  beraadslaagden  hoe  zij  Hem,  met  behulp  van  de  arm  van  de  wereldse overheid, onverschillig onder welk voorwendsel, zouden doden.
+
+a)Joh. 10: 39; 11: 53.
+
+7. En Jezus, die nu het jaar inging van verbanning en vluchtend rondzwerven ("Uit 12: 21"), vertrok  met  Zijn  discipelen  naar  de  zee  bij  Kaperna?m,  om  van  daar  reizen  door  het omliggende land te beginnen. a)En Hem volgde op die eerste tocht, zowel als op de volgende, die Hij in de zomermaanden maakte, een grote menigte van Galilea en van Judea.
+
+a)MATTHEUS. 4: 25. Luk. 6: 17.
+
+8. En van Jeruzalem en van Idumea, het zuidelijk gedeelte van Judea 4: 25") en van over de Jordaan;  en  die  van  rondom  Tyrus  en  Sidon,  kwam  een  grote  menigte,  die  hierheen samengekomen was langs de grote handelsweg. Deze, gehoord hebbende welke grote dingen
+
+Hij deed, kwamen tot Hem om ooggetuigen van Zijn wonderen te zijn en bij Zijn redenen aan de oever van de zee Zijn toehoorders te wezen.
+
+9. En Hij zei tot Zijn discipelen, die Hij Zich had gekozen (vs. 13 vv. ) en van welke niet weinigen schippers van beroep waren (Hoofdstuk 1: 16 vv. ), dat een scheepje steeds rondom Hem blijven zou. Dit moest Hem opnemen wanneer Hij Zich van het land wilde verwijderen omwille van de menigte, opdat zij Hem niet zouden verdringen (Hoofdstuk 4: 2).
+
+10.  Want  Hij  had  er  velen  genezen,  zodat  Hem  al  degenen  die  enige  kwalen  hadden, overvielen.  Op een onstuimige manier  drongen zij op  Hem aan,  opdat  zij  Hem mochten aanraken en zo Zijn wondermacht toch aan zich mochten ondervinden, ook wanneer hij niet met ieder in het bijzonder spreken kon (Hoofdstuk 5: 27 vv. Luk. 6: 19).
+
+11. En de onreine geesten in de bezetenen, die tot Hem gebracht werden, als zij Hem zagen, vielen voor Hem neer en riepen zeggende: U bent de Zoon van God. Daardoor vermeerderden zij nog de aandrang.
+
+12. En Hij, wie het niet om dit woord der waarheid maar om de waarheid en reinheid van de belijdenis te doen was, gebood hen scherp dat zij Hem niet openbaar zouden maken, maar zwijgen.
+
+Nu begon het  leren op de zee, op het  schip, dat  nu Zijn voornaamste leerplaats was, in tegenstelling tot de synagoge. Dat schip diende Hem meermalen om Zich terug te trekken naar de anderen oever. Het naaste doel "opdat zij Hem niet zouden verdringen" (vs 9) sluit het andere niet uit, dat hij van nu af een vrijere plaats op dat schip had en Zich vaak over de zee, in het gebied aan de overzijde terugtrok. Deze verplaatsing van de prediking van Christus uit de synagoge naar het schip heeft een voorafschaduwende betekenis - denk aan het schip van de kerk.
+
+Datgene wat Jezus kan plaatsen tegenover de vijandschap van de oversten tegen Zijn werk, als een vrucht  van Zijn werkzaamheid door  woord en daad onder het  volk, namelijk het voortdurend omgeven zijn door een talrijke, bonte menigte die Hem overal nastroomt, is niet van die aard, dat men daarvan de veiligheid van Zijn werk ook tegenover de haat van de farizee?n zou kunnen verwachten. Alleen dit heeft Hij daardoor, dat Hem die menigte door hare onstuimigheid en haar zoeken naar lichamelijke genezing het naar lichaam en ziel lastig maakt. Wezenlijke erkenning van Zijn persoon vindt Hij niet, behalve bij de bezetenen; maar daar is zij van zo?n aard dat Hij ze niet kan dulden noch aannemen.
+
+I. Vs. 13-19. (zie ook). Aan het einde van het laatste stuk zagen wij Jezus iets doen om Zijn werk uitwendig te beschermen ten eerste tegen de vijandschap van de volksleiders, die door hun  aanslagen  Zijn  leven  bedreigden,  ten  tweede  tegen  de  woeste  aandrang  van  de volksmenigte  en  ten  slotte  tegen  de  bezetenen,  die  Hem  het  staan  op  het  land  bijna onmogelijk maakten. Het was het gereed houden van een schip, waartoe Hij de discipelen opdracht gaf. Dit uitwendig hulpmiddel was tevens profetie voor Zijn kerk, dat Hij, wanneer Hij ten slotte met Zijn zegen en Zijn rijk uit Isra?l gedrongen zou zijn, een plaats daarvoor op
+
+de zee van de heidenwereld wilde stichten. In het eerste stuk van de derde groep, die nu volgt, zien wij Hem de grond daartoe leggen in de keuze en roeping van de twaalf Apostelen.
+
+13. a) En Hij klom, niet pas na de voorvallen in de beide vorige afdelingen meegedeeld, maar na de vorige conflicten met de farizee?n (Hoofdstuk . 2: 1-22), welke Hem toen al begonnen te lasteren (MATTHEUS. 9: 27 vv. ), op de berg, dezelfde waarop Hij later de bergprediking hield. Daar bracht Hij de nacht door in gebed en riep de volgende morgen uit de kring van hen, die tot hiertoe in het algemeen de kring van Zijn discipelen gevormd hadden, tot Zich die Hij wilde; en zij kwamen tot Hem, zich gewillig begevende in de dienst waartoe Hij ze riep.
+
+a) Mark. 6: 7. Luk. 9: 1.
+
+14. En Hij stelde er twaalf, opdat zij met Hem zouden zijn zo lang Hij op aarde was en opdat Hij hen zou uitzenden om te prediken wanneer Hij van hen zou zijn weggenomen.
+
+15. En om, ter bevestiging van hun werk in Zijn plaats en tot voortzetting van Zijn wonderen die de prediking van het Evangelie vergezelden, macht te hebben de ziekten te genezen en de duivelen uit te werpen (Hoofdstuk 6: 7, 13).
+
+Hoe zal de Heere, die in MATTHEUS. 9: 38 tot de discipelen zei: "Bidt dan de Heere om de oogst, dat Hij arbeiders voor zijn oogst zal zenden, " gebeden hebben in de nacht dien Hij voor de gewichtige keus van de Apostelen doorwaakte! Inderdaad, het was een grote zaak uit Zijn vrijwillige volgelingen juist de geschiktsten uit te kiezen. Eenvoudige mannen, die niet door   priester-instellingen  beheerst   noch  door   de   duisternis   van   de   geleerden  waren aangestoken, wier karakter in frisse kracht, gereinigd door de geboorte van boven en versterkt door onderlinge aanvulling door middel van de verscheidenheid van hun gaven, bekwaam waren de vaste fundamenten van de nieuwe gemeente te vormen. Want tegelijk had Hij het oog op hetgeen het meest nabij en op hetgeen het verst af was. Hij zorgt voor deugdelijke werktuigen die Hij met de boodschap van het heil in Isra?l kon laten uitgaan, twee aan twee, opdat zij elkaar zouden ondersteunen en aanvullen en de een in de ander de broeder zou leren dragen. In deze eerste kiem zag het oog van Zijn Geest de heerlijke volmaking wanneer zij in het rijk van Zijn heerlijkheid op twaalf tronen zouden zitten en de twaalf geslachten van Isra?l zouden oordelen. Tussen deze palen beweegt zich hun zending. Zij zouden Hem voortdurend vergezellen en Zijn dienaren zijn, in deze school gevormd worden tot broederlijk verbondene herauten van Zijn koninkrijk en getuigen van Zijn leven. Zij moesten herauten en getuigen worden die Hij eenmaal als zelfstandige boden in de kracht van de Geest kon uitzenden en wier onvergankelijke roeping door hun twaalftal werd uitgedrukt. Die roeping namelijk was het nieuwe verbond op het fundament van het oude te planten, de eersten van het werk Gods van het begin af voor te stellen, als nieuwe aartsvaders van het ware Isra?l te staan, als pilaren van het hemelse Jeruzalem in eeuwigheid te schitteren. (Openbaring . 21: 14). Daarom bad Hij in die nacht, opdat Hij de zekerheid zou hebben (Joh. 15: 16; 17: 12) dat Hij in waarheid diegenen koos die de Vader Hem gegeven had.
+
+De Apostelen werden door Jezus ten eerste geroepen om van nu af geheel in een persoonlijke gemeenschap tot  Hem te staan, met Hem te leven, te eten en te drinken, een geestelijke
+
+familie met Hem te vormen en in het algemeen steeds in Zijn nabijheid te zijn, alleen de kleine zendingen in de nabijheid uitgezonderd die zij als oefeningen voor hun toekomstige grote zending  konden beschouwen.  Ten tweede moesten zij in de toekomt  in de wereld optreden (Hand. 1: 8 en 21 v. ) als Zijn getuigen, als de getuigen van Zijn leven, van Zijn dood  en van Zijn opstanding,  als getuigen van  Zijn  Geest  en van Zijn kracht.  Tot  deze getuigenis moesten zij echter de Geest van Christus ontvangen en in de kracht van deze Geest moesten zij het verborgen aanzijn van Zijn leven in de wereld, de eerste totaliteit van Zijn geestelijke, eeuwige tegenwoordigheid in de wereld zich voorstellen. Omdat zij echter ook al nu het werk van Jezus moesten verrichten en verbreiden geeft de Heere hen bij de opdracht om het Evangelie te prediken, de macht om de onreine geesten uit te drijven en de zieken te genezen.
+
+16. En in de eerste plaats riep Hij Simon; die gaf Hij de bijnaam Petrus, d. i. rots. Bij een latere gelegenheid verklaarde Hij hem ook deze naam in zijn betekenis (MATTHEUS. 16: 18).
+
+Terwijl Markus de overige elf optelt  als aanwezig  en uitdrukkelijk  als gekozen  heeft  hij Simon, als iets dat vanzelf sprak, aanwezig gedacht. Daaruit blijkt dat hij herinneringen van Simon Petrus weer verhaalt, zoals daarvoor in de eigenaardige uitdrukking in Hoofdstuk 1: 29 al een aanduiding lag.
+
+17. En daarna riep Hij Jakobus, de zoon van Zebedeus en Johannes, de broeder van Jakobus en gaf hun toenamen Boanerges, hetwelk is overgezet zonen van de donder;
+
+Men verklaart deze bijnaam veelal met het oog op het karakter van de vuurijver van de beide broeders, zoals die zich in Luk. 9: 54 openbaart. Het is echter in tegenspraak met het begrip van een nieuwe naam, dat die beiden zo een bij hun keuze tot het apostelambt zouden hebben ontvangen, die hun misslag enigermate vereeuwigde. Integendeel staat de naam, zonen van de donder, geheel op gelijke trap met die van "Petrus" welke Simon ontvangt en dan zal de nieuwe naam zeker  de nieuwe mens van deze zonen van Zebede?s karakteriseren,  of de nieuwe natuur aanwijzen die hen onder het discipelental van Christus ten deel zal worden. Men heeft  er  zich aan gewend zich Johannes als zeer zacht  voor te stellen, maar al zijn schriften bewijzen dat  bij alle receptiviteit  toch  een  grote kracht  en scherpheid van ernst tegenover het kwade in hem was. "Tegenover Christus was hij geheel receptief, maagdelijk, waar door Christus vervuld was hij tegenover al het onchristelijke mannelijk, ja verpletterend als een echte zoon van de donder, die de kracht van het vuur, dat van boven nederdaalde, tegen al het ongoddelijke keerde. " (vgl. 1 Joh. 4: 1 vv. ).
+
+18.  En  daarna  riep  Hij  Andreas  tot  zich,  de  broer  van  Simon  (vs.  16)  en  Filippus  en Bartholome?s  of  Nathana?l  en  Matthe?s,  vroeger  Levi  genoemd  (Hoofdstuk  2:  14)  en Thomas en Jakobus de zoon van Alfe?s en Thadde?s 1) of Lebbe?s (MATTHEUS. 10: 3), ook Judas, de broer van Jakobus (Luk. 6: 16) genaamd en Simon Kananites of Zelotes, de derde onder Zijn broers;
+
+1)  Het  is  gemakkelijk  te  begrijpen  dat  men  de  Apostel Judas  graag  van  de  boze  Judas onderscheidde en veel liever de verschillende bijnamen gebruikte; ook Johannes (14: 22) zegt uitdrukkelijk dat de Heere Judas, niet de Iskariot, gevraagd heeft.
+
+19. En Judas Iskariot, die Hem naderhand ook verraden heeft "Uit (10: 4" en "Uit 26: 47").
+
+II. Vs. 20-35. (zie ook). Door de keuze van de twaalf, van wie wij zo even gehoord hebben, heeft  de Heere in degenen die voortaan blijvend  bij Hem zouden zijn  (vs.  14)  Zich een geestelijke familie of huisgezin gevormd. Nu gaat de Evangelist niet alleen de bergpredikatie, maar ook een langere tijdruimte van 2/3 jaar voorbij. Daaruit zal hij pas later de belangrijkste geschiedenissen mededelen (Hoofdstuk . 6: 7 vv. ), nadat hij vroeger al enige geschiedenissen heeft gemeld (Hoofdstuk . 1: 40 vv; 2: 23 vv. ). Nu gaat hij die geschiedenis vertellen in welke Hij die geestelijke verwantschap ook openlijk legitimeerde en hen in de plaats van Zijn bloedverwanten stelde. Het  is dezelfde gebeurtenis bij welke Zijn bloedverwanten gemene zaak schenen te maken met Zijn eigenlijke doodvijanden. Zoals toch die van Hem zeiden; "Hij heeft Be?lzebul, " zo spraken zij ook van Hem en gedroegen zich als was Hij buiten Zijn zinnen.  Daarvoor  hadden  zij  wel  verdiend  dat  Hij  hen  in  hun  eigenschap  als  naaste betrekkingen verloochende voor de mensen en alle rechten van bloedverwantschap afsneed.
+
+20. En zij, Jezus met de twaalf geroepenen, daalden neer van de berg op welke Hij na hun roeping de bergrede (MATTHEUS. 5: 2-7 : 27. Luk. 6: 20-49) gehouden had. Zij gingen door de stad waarbij Hij de melaatse genezen had, waarop Hij Zich in een woeste plaats begaf (Hoofdstuk 1: 41-45). Daarop kwamen zij in huis te Kaperna?m, waar de geschiedenis met de hoofdman voorviel (MATTHEUS. 8: 5-13. Luk. 7: 1-10). Acht maanden later, nadat de Heere Zich van de farizee?n (vs. 7) had teruggetrokken en een tweede reis door het omliggende land had ge?indigd 12: 22"), kwam Hij weer daar. En daar (er) vergaderde weer een menigte aan het strand van de zee bij Bethsa?da, zodat zij, de Heere met de twaalf, vanwege de volksmassa die hen insloot, geen ruimte hadden om naar Kaperna?m te gaan en ook zelfs a) niet hun middagbrood konden eten, waarvoor het al lang tijd was.
+
+a)Mark. 6: 31.
+
+21. En toen degenen die Hem nastonden, Zijn huisgenoten, Zijn familie (behalve Maria en Joses, ook zeker wel de zusters met haar mannen, die voor een bezoek in het huis van Simon te Kaperna?m aanwezig waren 19: 2") dit hoorden, gingen zij uit naar het strand van de zee om hem vast te houden en met geweld naar binnen te brengen; zij meenden dit te moeten doen, want zij zeiden, in de eerste plaats de zwagers, door wier spreken zich ook Maria en Joses tot geheel nodeloze zorg lieten brengen: Hij is buiten Zijn zinnen; Hij drijft het met Zijn geestdrift voor Zijn profetische roeping te ver en is op het punt om krankzinnig te worden (Hand. 26: 24).
+
+De betrekkingen van Jezus was het bericht ter ore gekomen hoe Hij door de menigte werd overvallen  en  bezig  gehouden  en  met  welk  een  bijna  bovenmenselijke  inspanning  en zelfopoffering Hij Zich aan de aandringende volksmassa toewijdde (zij vonden de bevestiging daarvan hierin, dat Hij niet naar huis kwam om te eten). Dit verontrustte hen en vervulde hen
+
+met bezorgdheid, die zeker niet uit het geloof voortkwam, maar des te meer begrijpelijk is op grond van hun natuurlijke gehechtheid en menselijke manier van beschouwing (ten minste van de zijde van de moeder van Jezus en van Joses, terwijl bij de overige bloedverwanten dezelfde oorzaak aanwezig is die in Joh. 7: 5 voor de dag komt; hoe aanstekelijk een uit een onrein hart voortgekomen woord dikwijls is voor eenvoudige en oprechte gemoederen en deze in verwarring brengt, vgl. daarover Joh. 12: 4 vv. en MATTHEUS. 26: 8 v. ). In die opwelling van het gemoed stonden zij op en gingen naar buiten om Hem met geweld terug te houden van die overmatige werkzaamheid. "Buiten zijn zinnen zijn" is een uitdrukking voor een  gedrag  dat  de  regels  van  de  gewone  werkzaamheid  en  de  maat  van  het  gewone levensgedrag te boven gaat en voor de natuurlijke manier van beschouwing onvatbaar is (2 Kor. 5: 13). Zo kwam aan Jezus? betrekkingen Zijn handelwijze voor en daarom voelden zij zich geroepen Hem terug te houden. Vijandig is hun bedoeling niet (al was ook van de kant van degenen van wie het woord is uitgegaan een zekere frivoliteit niet te miskennen). Het is een werking van vleselijke beperktheid die zich niet weet te vinden in het buitengewone van Jezus? handelwijze en die nu door een woord van bestraffing (vs. 33. v. )  moest worden overwonnen.
+
+22. En de schriftgeleerden, die juist toen Hij zo in het drukste van Zijn leren en weldoen was, uit Jeruzalem gekomen waren om op Hem te loeren en een punt van aanklacht tegen Hem te vinden 15: 1") hadden weldra gelegenheid Hem aan te vallen. De Heere dreef een duiveluit; dit wekte zeer sterk de verwondering op van al het volk, dat nu Jezus als de Messias erkende (MATTHEUS. 12: 22. Luk. 11: 14). Maar zij fluisterden met de daar wonende farizee?n de mensen in het oor en zelden: a) Hij heeft Be?lzebub en door de overste van de duivelen werpt Hij de duivelen uit.
+
+a)MATTHEUS. 9: 34. Joh. 8: 48.
+
+Markus bericht ons de aanleiding niet die er voor de schriftgeleerden tot deze stap was. Het is hem alleen te doen om het oordeel van de bloedverwanten (vs. 21) tegenover hen welke Hij door  Zijn,  van  de  hemelsen  Vader  geleide,  keus  tot  Zijn  huisgenoten  en  medearbeiders gemaakt had, met een ander nog veel erger oordeel, maar dat toch in zeker verband daarmee stond, in verbintenis te brengen. Wordt door de schriftgeleerden beweerd dat Hij een door de duivel bezetene is, die door macht  van de duivel de demonen uit  de bezetenen drijft, zo hebben  de  bloedverwanten  Hem  als  een  waanzinnige  beschouwd  die  zijn  verstand  heeft verloren en eveneens een begin gemaakt om de Zoon des mensen te lasteren.
+
+23. En omdat Hij wel wist wat zij zo in het geheim tot de menigte spraken, hen tot Zich geroepen hebbende, zei Hij tot hen in gelijkenissen: Hoe kan de satan de satan uitwerpen?
+
+23. En omdat Hij wel wist wat zij zo in het geheim tot de menigte spraken, hen tot Zich geroepen hebbende, zei Hij tot hen in gelijkenissen: Hoe kan de satan de satan uitwerpen?
+
+24. En indien een koninkrijk tegen zich zelf verdeeld is, zo kan dat koninkrijk niet bestaan.
+
+25. En indien een huis tegen zich zelf verdeeld is, zo kan dat huis niet bestaan.
+
+26. En indien de satan tegen zichzelf opstaat en verdeeld is, zo kan hij niet bestaan, maar heeft een einde.
+
+27. Er kan niemand in het huis van een sterke ingaan en zijn vaten ontroven a), indien hij niet eerst de sterke bindt en pas dan zal hij zijn huis beroven.
+
+a) Kol. 2: 15.
+
+Bij hun oordeel (vs. 22) hebben de tegenstanders zeer juist verondersteld dat alle machten van de duisternis, de demonen in de door hen bezeten mensen, door een overste, de vorst van de duisternis  of  de  duivel  geleid  en  beheerst  worden,   wie  zij  onvoorwaardelijk  moeten gehoorzamen; nu is echter hun oordeel zelf, dat  een door de Overste  zelf opgewekte en ondersteunde strijd van Hem onderworpen machten onder elkaar aanneemt, een openlijke tegenspraak tegen hun eigen bewering; want geen op zijn heerschappij jaloerse vorst voert de hem  onderworpene  krachten  tegen  elkaar  in  het  veld;  hij  weet  dat  hij  daardoor  zelf  de verwoester van zijn rijk of van het gebied van zijn heerschappij zou zijn. Integendeel is op grond van die eerste veronderstelling uit het openbare feit dat hier een het huis van de sterken plundert, alleen die gevolgtrekking verstandig en mogelijk dat de sterke door de plunderaar van zijn huis vooraf in de strijd overwonnen moet zijn. Laat het dus de satan toe dat Jezus de door hem in bezit genomen hem met geweld als een buit ontrukt, zo is daaruit af te leiden dat Jezus op de satan een overwinning behaald heeft, ten gevolge waarvan hij Zijn werken als Heiland niet meer kan verhinderen. Dit woord is zo een bevestiging uit de eigen mond van de Heere dat een geschiedenis, als de door de Evangelisten medegedeelde verzoeking door de duivel (Hoofdstuk 1: 12 v. ) moet zijn voorgevallen.
+
+28. voorwaar Ik zeg u, a) dat al de zonden van de mensenkinderen vergeven zullen worden en allerlei lasteringen, waarmee zij gelasterd zullen hebben;
+
+a) 1 Sam. 2: 25. Luk. 12: 10. 1 Joh. 5: 16.
+
+29. Maar wie gelasterd zal hebben tegen de Heilige Geest die heeft geen vergeving in de eeuwigheid, maar hij is schuldig aan het eeuwige oordeel.
+
+30. Zulk een zonde van lastering van de Heilige Geest waren de schriftgeleerden (vs. 22) al zeer dicht genaderd want zij zeiden, ondanks de getuigenis van de Heilige Geest, die in het wonder van de genezing drong om de heerlijkheid van de Zoon van God als van de ware Messias te erkennen: Hij heeft een onreine geest.
+
+Er is geen twijfel aan dat  de lastering van Jezus een lastering van de Heilige  Geest  kan bevatten.  De  lastering  tegen  Zijn  persoon  gericht  geeft  toch  Jezus  aanleiding  tot  de waarschuwing voor de lastering van de Geest. Echter, is het mogelijk een woord te zeggen tegen de Mensenzoon en vergeving te ontvangen, dus de Zoon des mensen te lasteren, zonder dat de Geest gelasterd wordt, ook hierin zien wij de grootste zachtmoedigheid. De Heere denkt: de menselijke duisternis zou voor menigeen het inwendige wezen kunnen verbergen van Hem die zij smaden.
+
+31. Zo kwamen dan gedurende dit gesprek met  de schriftgeleerden Zijn broeders en Zijn moeder, gedreven door bezorgdheid en met het doel in vs. 21 gemeld; en buiten de Hem omringende volksmenigte staande zonden zij tot Hem, door middel van enkelen die zich door de menigteheendrongen en riepen Hem.
+
+32.  En  de  menigte  zat  rondom  Hem  toen  de  boodschap  tot  Hem  kwam;  en  zij  die  ze overbrachten zeiden tot Hem: Zie, Uw moeder en Uw broeders (enige handschriften voegen hierbij en Uw zusters) (Hoofdstuk 6: 3) daarbuiten zoeken U.
+
+33. En Hij antwoordde hen, zeggende: Wie is Mijn moeder of Mijn broeders?
+
+34. En rondom overzien hebbende die om Hem zaten, zei Hij: Zie Mijn moeder en Mijn broeders.
+
+35. a)Want zo wie de wil van God doet, die is Mijn broeder en Mijn zuster en moeder.
+
+a)Joh. 15: 14. 2 Kor. 5: 16, 17.
+
+Voor de discipelen was het geen kleine verzoeking, nu Hij, aan wie zij zich bij hun roeping tot  bestendige dienst  hadden overgegeven nu  hier  door  degenen die Hem  lichamelijk  het naaste  waren  en  schijnbaar  een  rechtvaardig  oordeel over  Hem konden  vellen,  voor  een krankzinnige  werd  gehouden;  bovendien  door  hen  die  ambtshalve  Zijn  leren  en  werken moesten onderzoeken, voor een door de duivel bezetene werd uitgegeven. Zij hadden wel tot twijfel kunnen komen of zij verstandig hadden gehandeld dat zij Zijn zaak zo geheel tot de hunne gemaakt hadden. Het tegenwicht tegen de macht van deze verzoeking is echter de inwendig geestelijke verwantschap in welke zij al met Jezus staan. Waar die aanwezig is daar laat ook heden nog geen gelovige zich door het geschreeuw en geschrijf van de wereld op het dwaalspoor brengen, maar hij bloeit slechts op in de genade en kennis van Christus hoe erger dit geschreeuw begint te razen.
+
+Er is in de hele bijbel geen woord dat ons nietige schepsels liefelijker in de oren kan klinken dan dit. Het denkbeeld, in deze woorden vervat, is treffend en verheft het hart; hoe vaak men dit  beschouwt  of  herhaalt,  altijd  blijven  die  woorden  nieuw  en  behouden  een  frisheid waardoor zij een verkwikkende balsem over onze zielen uitstorten. De broeder van Gods Zoon, de zuster van Jezus Christus te zijn! Tot het huisgezin van de Schepper van het heelal en van de Zaligmaker van de mensen te behoren! O, dit roert het hart, dit veredelt de geest, dit dwingt tot liefde, dit doet ons voelen hoe hoog wij bij God geacht zijn. - Om een broeder van Jezus te zijn is het niet noodzakelijk om een gelijke trap van verstand of heiligheid met Hem bereikt te hebben, het is daartoe genoeg te willen wat Hij wil, te doen wat Hij doet, lief te hebben wat Hij lief heeft; zoals een grootvader en zijn kleinzoon, ondanks hun verschil in leeftijd,  lichaamskrachten en geestvermogens op  elkaar  gelijken,  bloedverwanten zijn,  met een gelijke liefde elkaar beminnen en in gelijke mate gelukkig zijn. U, die gelooft, hebt u bij het ontmoeten van een gelovige niet gevoeld dat gij beiden tot eenzelfde huisgezin behoort. U voelde dat u bloedverwanten voor de eeuwigheid bent. Indien dit al het geval is tussen ons, zwakke zuigelingen van eenzelfde Evangelie, door de weinige denkbeelden, verwachtingen
+
+en liefde die wij als een voedende melk uit dezelfde borst hebben genoten, hoe zou dit dan niet veel meer plaats vinden tussen elk van ons en Jezus, de bron zelf van die denkbeelden, verwachtingen en liefde? Het is Zijn leven dat wij leven; het is Zijn kiem, die zich in ons ontwikkelt en opwast; Zijn levensgeest, die van de wijnstok en de inge?nten tak ??n enige en zelfde boom vormt. Ja, degene die de wil van God doet wordt naar Zijn beeld van gedaante veranderd, wordt een lid van Zijn huisgezin, wordt een broeder, zuster of moeder van Jezus Christus.
+
