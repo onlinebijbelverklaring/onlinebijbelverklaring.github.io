@@ -1,4 +1,4 @@
-OVER ECHTSCHEIDING, KINDEREN, RIJKEN VAN DE WERELD, LIJDEN VAN CHRISTUS, EERGIERIGHEID VAN DE DISCIPELEN EN DE BLINDE BARTIME?S
+OVER ECHTSCHEIDING, KINDEREN, RIJKEN VAN DE WERELD, LIJDEN VAN CHRISTUS, EERGIERIGHEID VAN DE DISCIPELEN EN DE BLINDE BARTIMEÜS
 
 ## I. Vers 1-12
 Onze Evangelist stelt ons nu de tijd voor van het heengaan van de Heere uit Galilea tot aan Zijn koninklijke intocht in Jeruzalem. Die tijdruimte van een half jaar, die wordt aangevuld tot aan de eerste helft van het oponthoud in Jeruzalem en Judea, gedurende het loofhuttenfeest en dat van de tempelinwijding en in welker tweede helft de reis naar Bethani? tot opwekking van Lazarus en het stille verblijf gedurende enkele weken in Efra?m valt, vat hij eveneens samen tot de voorstelling van een eenvoudige reis door Perea, zoals de eerste Evangelist al voor hem gedaan heeft. Jeruzalem en Judea moeten echter voor het ogenblik nog buiten beschouwing blijven, daarom bepaalt hij zich tot enkele voorvallen uit de tijd van de openbare werkzaamheid in het land aan de andere kant van de Jordaan. Ook hier vinden wij het eerst het gesprek met de farizee?n over de echtscheiding.
