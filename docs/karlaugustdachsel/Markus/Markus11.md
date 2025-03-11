@@ -5,7 +5,7 @@
 
 ***32.  Maar als wij zeggen: Uit de mensen, dan vrezen wij het volk; wij kunnen dus niet uitspreken wat wij anders graag geantwoord zouden hebben; a) want de menigte meende van Johannes dat hij echt een profeet was en zouden het zeker niet hebben verdragen als zo de overpriesters en schriftgeleerden hem Zijn eer hadden ontroofd.***
 
-a)MATTHEUS. 14: 5. Mark. 6: 20.
+a) MATTHEUS. 14: 5. Mark. 6: 20.
 
 ***33. En zij antwoordden Jezus: Wij weten het niet. En Jezus antwoordde hen: Dan zeg Ik u ook niet door welke macht Ik deze dingen doe.***
 
