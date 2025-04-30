@@ -2717,11 +2717,11 @@ nav:
   #      -   1 Petrus 3: karlaugustdachsel/1Petrus/1Petrus3.md
   #      -   1 Petrus 4: karlaugustdachsel/1Petrus/1Petrus4.md
   #      -   1 Petrus 5: karlaugustdachsel/1Petrus/1Petrus5.md
-#      -   2 Petrus:
-  #      -   2 Petrus: karlaugustdachsel/2Petrus/index.md
-  #      -   2 Petrus 1: karlaugustdachsel/2Petrus/2Petrus1.md
-  #      -   2 Petrus 2: karlaugustdachsel/2Petrus/2Petrus2.md
-  #      -   2 Petrus 3: karlaugustdachsel/2Petrus/2Petrus3.md
+      - 2 Petrus:
+        - 2 Petrus: karlaugustdachsel/2Petrus/index.md
+        - 2 Petrus 1: karlaugustdachsel/2Petrus/2Petrus1.md
+        - 2 Petrus 2: karlaugustdachsel/2Petrus/2Petrus2.md
+        - 2 Petrus 3: karlaugustdachsel/2Petrus/2Petrus3.md
       - 1 Johannes:
         - 1 Johannes: karlaugustdachsel/1Johannes/index.md
         - 1 Johannes 1: karlaugustdachsel/1Johannes/1Johannes1.md
