@@ -1,5 +1,4 @@
-
-DE EERSTE ALGEMENE BRIEF VAN DE APOSTEL PETRUS
+## DE EERSTE ALGEMENE BRIEF VAN DE APOSTEL PETRUS
 
 Men heeft Petrus wel genoemd de apostel van de Christelijke hoop. Zijn hele gemoed  is gericht op de dag van de Heere; dat is op te merken van zijn Pinksterprediking af tot aan het slot van zijn tweede brief. Die ene, die hij lief had, eeuwig te zien, dat was zijn altijd jeugdige hoop en tot deze hoop sterkt hij zijn broeders, die Hem niet hadden gezien en nochtans lief hadden,  omdat  zij in Hem geloofden.  Die trek  van het  verlangen,  die al zijn spreken en schrijven doordringt, stemt zo schoon overeen met zijn schone, geduldige overgave aan de wil van de Heere, met wie hij vroeger hier beneden zo graag in een tabernakel van de heerlijkheid had willen wonen. Nu was hij tevreden met een herberg in deze moeilijke wereld vol lijden en hij verlangde ernaar zijn tabernakel af te leggen en snel voor eeuwig bij Christus te wonen, met al zijn broeders, in onuitsprekelijke en heerlijke vreugde.
 

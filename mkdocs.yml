@@ -2710,13 +2710,13 @@ nav:
   #      -   Jakobus 3: karlaugustdachsel/Jakobus/Jakobus3.md
   #      -   Jakobus 4: karlaugustdachsel/Jakobus/Jakobus4.md
   #      -   Jakobus 5: karlaugustdachsel/Jakobus/Jakobus5.md
-#      -   1 Petrus:
-  #      -   1 Petrus: karlaugustdachsel/1Petrus/index.md
-  #      -   1 Petrus 1: karlaugustdachsel/1Petrus/1Petrus1.md
-  #      -   1 Petrus 2: karlaugustdachsel/1Petrus/1Petrus2.md
-  #      -   1 Petrus 3: karlaugustdachsel/1Petrus/1Petrus3.md
-  #      -   1 Petrus 4: karlaugustdachsel/1Petrus/1Petrus4.md
-  #      -   1 Petrus 5: karlaugustdachsel/1Petrus/1Petrus5.md
+      - 1 Petrus:
+        - 1 Petrus: karlaugustdachsel/1Petrus/index.md
+  #      - 1 Petrus 1: karlaugustdachsel/1Petrus/1Petrus1.md
+  #      - 1 Petrus 2: karlaugustdachsel/1Petrus/1Petrus2.md
+  #      - 1 Petrus 3: karlaugustdachsel/1Petrus/1Petrus3.md
+  #      - 1 Petrus 4: karlaugustdachsel/1Petrus/1Petrus4.md
+  #      - 1 Petrus 5: karlaugustdachsel/1Petrus/1Petrus5.md
       - 2 Petrus:
         - 2 Petrus: karlaugustdachsel/2Petrus/index.md
         - 2 Petrus 1: karlaugustdachsel/2Petrus/2Petrus1.md
