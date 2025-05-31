@@ -2666,20 +2666,20 @@ nav:
   #      -   2 Thessalonicenzen 1: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen1.md
   #      -   2 Thessalonicenzen 2: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen2.md
   #      -   2 Thessalonicenzen 3: karlaugustdachsel/2Thessalonicenzen/2Thessalonicenzen3.md
-#      -   1 Timótheüs:
-  #      -   1 Timótheüs: karlaugustdachsel/1Timotheus/index.md
-  #      -   1 Timótheüs 1: karlaugustdachsel/1Timotheus/1Timotheus1.md
-  #      -   1 Timótheüs 2: karlaugustdachsel/1Timotheus/1Timotheus2.md
-  #      -   1 Timótheüs 3: karlaugustdachsel/1Timotheus/1Timotheus3.md
-  #      -   1 Timótheüs 4: karlaugustdachsel/1Timotheus/1Timotheus4.md
-  #      -   1 Timótheüs 5: karlaugustdachsel/1Timotheus/1Timotheus5.md
-  #      -   1 Timótheüs 6: karlaugustdachsel/1Timotheus/1Timotheus6.md
-#      -   2 Timótheüs:
-  #      -   2 Timótheüs: karlaugustdachsel/2Timotheus/index.md
-  #      -   2 Timótheüs 1: karlaugustdachsel/2Timotheus/2Timotheus1.md
-  #      -   2 Timótheüs 2: karlaugustdachsel/2Timotheus/2Timotheus2.md
-  #      -   2 Timótheüs 3: karlaugustdachsel/2Timotheus/2Timotheus3.md
-  #      -   2 Timótheüs 4: karlaugustdachsel/2Timotheus/2Timotheus4.md
+      - 1 Timótheüs:
+        - 1 Timótheüs: karlaugustdachsel/1Timotheus/index.md
+        - 1 Timótheüs 1: karlaugustdachsel/1Timotheus/1Timotheus1.md
+        - 1 Timótheüs 2: karlaugustdachsel/1Timotheus/1Timotheus2.md
+        - 1 Timótheüs 3: karlaugustdachsel/1Timotheus/1Timotheus3.md
+        - 1 Timótheüs 4: karlaugustdachsel/1Timotheus/1Timotheus4.md
+        - 1 Timótheüs 5: karlaugustdachsel/1Timotheus/1Timotheus5.md
+        - 1 Timótheüs 6: karlaugustdachsel/1Timotheus/1Timotheus6.md
+      - 2 Timótheüs:
+        - 2 Timótheüs: karlaugustdachsel/2Timotheus/index.md
+        - 2 Timótheüs 1: karlaugustdachsel/2Timotheus/2Timotheus1.md
+        - 2 Timótheüs 2: karlaugustdachsel/2Timotheus/2Timotheus2.md
+        - 2 Timótheüs 3: karlaugustdachsel/2Timotheus/2Timotheus3.md
+        - 2 Timótheüs 4: karlaugustdachsel/2Timotheus/2Timotheus4.md
       - Titus:
         - Titus: karlaugustdachsel/Titus/index.md
         - Titus 1: karlaugustdachsel/Titus/Titus1.md
