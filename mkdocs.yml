@@ -2680,11 +2680,11 @@ nav:
   #      -   2 Timótheüs 2: karlaugustdachsel/2Timotheus/2Timotheus2.md
   #      -   2 Timótheüs 3: karlaugustdachsel/2Timotheus/2Timotheus3.md
   #      -   2 Timótheüs 4: karlaugustdachsel/2Timotheus/2Timotheus4.md
-#      -   Titus:
-  #      -   Titus: karlaugustdachsel/Titus/index.md
-  #      -   Titus 1: karlaugustdachsel/Titus/Titus1.md
-  #      -   Titus 2: karlaugustdachsel/Titus/Titus2.md
-  #      -   Titus 3: karlaugustdachsel/Titus/Titus3.md
+      - Titus:
+        - Titus: karlaugustdachsel/Titus/index.md
+        - Titus 1: karlaugustdachsel/Titus/Titus1.md
+        - Titus 2: karlaugustdachsel/Titus/Titus2.md
+        - Titus 3: karlaugustdachsel/Titus/Titus3.md
       - Filémon:
         - Filémon: karlaugustdachsel/Filemon/index.md
         - Filémon 1: karlaugustdachsel/Filemon/Filemon1.md
