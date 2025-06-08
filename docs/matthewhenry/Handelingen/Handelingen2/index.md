@@ -67,9 +67,7 @@ I. Wanneer en waar dit geschiedde, hetgeen tot grotere zekerheid er van bijzonde
 
 II. Hoe, en op wat wijze, de Heilige Geest op hen kwam. In het Oude Testament lezen wij dikwijls van Gods neerkomen in een wolk, zoals toen Hij bezit nam, eerst van de tabernakel, en daarna van de tempel, waardoor het duistere van die bedeling wordt te kennen gegeven. En Christus is in een wolk ten hemel gevaren, om aan te duiden, hoezeer wij betreffende de bovenwereld in het duister worden gelaten. Maar de Heilige Geest is niet in een wolk nedergedaald, want Hij was bestemd, om de wolken te verdrijven, die de geest der mensen verduisteren, en om licht in de wereld te brengen. 
 
-1\. Hier wordt een hoorbare oproeping gedaan, om hen op te wekken iets groots te verwachten, vers 
-
-2\. Er wordt gezegd:
+1\. Hier wordt een hoorbare oproeping gedaan, om hen op te wekken iets groots te verwachten, vers 2. Er wordt gezegd:
 
 A. Dat het haastelijk, of plotseling, kwam, niet dat het langzaam, of trapsgewijze ontstond, zoals dit met gewone winden het geval is, maar terstond op het sterkst was. Het kwam eerder, dan zij dachten, en deed zelfs hen opschrikken, die daar tezamen waren om te wachten, en waarschijnlijk zich met Godvruchtige oefeningen bezig hielden.
 
