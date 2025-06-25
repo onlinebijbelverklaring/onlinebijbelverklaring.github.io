@@ -172,7 +172,7 @@ De zakelijke zin is daarom deze: in de grote dag van Christus’ luisterrijke to
 
 a) Matth. 24: 31. 1 Kor. 15: 52. 2 Thess. 1: 7
 
-***17. Daarna wij die levend overgebleven zijn, zullen tezamen met hen opgenomen worden in de wolken, den Heere tegemoet, in de lucht; en alzo zullen wij altijd met den Heere wezen. ***
+***17. Daarna wij die levend overgebleven zijn, zullen tezamen met hen opgenomen worden in de wolken, den Heere tegemoet, in de lucht; en alzo zullen wij altijd met den Heere wezen.***
 
 ***18. Vertroost elkaar dan met deze woorden, die u leren hoe die droefheid zonder grond is, waaraan u zich ten opzichte van uw ontslapenen heeft overgegeven. Wijs ieder, die in gevaar is om tot zo’n droefheid te komen, op hetgeen wij u hier als het woord van de Heere hebben gezegd.***
 
