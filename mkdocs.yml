@@ -2626,14 +2626,14 @@ nav:
   #      -   2 Korinthe 11: karlaugustdachsel/2Korinthe/2Korinthe11.md
   #      -   2 Korinthe 12: karlaugustdachsel/2Korinthe/2Korinthe12.md
   #      -   2 Korinthe 13: karlaugustdachsel/2Korinthe/2Korinthe13.md
-#      -   Galaten:
-  #      -   Galaten: karlaugustdachsel/Galaten/index.md
-  #      -   Galaten 1: karlaugustdachsel/Galaten/Galaten1.md
-  #      -   Galaten 2: karlaugustdachsel/Galaten/Galaten2.md
-  #      -   Galaten 3: karlaugustdachsel/Galaten/Galaten3.md
-  #      -   Galaten 4: karlaugustdachsel/Galaten/Galaten4.md
-  #      -   Galaten 5: karlaugustdachsel/Galaten/Galaten5.md
-  #      -   Galaten 6: karlaugustdachsel/Galaten/Galaten6.md
+      - Galaten:
+        - Galaten: karlaugustdachsel/Galaten/index.md
+        - Galaten 1: karlaugustdachsel/Galaten/Galaten1.md
+        - Galaten 2: karlaugustdachsel/Galaten/Galaten2.md
+        - Galaten 3: karlaugustdachsel/Galaten/Galaten3.md
+        - Galaten 4: karlaugustdachsel/Galaten/Galaten4.md
+        - Galaten 5: karlaugustdachsel/Galaten/Galaten5.md
+        - Galaten 6: karlaugustdachsel/Galaten/Galaten6.md
 #      -   Éfeze:
   #      -   Éfeze: karlaugustdachsel/Efeze/index.md
   #      -   Éfeze 1: karlaugustdachsel/Efeze/Efeze1.md
