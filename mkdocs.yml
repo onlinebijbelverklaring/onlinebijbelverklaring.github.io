@@ -2763,11 +2763,11 @@ nav:
         - Openbaring 21: karlaugustdachsel/Openbaring/Openbaring21.md
         - Openbaring 22: karlaugustdachsel/Openbaring/Openbaring22.md
     - karlaugustdachsel/slotwoord.md
-#  - Maarten Luther: 
-#    - maartenluther/index.md
-#    - Inleiding: maartenluther/inleiding.md
-#    - Voorrede: maartenluther/voorrede.md
-#    - Indeling: maartenluther/indeling.md
+  - Maarten Luther: 
+    - maartenluther/index.md
+    - Inleiding: maartenluther/inleiding.md
+    - Voorredes: maartenluther/voorrede.md
+    - Indeling: maartenluther/indeling.md
 #    - Nieuwe Testament:
 #      - Galaten:
 #        - Galaten: maartenluther/galaten/index.md
