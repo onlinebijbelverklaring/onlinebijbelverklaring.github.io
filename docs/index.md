@@ -44,6 +44,20 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
     [:octicons-arrow-right-24: Bijbelverklaring](karlaugustdachsel/index.md)
 
+-   :flag_de:{ .lg .middle } __Maarten Luther__
+
+    ---
+
+    **10 november 1483 - 18 februari 1546** <BR><BR>
+
+    Maarten Luther werd geboren op 10 november 1483 in Eisleben, in het huidige Duitsland.
+
+    In 1517 publiceerde Luther zijn beroemde 95 stellingen tegen de handel in aflaten, die hij volgens de overlevering op de deur van de slotkerk in Wittenberg spijkerde. Deze actie wordt vaak gezien als het begin van de Reformatie. Zijn kritiek op de kerk leidde tot een breuk met Rome; in 1521 werd hij geëxcommuniceerd door paus Leo X en moest hij zich verantwoorden op de Rijksdag te Worms, waar hij zijn beroemde woorden sprak: "Hier sta ik, ik kan niet anders."
+    
+    Luther heeft geen volledige bijbelverklaring geschreven. Deze verklaring van de brief aan de Galaten is echter een samenvatting van zijn gehele theologie.
+
+    [:octicons-arrow-right-24: Bijbelverklaring](maartenluther/index.md)
+
 
 </div>
 
