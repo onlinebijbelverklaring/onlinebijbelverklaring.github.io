@@ -1,304 +1,46 @@
-# De Inhoud van Paulus' Brief aan de Galaten.
-Eerst moet voor alles gesproken worden van de voorname inhoud, waarover Paulus in
-deze Brief handelt; welke daarin bestaat: Paulus heeft voor, onwrikbaar vast te stellen,
-en te bevestigen die Leer des geloofs, genade en vergeving der zonden, of van de
-Christelijke gerechtigheid, opdat wij een volkomen kennis en onderscheiding zouden
-hebben tussen de gerechtigheid Christi en alle andere gerechtigheden. Want de
-Gerechtigheid is van verschillende soort. De ene is Politiek of burgerlijk, welke de
-keizer, de vorsten der wereld, wijsgeren en rechtsgeleerden behandelen. De andere is
-Ceremonieel, of plechtig, welke de menselijke Overleveringen leren. Bij voorbeeld:
-bevelen van de Paus en dergelijke. Daarover handelen zonder gevaar de huisvaders en
-leermeester, omdat zij aan die Gerechtigheid geen kracht toeschrijven, om voor de
-zonden te voldoen, om God te verzoenen, en genade te verdienen. Maar zij stellen die
-Ceremoniën voor, als alleen maar noodzakelijk tot beoefening der zeden en zekere
-onderhouding. Behalve deze is er nog een andere Gerechtigheid der wet of 'der Tien
-Geboden, welke Mozes leert; daarvan doen ook wij onderrichting na de Leer des
-geloofs.
-Boven en behalve alle deze, is er nog een Geloofs- of Christelijke Gerechtigheid,
-welke met grote oplettendheid moet onderscheiden worden van de andere, hierboven
-gemeld. Want die voornoemde zijn aan deze geheel tegengesteld, zo, omdat zij
-voortkomen uit de wetten der keizers, overleveringen van de Paus, en de Geboden
-Gods, alsook dewijl zij met onze eigen werken gemeenschap hebben, en door ons
-kunnen verricht worden, hetzij uit de zuivere natuurstaat [zoals de Sofisten spreken],
-hetzij door de gave Gods, [want deze Gerechtigheden der eigen werken zijn ook geschenken
-van God, gelijk andere goederen, die wij hebben]. Edoch, deze allervoortreffelijkste
-Gerechtigheid des Geloofs, welke God ons door Christus zonder de
-26
-werken toerekent, is noch burgerlijk, noch plechtig, noch de gerechtigheid van Gods
-wet; heeft ook gans geen plaats in onze eigen werken, maar is geheel onderscheiden,
-dwz.; zij is te enenmale een lijdelijke Gerechtigheid, [zoals die bovengenoemde
-dadelijke of werkzame zijn]. Want hierin werken wij niets, of geven aan God niets
-wederom. Doch wij ontvangen alleenlijk, en laten een ander in ons werkende, nl. God.
-Daarom dunkt het mij goed, die Geloofs of Christelijke Gerechtigheid te noemen een
-Lijdelijke Gerechtigheid, en dat is die Gerechtigheid in een onbegrijpelijke
-verborgenheid opgesloten, welke de wereld niet kent; ja de Christenen zelf verstaan
-die niet volkomen genoeg, en kunnen daar nauwelijks gebruik van maken in de
-aanvechtingen. Dus moet die lijdelijke Gerechtigheid ingescherpt worden zonder
-ophouden, en door een gedurige gebruikmaking beoefend. En wie in de aanvechtingen
-of vervaarnissen van zijn gemoed, deze Gerechtigheid niet verstaat of omhelst, kan
-niet staande blijven. Want er is geen andere zo vaste en zekere vertroosting voor de
-gewetens, dan deze lijdelijke Gerechtigheid.
-Maar zo groot is de zwakheid van een mens, en zijn ellende, dat wij in de angsten van
-ons geweten, en in gevaar des doods, niets anders in aanmerking nemen dan onze
-eigen werken, onze waardigheid, en de Wet, welke, wanneer zij onze zonde aanwijst,
-zo komt ons terstond te binnen, dat wij niet wel geleefd hebben. Daarop begint dan de
-arme zondaar met een grote wroeging te zuchten, bij zichzelf denkende: ach, hoe
-rampzalig heb ik geleefd!, werd het mij gegeven nog langer te leven, dan wilde ik
-mijn leven verbeteren. Het menselijk begrip kan ook niet anders, aangezien dit kwaad
-zo in ons ingekankerd is, zich van dat spook van werkzame of eigengerechtigheid
-ontdoen, en zich opbeuren tot het wezenlijk beschouwen en omhelzen van de lijdelijke
-Gerechtigheid, maar blijft zich louter in de dadelijke ophouden. En deze bedenkingen
-vermeerdert en voedt de satan, als zijn voordeel nemende van de menselijke
-zwakheid, waardoor het niet anders kan, of het geweten moet nog meer ontroerd,
-bevreesd, en verschrikt worden. Want het is onmogelijk, dat het menselijk gemoed uit
-zichzelf vertroosting kan ontvangen, en enkel en alleen op de genade zien, om het
-gevoel en de schrik der zonde; of dat hij edelmoedig van zich zou werpen de
-verdediging van zijn eigen werken. Want dit is iets hetgeen ver boven en buiten de
-krachten, gedachten, en vatbaarheid van mensen gelegen is, en dus ook buiten de wet
-Gods. Welke wet wel de Hoofdzaak is van al wat in de wereld is, evenwel is het daar
-zover vandaan, dat de wet een beroerd gemoed weer tot rust zou doen keren, dat zij
-daarentegen meer bedroeft en tot wanhoop brengt. Want door de wet wordt de zonde
-bij uitnemendheid zonde. Rom. 7.
-Dus heeft een benauwd en beroerd gemoed, geen redding tegen de wanhoop en
-eeuwige dood te wachten, tenzij hij aanvaarde en zich toeëigene de belofte van
-genade, in Christus aangeboden, dat is deze Geloofs-lijdelijke of Christelijke
-Gerechtigheid, welke aangegrepen zijnde, zo kan het gemoed daarop zich tot rust
-begeven en met standvastig vertrouwen zeggen: Ik zoek geen werkelijke of dadelijke
-Gerechtigheid; ik behoorde die wel te hebben, en te verrichten, en het zij al eens zo,
-dat ik die had en deed, zo kan ik daar toch geenszins op vertrouwen, noch durf
-daarmee niet ter verantwoording komen in het gerichte Gods. Derhalve zo werp ik mij
-buiten alle dadelijke Gerechtigheid, zowel de mijne, als die van Gods wet, en ik
-omhels alleen eenvoudig die lijdelijke, welke is de Gerechtigheid van genade,
-barmhartigheid en vergeving van zonden, in één woord: die van Christus en de Heilige
-Geest; welke wij niet verrichten, maar ons toegepast wordt; wij niet hebben, maar
-ontvangen, daar God de Vader door Jezus Christus ons dat geschenk geeft. Gelijk de
-aarde zelf geen regen voortbrengt, noch door haar arbeid, aankweking of krachten die
-27
-verkrijgen kan, maar alleen door een hemels geschenk van Boven ontvangt, evenzo
-wordt, buiten onze arbeid of verdiensten, die hemelse Gerechtigheid ons van God
-geschonken. Zoveel dan de dorre en uitgedroogde aarde van zichzelf kan uitwerken,
-om voor zich te verkrijgen een gewenste overvloed van regen, evenzoveel kunnen wij
-mensen, ook door onze arbeid en krachten uitwerken, om voor ons te verkrijgen die
-Goddelijke, Hemelse en Eeuwige Gerechtigheid, tenzij wij die Gerechtigheid
-ontvangen door een genadige toerekening, hetwelk is een onuitsprekelijk geschenk
-van God. Het is dus de grootste kunst en wijsheid der Christenen, onkundig van de
-wet te zijn, zijn eigen werken niet te kennen, en de ganse dadelijke Gerechtigheid,
-bijzonder dan, wanneer het gemoed te worstelen heeft met het oordeel Gods. Zoals het
-voor degenen, die van Gods volk niet zijn, de grootste wijsheid is, de wet te kennen,
-die in te zien en voor te staan, naast de eigen werken en dadelijke Gerechtigheid.
-Het is toch een wonderlijke zaak, en vreemd voor de wereld, dat men onder de
-Christenen voorstelt: dat zij moesten leren onkundig van de wet te zijn, en dat zij zo
-voor God moeten leven, alsof er in het geheel geen wet was. Nochtans, als gij van de
-wet onkundig zijt, en in uw hart voor vast houdt, dat er geen wet en toorn Gods is,
-maar louter genade om Christus' wil, zo kunt gij niet behouden worden. Want door de
-wet is de kennis der zonde, Rom. 3 : 20; 7.
-Daarentegen in de wereld moet zodanig op de wet en eigen werken aangedrongen
-worden, alsof er helemaal geen belofte of genade was; en dat wegens de
-hardnekkigen, hoogmoedigen en verharden, aan wie men niet anders voor ogen moet
-stellen dan de wet, opdat zij verschrikt en verootmoedigd worden. Want de wet is
-gegeven, opdat dezulken zouden verschrikt en gedood worden, en de Oude mens
-daardoor getemd. Beide zaken van genade en toorn moeten recht onderscheiden
-worden, volgens de Apostel in 2 Tim. 2.
-Hier wordt dan vereist een voorzichtige en getrouwe uitdeler van Gods
-verborgenheden, die zodanig de wet modereert (weerhoudt), dat zij binnen haar palen
-blijft. Wie leert, dat de mensen, door de wet, voor God gerechtvaardigd worden, gaat
-de palen van de wet tebuiten, en mengt die twee afzonderlijke gerechtigheden, de
-lijdelijke en dadelijke dooréén, en hij is een kwade redenaar, omdat hij geen rechte
-verdeling maakt. Daarentegen, wie aan de Oude mens de wet en werken, doch aan de
-Nieuwe mens de genade en belofte voorstelt, maakt een goede onderscheiding. Want
-het vlees of de Oude mens moet met de wet en eigen werken samengevoegd worden,
-de geest of de Nieuwe mens moet ook zo met de belofte en genade verenigd worden.
-Dus wanneer ik een mens zie, die genoeg verslagen is, dat hij door de wet onderdrukt
-wordt, door de zonde verschrikt, en naar vertroosting dorst, dan is het de rechte tijd,
-dat ik de wet van voor zijn ogen wegdoe, met zijn eigen werkzame gerechtigheid, en
-hem door het Evangelie voorstel de toegebrachte lijdelijke Gerechtigheid, welke, met
-uitsluiting van Mozes en zijn wet, de belofte van Christus openbaart, die voor de
-vermoeiden, verslagenen en zondaren gekomen is. Daar wordt dan die mens
-opgebeurd, en krijgt hoop. Hij is dan ook niet meer onder de wet, maar onder de
-genade, zoals de Apostel zegt, Rom. 6 : 14, Nu zijt gij niet onder de wet, maar onder
-de genade. Hoe niet onder de wet? Naar de Nieuwe mens, die met de wet niets van
-doen heeft. Want de wet strekt zich niet verder uit, dan tot Christus, zoals Paulus in
-het vervolg zegt, Rom. 10 : 4, De wet is tot op Christus, Welke gekomen zijnde, zo
-houdt Mozes op met zijn wet, besnijdenis, offerande, sabbatti en alle Profeten.
-Dit is onze Godgeleerdheid, door welke wij leren nauwkeurig te onderscheiden, deze
-tweeërlei gerechtigheid, de werkzame en de lijdelijke; opdat er geen vermenging
-28
-gemaakt worde tussen de zedelijke plichten en het geloof, de eigen werken en de
-genade, de burgerlijke plichten en de ware Godsdienst. Want zowel de één als de
-ander zijn wel nodig, doch elk moet bijzonder binnen zijn palen gehouden worden. De
-Gerechtigheid Christi behoort tot de Nieuwe mens, doch de Gerechtigheid der wet tot
-de Oude mens, welke uit vlees en bloed geboren is. Die moet als de ezel last opgelegd
-worden, waardoor hij onderdrukt worde, hij moet ook niet bevoorrecht worden met de
-vrijheid van Geest of van genade, tenzij hij de Nieuwe mens aangedaan heeft, door het
-geloof in Christus [hetgeen in dit leven niet volkomen geschiedt]. Laat hem dan eerst
-het Koninkrijk genieten, en het geschenk van die onuitsprekelijke Genade.
-Dit zeg ik daarom, opdat niemand denke, dat wij de goede werken verwerpen, of
-verbieden, zoals de Papisten ons valselijk beschuldigen, niet verstaande noch hetgeen
-zijzelf zeggen, noch wat onze leer is. Zij weten nergens van, dan alleen van de
-gerechtigheid der wet, en toch willen zij hun oordeel vellen over een leer, die zich
-uitstrekt ver boven en buiten de wet, waarover het onmogelijk is, dat een vleselijk
-mens zou kunnen oordelen. Dus moeten zij zich noodzakelijk daaraan ergeren, omdat
-zij niet hoger kunnen zien dan in de wet; al wat dus boven de wet is, is voor hen de
-grootste aanstoot.
-Doch wij stellen, als het ware, twee werelden, de éne hemels, de andere aards, waarin
-wij plaatsen die twee onderscheiden en van elkaar zo ver afgescheiden
-Gerechtigheden. De Gerechtigheid van de wet is aarde, en behandelt aardse dingen.
-Door haar verrichten wij goede werken. Maar zoals de aarde geen vruchten
-voortbrengt, tenzij ze eerst door de Hemel besproeid en vruchtbaar gemaakt is, [want
-de aarde kan de hemel niet verhoren, vernieuwen of regeren; maar integendeel: de
-Hemel verhoort, vernieuwt, regeert en maakt de aarde vruchtbaar, opdat zij verrichte,
-wat de HEERE geboden heeft], zo ook door de Gerechtigheid der wet, met veel te
-doen, doen wij niets, en door de wet te vervullen, vervullen wij niet, tenzij wij
-tevoren, zonder ons eigen werk en verdienste, door de Gerechtigheid Christi
-gerechtvaardigd zijn; welke in het allerminste enige betrekking heeft tot de
-Gerechtigheid der wet, of tot de aardse en eigene werkzame Gerechtigheid.
-Maar de Christelijke Gerechtigheid des geloofs, is hemels en passief, of van buiten
-aangebracht, welke wij niet in onszelf hebben, maar uit de hemel ontvangen; die wij
-zelf niet werken, maar door het geloof aannemen, door welke Geloofs-Gerechtigheid
-wij boven alle wetten en werken klimmen. Gelijk wij dan, zoals Paulus in 1 Cor. 15 :
-49 "het beeld van de aardse Adam gedragen hebben, zo laat ons ook het beeld van de
-Hemelse dragen"; welke de Nieuwe mens is in de nieuwe wereld, waar geen wet,
-zonde, wroeging van geweten of dood is, maar een volkomen blijdschap,
-Gerechtigheid, genade, vrede, leven, behoud en heerlijkheid. Doen wij dan niets,
-werken wij niets, om die Gerechtigheid te verkrijgen?
-Ik antwoord: Niets. Omdat die Gerechtigheid daarin bestaat, in het geheel niets te
-doen, niets te horen, niets van de wet of eigen werken te weten, maar dat alleen te
-weten en te geloven, dat Christus tot de Vader gegaan is, en nu niet gezien wordt, dat
-Hij in de Hemel zit aan 's Vaders rechterhand, niet als Rechter, "maar dat Hij ons van
-God geworden is: tot wijsheid, Gerechtigheid, heiligmaking en verlossing". 1 Kor. 1 :
-30. In één woord, dat Hij onze Hogepriester is, voor ons instaande of Borg-blijvende,
-en over ons en in ons regerende door de Genade. Daar wordt geen zonde gezien, geen
-schrik, geen wroeging van geweten gevoeld. In die Hemelse Gerechtigheid kan geen
-zonde plaats hebben, "want waar geen wet is, daar is geen overtreding", Rom. 4 : 15.
-Daar dus de zonde hier geen plaats heeft, zo is er zeker geen geweten van zonde, geen
-wroeging, geen droefheid. Hier zegt Johannes in zijn eerste Brief, Hfdst. 3 : 9, "Die uit
-29
-God geboren is, kan niet zondigen". Maar is er nog een schrik of beschuldiging van de
-consciëntie, dan is dat een teken dat deze Gerechtigheid geweken is, dat de Genade uit
-het gezicht verloren is, en dat Christus van verre staande niet gezien wordt. Edoch,
-waar Christus in waarheid gezien wordt, moet noodzakelijk bij zijn een volkomen
-vreugde, die in de Heere volmaakt is, en een vrede des gemoeds, dit volgende vast en
-onwrikbaar stellende: Hoezeer ik een zondaar ben, in de wettische gerechtigheid, toch
-wanhoop ik daarom niet, daarom sterf ik niet, aangezien Christus leeft, Die mijn
-Gerechtigheid en mijn eeuwig en hemels Leven is. In die gerechtigheid en in dit leven
-heb ik geen zonde, noch benauwing der consciëntie, noch dood. Ik ben wel een
-zondaar volgens het tegenwoordige leven, en der wets-gerechtigheid, als een kind
-Adams. Daar beschuldigt mij de wet, heerst de dood, en zal mij eindelijk verslinden.
-Maar buiten en behalve dit leven, heb ik een andere Gerechtigheid, een ander Leven,
-welke Christus is, de Zone Gods, Die geen zonde noch dood kent, maar Gerechtigheid
-en het eeuwige Leven is, om Wiens wil ook dit mijn lichaam gestorven zijnde, en tot
-as gebracht, weder opgewekt zal worden, en verlost van de slavernij der wet, en der
-zonde, en tegelijk met de geest (of ziel) zal verenigd en geheiligd worden.
-Zodat die aardse en hemelse gerechtigheden, beide blijven, zolang wij hier leven. Het
-vlees wordt beschuldigd, wordt benard door aanvechtingen, wordt bedroefd, afgemat
-en versleten door de werkzame gerechtigheid der wet. Doch de geest overwint, wordt
-verblijd en behouden door de lijdelijke (aangebrachte) Gerechtigheid, omdat zij
-bewust is, een Heere te hebben, zittende aan de rechterhand des Vaders, Die de wet,
-zonde en dood vernietigd heeft, en alle rampen onder Zijn voeten vertreden, gevangen
-genomen, en daarover in Hemzelf getriomfeerd heeft, Kol. 2 : 14, 15.
-Dus is Paulus in deze Brief erop uit, opdat hij ons nauwkeurig onderwijze, versterke,
-en een volkomen kundigheid doe hebben van deze zeer uitmuntende en Christelijke
-Gerechtigheid. Want indien wij het Artikel van Rechtvaardigmaking kwijt zijn, of
-misvatten, zo is tegelijk verloren de ganse Christelijke Leer. En zoveel mensen als er
-ook in de wereld zijn, die haar niet verstaan, zijn of Joden of Turken of Papisten, of
-Onrecht- zinnigen. Aangezien tussen die twee gerechtigheden, namelijk de werkzame
-van de wet, en de lijdelijke van Christus, geen derde of middenweg is. Wie dus van de
-Christelijke Gerechtigheid afdwaalt, moet noodzakelijk vervallen tot de werkende, dat
-is: hij moet, daar hij Christus mist, noodwendig vervallen tot het vertrouwen op eigen
-werken.
-Dat zien wij in onze dagen in de dwaalgeesten, die uitvinders en voorstanders der
-sekten, die niets leren, noch recht kunnen leren van die Gerechtigheid der Genade. Zij
-hebben wel uit onze mond en geschriften de woorden aangehaald, en daarom zo
-spreken en schrijven zij ook maar alleen de woorden, doch de zaak zelf kunnen zij niet
-voorstellen, aandringen, ophelderen, of inscherpen; aangezien zij die niet verstaan of
-verstaan kunnen, alzo zij maar blijven hangen aan de Gerechtigheid der wet. Zij zijn
-en blijven dus voorstanders van eigen werken, niet kunnende klimmen boven die
-werkzame gerechtigheid. Dus blijven zij dezelfden, die zij waren onder de Paus,
-behalve dat zij nieuwe namen voeren, en nieuwe werken verrichten; de zaak nochtans
-blijft dezelfde. Bij voorbeeld, de Turken verrichten andere werken dan de Papisten, de
-Papisten doen andere werken dan de Joden, enz.
-Maar hoe uitmuntend ook de één boven de ander die werken verricht, hetzij dat die
-werkzaamheden voortreffelijker en moeilijker zijn, het is en blijft nochtans hetzelfde
-substantiële wezen van de zaak. De omstandigheid is maar anders, dat is: de werken
-veranderen slechts in schijn en naam, inderdaad zijn (en blijven) zij echter eigenwerkzaamheden,
-en die ze verrichten, zijn geen christenen, maar zijn en blijven
-30
-werkers van eigengerechtigheid, hetzij zij genoemd worden Joden, Mohammedanen,
-Papisten, Wederdopers, enz. Daarom herhalen wij zo dikwijls, en dringen zo sterk aan
-op die zaak van het geloof of de Christelijke Gerechtigheid, opdat die door een
-gedurig gebruik in wezen blijve, en nauwkeurig van de eigen-werkelijke gerechtigheid
-der wet onderscheiden worde; anders kunnen wij de ware Theologie niet behouden,
-(want door die waarheid alleen is de Kerk gegrond, en blijft dezelve nog bestaan),
-maar wij worden dadelijk Juristen, plichtplegers, wettische knechten, papisten.
-Christus wordt verduisterd, en niemand kan in de kerk recht onderwezen, of
-opgebouwd worden. Dus willen wij voorgangers en leraars van anderen zijn, zo
-behoren wij de grootste zorg voor die zaken te dragen, en eenvoudig die
-onderscheiding staande te houden, namelijk tussen de Gerechtigheid der wet, en die
-van Christus. Het is gemakkelijk, die onderscheiding te noemen, maar hoogst
-moeilijk, die door bevinding en gebruikmaking eigenaardig en van nabij te kennen.
-Hoezeer men ook alle krachten inspant, om die onderscheiding op te klaren, en te
-beoefenen, omdat in de ure des doods, of andere gemoedsaanvechtingen, die twee
-gerechtigheden nauwer in elkaar komen, dan men wel zou wensen of willen.
-En daarom vermaan ik u, vooral de zodanigen, die zielen zullen behandelen, en voorts
-ieder mens in het bijzonder, dat gij uzelf hierin oefent, door studeren, lezen,
-overdenken en bidden, opdat gij in uw aanvechtingen van uw en anderer gemoed,
-zoudt kunnen bestieren en vertroosten, en van de wet tot de genade, van de eigen,
-werkzame, tot de lijdelijke of toegerekende Gerechtigheid overbrengen, in één woord:
-van Mozes tot Christus. Want de satan is gewoon in bekommering en aanvechting des
-gewetens, ons door de wet te verschrikken en de ziel te bezwaren met de vuilheid
-onzer zonden, en dat wij ons leven zeer slecht hebben doorgebracht, ons dan voor
-ogen houdende de toorn en het oordeel Gods, de hel en eeuwige dood; opdat de vijand
-ons aldus in wanhoop brenge, en dat wij ons dus aan hem zouden onderwerpen, en hij
-ons van Christus aftrekke.
-De duivel is eindelijk ook gewoon, ons plaatsen uit het Evangelie voor te stellen, waar
-Christus van ons de plichten eist, en aan dezulken met uitdrukkelijke woorden de
-verdoemenis bedreigt, die ze niet zullen gedaan hebben. Indien wij dan hier niet weten
-te onderscheiden tussen die twee gerechtigheden, indien wij hier niet in het geloof
-Christus aannemen, zittende ter rechterhand Gods, Die ons leven en onze
-Gerechtigheid is, Die ook voor ons ellendige zondaren bij de Vader intreedt, dan zijn
-wij onder de wet, niet onder de genade, en dan is Christus niet langer een Zaligmaker,
-maar een Wetgever. Daar kan dan geen behoudenis meer overblijven, maar een
-gewisse wanhoop en eeuwige dood zal daarop volgen.
-Laat ons dan met alle nauwkeurigheid de kunst leren, om onderscheid te maken tussen
-deze twee gerechtigheden, opdat wij mogen weten, hoever wij aan de wet moeten
-onderdanig zijn. Want wij hebben hierboven gezegd, dat de wet in een christen niet
-buiten zijn palen mag gaan, doch dat de wet maar heerschappij voert over het vlees,
-hetwelk ook aan de wet moet onderdanig zijn, en daar ook moet onder blijven.
-Wanneer dat geschiedt, dan blijft de wet binnen haar palen. Maar wil zij bezit nemen
-van de consciëntie, en daarover heersen, zie dan toe, dat gij een verstandig oordelaar
-zijt, en recht en gepast onderscheid maakt, en aan de wet niet meer gezag toerekent,
-dan haar toekomt.
-Maar zeg dan: Gij o wet!, wilt uw gebied uitbreiden over het geweten, en daar
-heerschappij voeren, en haar van zonde beschuldigen en de blijdschap der ziele
-wegnemen, die ik door het geloof in Christus heb; en aldus zoekt gij mij in wanhoop
-te brengen, opdat ik het opgeve en verloren ga. Dit doet gij buiten uw post. Blijf
-31
-binnen uw palen, en voer alleen uw gebied over het vlees. Doch de consciëntie moet
-ge mij niet aanraken. Want ik ben gedoopt, en door het Evangelie geroepen, tot de
-gemeenschap der gerechtigheid en des eeuwigen levens, tot het koninkrijk van
-Christus, waarin mijn gemoed volkomen berust, alwaar geen wet is, maar een loutere
-vergeving der zonden, vrede, rust, blijdschap, behoudenis en het eeuwige leven. Aangaande
-die zaken moet ge mij niet in het minste ontrusten. Want ik zal niet toestaan,
-dat gij als een harde tiran, en een ondraaglijke beschuldiger in mijn geweten zoudt
-regeren, alzo die is de zitplaats en inwoning van Christus, de Zone Gods; Die een
-Koning der Gerechtigheid en des Vredes is, en mijn allerdierbaarste Behouder en
-Middelaar, Die zal mijn gemoed vrolijk en bevredigd doen blijven, in de gezonde en
-zuivere leer des Evangelies, en in die bevindelijke kennisse van die lijdelijke of toegebrachte
-Gerechtigheid.
-Wanneer ik deze Gerechtigheid des geloofs binnen in mij heb, zo daal ik uit de hemel,
-als de regen die de aarde bevochtigt, dat is: ik verricht uitwendig het werk, onder een
-ander gebied staande, en ik doe die goede werken, die mij voorkomen en te doen
-staan. Ben ik een bedienaar des Woords, ik verkondig dat, ik vertroost de
-kleinmoedigen, ik bedien de Sacramenten. Ben ik een huisvader, ik bestuur of bezorg
-mijn huis en huisgezin. Ben ik een magistraat, zo volg ik de last op, mij van God
-opgelegd. Ben ik een dienstknecht, zo behartig ik getrouwelijk de zaak van mijn heer.
-In één woord, alwie met verzekering weet, dat Christus zijn Gerechtigheid is, die
-volhardt niet alleen met vreugde, en getrouwheid in zijn beroep, maar hij onderwerpt
-zich ook in liefde aan Overheden, en aan hun wetten, ofschoon zij onrechtvaardig
-mochten zijn; en, indien het de zaak zo vereist, aan alle lasten en gevaren van dit
-tegenwoordige leven, omdat hij weet zulks Gods wil te zijn, en dat die onderdanigheid
-de HEERE welbehaaglijk is.
-Tot dusver de Inhoud van de Brief, waarover Paulus hier handelt, daartoe aanleiding
-gekregen hebbende door de valse leraars, die de Gerechtigheid des geloofs voor de
-Galaten hadden verduisterd, tegen wie hij zijn gezag en bediening, zending en roeping
-staande en heerlijk maakt.
+## De Inhoud van Paulus' Brief aan de Galaten.
+
+Eerst moet voor alles gesproken worden van de voorname inhoud, waarover Paulus in deze Brief handelt; welke daarin bestaat: Paulus heeft voor, onwrikbaar vast te stellen, en te bevestigen die Leer des geloofs, genade en vergeving der zonden, of van de Christelijke gerechtigheid, opdat wij een volkomen kennis en onderscheiding zouden hebben tussen de gerechtigheid Christi en alle andere gerechtigheden. Want de Gerechtigheid is van verschillende soort. De ene is Politiek of burgerlijk, welke de keizer, de vorsten der wereld, wijsgeren en rechtsgeleerden behandelen. De andere is Ceremonieel, of plechtig, welke de menselijke Overleveringen leren. Bij voorbeeld: bevelen van de Paus en dergelijke. Daarover handelen zonder gevaar de huisvaders en leermeester, omdat zij aan die Gerechtigheid geen kracht toeschrijven, om voor de zonden te voldoen, om God te verzoenen, en genade te verdienen. Maar zij stellen die Ceremoniën voor, als alleen maar noodzakelijk tot beoefening der zeden en zekere onderhouding. Behalve deze is er nog een andere Gerechtigheid der wet of 'der Tien Geboden, welke Mozes leert; daarvan doen ook wij onderrichting na de Leer des geloofs.
+
+Boven en behalve alle deze, is er nog een Geloofs- of Christelijke Gerechtigheid, welke met grote oplettendheid moet onderscheiden worden van de andere, hierboven gemeld. Want die voornoemde zijn aan deze geheel tegengesteld, zo, omdat zij voortkomen uit de wetten der keizers, overleveringen van de Paus, en de Geboden Gods, alsook dewijl zij met onze eigen werken gemeenschap hebben, en door ons kunnen verricht worden, hetzij uit de zuivere natuurstaat [zoals de Sofisten spreken], hetzij door de gave Gods, [want deze Gerechtigheden der eigen werken zijn ook ge-schenken van God, gelijk andere goederen, die wij hebben]. Edoch, deze aller-voortreffelijkste Gerechtigheid des Geloofs, welke God ons door Christus zonder de werken toerekent, is noch burgerlijk, noch plechtig, noch de gerechtigheid van Gods wet; heeft ook gans geen plaats in onze eigen werken, maar is geheel onderscheiden, dwz.; zij is te enenmale een lijdelijke Gerechtigheid, [zoals die bovengenoemde dadelijke of werkzame zijn]. Want hierin werken wij niets, of geven aan God niets wederom. Doch wij ontvangen alleenlijk, en laten een ander in ons werkende, nl. God. Daarom dunkt het mij goed, die Geloofs of Christelijke Gerechtigheid te noemen een Lijdelijke Gerechtigheid, en dat is die Gerechtigheid in een onbegrijpelijke verborgenheid opgesloten, welke de wereld niet kent; ja de Christenen zelf verstaan die niet volkomen genoeg, en kunnen daar nauwelijks gebruik van maken in de aanvechtingen. Dus moet die lijdelijke Gerechtigheid ingescherpt worden zonder ophouden, en door een gedurige gebruikmaking beoefend. En wie in de aanvechtingen of vervaarnissen van zijn gemoed, deze Gerechtigheid niet verstaat of omhelst, kan niet staande blijven. Want er is geen andere zo vaste en zekere vertroosting voor de gewetens, dan deze lijdelijke Gerechtigheid.
+
+Maar zo groot is de zwakheid van een mens, en zijn ellende, dat wij in de angsten van ons geweten, en in gevaar des doods, niets anders in aanmerking nemen dan onze eigen werken, onze waardigheid, en de Wet, welke, wanneer zij onze zonde aanwijst, zo komt ons terstond te binnen, dat wij niet wel geleefd hebben. Daarop begint dan de arme zondaar met een grote wroeging te zuchten, bij zichzelf denkende: ach, hoe rampzalig heb ik geleefd!, werd het mij gegeven nog langer te leven, dan wilde ik mijn leven verbeteren. Het menselijk begrip kan ook niet anders, aangezien dit kwaad zo in ons ingekankerd is, zich van dat spook van werkzame of eigengerechtigheid ontdoen, en zich opbeuren tot het wezenlijk beschouwen en omhelzen van de lijdelijke Gerechtigheid, maar blijft zich louter in de dadelijke ophouden. En deze bedenkingen vermeerdert en voedt de satan, als zijn voordeel nemende van de menselijke zwakheid, waardoor het niet anders kan, of het geweten moet nog meer ontroerd, bevreesd, en verschrikt worden. Want het is onmogelijk, dat het menselijk gemoed uit zichzelf vertroosting kan ontvangen, en enkel en alleen op de genade zien, om het gevoel en de schrik der zonde; of dat hij edelmoedig van zich zou werpen de verdediging van zijn eigen werken. Want dit is iets hetgeen ver boven en buiten de krachten, gedachten, en vatbaarheid van mensen gelegen is, en dus ook buiten de wet Gods. Welke wet wel de Hoofdzaak is van al wat in de wereld is, evenwel is het daar zover vandaan, dat de wet een beroerd gemoed weer tot rust zou doen keren, dat zij daarentegen meer bedroeft en tot wanhoop brengt. Want door de wet wordt de zonde bij uitnemendheid zonde. Rom. 7.
+
+Dus heeft een benauwd en beroerd gemoed, geen redding tegen de wanhoop en eeuwige dood te wachten, tenzij hij aanvaarde en zich toeëigene de belofte van genade, in Christus aangeboden, dat is deze Geloofs-lijdelijke of Christelijke Gerechtigheid, welke aangegrepen zijnde, zo kan het gemoed daarop zich tot rust begeven en met standvastig vertrouwen zeggen: Ik zoek geen werkelijke of dadelijke Gerechtigheid; ik behoorde die wel te hebben, en te verrichten, en het zij al eens zo, dat ik die had en deed, zo kan ik daar toch geenszins op vertrouwen, noch durf daarmee niet ter verantwoording komen in het gerichte Gods. Derhalve zo werp ik mij buiten alle dadelijke Gerechtigheid, zowel de mijne, als die van Gods wet, en ik omhels alleen eenvoudig die lijdelijke, welke is de Gerechtigheid van genade, barmhartigheid en vergeving van zonden, in één woord: die van Christus en de Heilige Geest; welke wij niet verrichten, maar ons toegepast wordt; wij niet hebben, maar ontvangen, daar God de Vader door Jezus Christus ons dat geschenk geeft. Gelijk de aarde zelf geen regen voortbrengt, noch door haar arbeid, aankweking of krachten die verkrijgen kan, maar alleen door een hemels geschenk van Boven ontvangt, evenzo wordt, buiten onze arbeid of verdiensten, die hemelse Gerechtigheid ons van God geschonken. Zoveel dan de dorre en uitgedroogde aarde van zichzelf kan uitwerken, om voor zich te verkrijgen een gewenste overvloed van regen, evenzoveel kunnen wij mensen, ook door onze arbeid en krachten uitwerken, om voor ons te verkrijgen die Goddelijke, Hemelse en Eeuwige Gerechtigheid, tenzij wij die Gerechtigheid ontvangen door een genadige toerekening, hetwelk is een onuitsprekelijk geschenk van God. Het is dus de grootste kunst en wijsheid der Christenen, onkundig van de wet te zijn, zijn eigen werken niet te kennen, en de ganse dadelijke Gerechtigheid, bijzonder dan, wanneer het gemoed te worstelen heeft met het oordeel Gods. Zoals het voor degenen, die van Gods volk niet zijn, de grootste wijsheid is, de wet te kennen, die in te zien en voor te staan, naast de eigen werken en dadelijke Gerechtigheid.
+
+Het is toch een wonderlijke zaak, en vreemd voor de wereld, dat men onder de Christenen voorstelt: dat zij moesten leren onkundig van de wet te zijn, en dat zij zo voor God moeten leven, alsof er in het geheel geen wet was. Nochtans, als gij van de wet onkundig zijt, en in uw hart voor vast houdt, dat er geen wet en toorn Gods is, maar louter genade om Christus' wil, zo kunt gij niet behouden worden. Want door de wet is de kennis der zonde, Rom. 3 : 20; 7.
+
+Daarentegen in de wereld moet zodanig op de wet en eigen werken aangedrongen worden, alsof er helemaal geen belofte of genade was; en dat wegens de hardnekkigen, hoogmoedigen en verharden, aan wie men niet anders voor ogen moet stellen dan de wet, opdat zij verschrikt en verootmoedigd worden. Want de wet is gegeven, opdat dezulken zouden verschrikt en gedood worden, en de Oude mens daardoor getemd. Beide zaken van genade en toorn moeten recht onderscheiden worden, volgens de Apostel in 2 Tim. 2.
+
+Hier wordt dan vereist een voorzichtige en getrouwe uitdeler van Gods verborgenheden, die zodanig de wet modereert (weerhoudt), dat zij binnen haar palen blijft. Wie leert, dat de mensen, door de wet, voor God gerechtvaardigd worden, gaat de palen van de wet tebuiten, en mengt die twee afzonderlijke gerechtigheden, de lijdelijke en dadelijke dooréén, en hij is een kwade redenaar, omdat hij geen rechte verdeling maakt. Daarentegen, wie aan de Oude mens de wet en werken, doch aan de Nieuwe mens de genade en belofte voorstelt, maakt een goede onderscheiding. Want het vlees of de Oude mens moet met de wet en eigen werken samengevoegd worden, de geest of de Nieuwe mens moet ook zo met de belofte en genade verenigd worden. Dus wanneer ik een mens zie, die genoeg verslagen is, dat hij door de wet onderdrukt wordt, door de zonde verschrikt, en naar vertroosting dorst, dan is het de rechte tijd, dat ik de wet van voor zijn ogen wegdoe, met zijn eigen werkzame gerechtigheid, en hem door het Evangelie voorstel de toegebrachte lijdelijke Gerechtigheid, welke, met uitsluiting van Mozes en zijn wet, de belofte van Christus openbaart, die voor de vermoeiden, verslagenen en zondaren gekomen is. Daar wordt dan die mens opgebeurd, en krijgt hoop. Hij is dan ook niet meer onder de wet, maar onder de genade, zoals de Apostel zegt, Rom. 6 : 14, Nu zijt gij niet onder de wet, maar onder de genade. Hoe niet onder de wet? Naar de Nieuwe mens, die met de wet niets van doen heeft. Want de wet strekt zich niet verder uit, dan tot Christus, zoals Paulus in het vervolg zegt, Rom. 10 : 4, De wet is tot op Christus, Welke gekomen zijnde, zo houdt Mozes op met zijn wet, besnijdenis, offerande, sabbatti en alle Profeten.
+
+Dit is onze Godgeleerdheid, door welke wij leren nauwkeurig te onderscheiden, deze tweeërlei gerechtigheid, de werkzame en de lijdelijke; opdat er geen vermenging gemaakt worde tussen de zedelijke plichten en het geloof, de eigen werken en de genade, de burgerlijke plichten en de ware Godsdienst. Want zowel de één als de ander zijn wel nodig, doch elk moet bijzonder binnen zijn palen gehouden worden. De Gerechtigheid Christi behoort tot de Nieuwe mens, doch de Gerechtigheid der wet tot de Oude mens, welke uit vlees en bloed geboren is. Die moet als de ezel last opgelegd worden, waardoor hij onderdrukt worde, hij moet ook niet bevoorrecht worden met de vrijheid van Geest of van genade, tenzij hij de Nieuwe mens aangedaan heeft, door het geloof in Christus [hetgeen in dit leven niet volkomen geschiedt]. Laat hem dan eerst het Koninkrijk genieten, en het geschenk van die onuitsprekelijke Genade. 
+
+Dit zeg ik daarom, opdat niemand denke, dat wij de goede werken verwerpen, of verbieden, zoals de Papisten ons valselijk beschuldigen, niet verstaande noch hetgeen zijzelf zeggen, noch wat onze leer is. Zij weten nergens van, dan alleen van de gerechtigheid der wet, en toch willen zij hun oordeel vellen over een leer, die zich uitstrekt ver boven en buiten de wet, waarover het onmogelijk is, dat een vleselijk mens zou kunnen oordelen. Dus moeten zij zich noodzakelijk daaraan ergeren, omdat zij niet hoger kunnen zien dan in de wet; al wat dus boven de wet is, is voor hen de grootste aanstoot.
+
+Doch wij stellen, als het ware, twee werelden, de éne hemels, de andere aards, waarin wij plaatsen die twee onderscheiden en van elkaar zo ver afgescheiden Gerechtigheden. De Gerechtigheid van de wet is aarde, en behandelt aardse dingen. Door haar verrichten wij goede werken. Maar zoals de aarde geen vruchten voortbrengt, tenzij ze eerst door de Hemel besproeid en vruchtbaar gemaakt is, [want de aarde kan de hemel niet verhoren, vernieuwen of regeren; maar integendeel: de Hemel verhoort, vernieuwt, regeert en maakt de aarde vruchtbaar, opdat zij verrichte, wat de HEERE geboden heeft], zo ook door de Gerechtigheid der wet, met veel te doen, doen wij niets, en door de wet te vervullen, vervullen wij niet, tenzij wij tevoren, zonder ons eigen werk en verdienste, door de Gerechtigheid Christi gerechtvaardigd zijn; welke in het allerminste enige betrekking heeft tot de Gerechtigheid der wet, of tot de aardse en eigene werkzame Gerechtigheid.
+
+Maar de Christelijke Gerechtigheid des geloofs, is hemels en passief, of van buiten aangebracht, welke wij niet in onszelf hebben, maar uit de hemel ontvangen; die wij zelf niet werken, maar door het geloof aannemen, door welke Geloofs-Gerechtigheid wij boven alle wetten en werken klimmen. Gelijk wij dan, zoals Paulus in 1 Cor. 15 : 49 "het beeld van de aardse Adam gedragen hebben, zo laat ons ook het beeld van de Hemelse dragen"; welke de Nieuwe mens is in de nieuwe wereld, waar geen wet, zonde, wroeging van geweten of dood is, maar een volkomen blijdschap, Gerechtigheid, genade, vrede, leven, behoud en heerlijkheid. Doen wij dan niets, werken wij niets, om die Gerechtigheid te verkrijgen? 
+
+Ik antwoord: Niets. Omdat die Gerechtigheid daarin bestaat, in het geheel niets te doen, niets te horen, niets van de wet of eigen werken te weten, maar dat alleen te weten en te geloven, dat Christus tot de Vader gegaan is, en nu niet gezien wordt, dat Hij in de Hemel zit aan 's Vaders rechterhand, niet als Rechter, "maar dat Hij ons van God geworden is: tot wijsheid, Gerechtigheid, heiligmaking en verlossing". 1 Kor. 1 : 30. In één woord, dat Hij onze Hogepriester is, voor ons instaande of Borg-blijvende, en over ons en in ons regerende door de Genade. Daar wordt geen zonde gezien, geen schrik, geen wroeging van geweten gevoeld. In die Hemelse Gerechtigheid kan geen zonde plaats hebben, "want waar geen wet is, daar is geen overtreding", Rom. 4 : 15. Daar dus de zonde hier geen plaats heeft, zo is er zeker geen geweten van zonde, geen wroeging, geen droefheid. Hier zegt Johannes in zijn eerste Brief, Hfdst. 3 : 9, "Die uit God geboren is, kan niet zondigen". Maar is er nog een schrik of beschuldiging van de consciëntie, dan is dat een teken dat deze Gerechtigheid geweken is, dat de Genade uit het gezicht verloren is, en dat Christus van verre staande niet gezien wordt. Edoch, waar Christus in waarheid gezien wordt, moet noodzakelijk bij zijn een volkomen vreugde, die in de Heere volmaakt is, en een vrede des gemoeds, dit volgende vast en onwrikbaar stellende: Hoezeer ik een zondaar ben, in de wettische gerechtigheid, toch wanhoop ik daarom niet, daarom sterf ik niet, aangezien Christus leeft, Die mijn Gerechtigheid en mijn eeuwig en hemels Leven is. In die gerechtigheid en in dit leven heb ik geen zonde, noch benauwing der consciëntie, noch dood. Ik ben wel een zondaar volgens het tegenwoordige leven, en der wets-gerechtigheid, als een kind Adams. Daar beschuldigt mij de wet, heerst de dood, en zal mij eindelijk verslinden. Maar buiten en behalve dit leven, heb ik een andere Gerechtigheid, een ander Leven, welke Christus is, de Zone Gods, Die geen zonde noch dood kent, maar Gerechtigheid en het eeuwige Leven is, om Wiens wil ook dit mijn lichaam gestorven zijnde, en tot as gebracht, weder opgewekt zal worden, en verlost van de slavernij der wet, en der zonde, en tegelijk met de geest (of ziel) zal verenigd en geheiligd worden.
+
+Zodat die aardse en hemelse gerechtigheden, beide blijven, zolang wij hier leven. Het vlees wordt beschuldigd, wordt benard door aanvechtingen, wordt bedroefd, afgemat en versleten door de werkzame gerechtigheid der wet. Doch de geest overwint, wordt verblijd en behouden door de lijdelijke (aangebrachte) Gerechtigheid, omdat zij bewust is, een Heere te hebben, zittende aan de rechterhand des Vaders, Die de wet, zonde en dood vernietigd heeft, en alle rampen onder Zijn voeten vertreden, gevangen genomen, en daarover in Hemzelf getriomfeerd heeft, Kol. 2 : 14, 15.
+
+Dus is Paulus in deze Brief erop uit, opdat hij ons nauwkeurig onderwijze, versterke, en een volkomen kundigheid doe hebben van deze zeer uitmuntende en Christelijke Gerechtigheid. Want indien wij het Artikel van Rechtvaardigmaking kwijt zijn, of misvatten, zo is tegelijk verloren de ganse Christelijke Leer. En zoveel mensen als er ook in de wereld zijn, die haar niet verstaan, zijn of Joden of Turken of Papisten, of Onrecht- zinnigen. Aangezien tussen die twee gerechtigheden, namelijk de werkzame van de wet, en de lijdelijke van Christus, geen derde of middenweg is. Wie dus van de Christelijke Gerechtigheid afdwaalt, moet noodzakelijk vervallen tot de werkende, dat is: hij moet, daar hij Christus mist, noodwendig vervallen tot het vertrouwen op eigen werken.
+
+Dat zien wij in onze dagen in de dwaalgeesten, die uitvinders en voorstanders der sekten, die niets leren, noch recht kunnen leren van die Gerechtigheid der Genade. Zij hebben wel uit onze mond en geschriften de woorden aangehaald, en daarom zo spreken en schrijven zij ook maar alleen de woorden, doch de zaak zelf kunnen zij niet voorstellen, aandringen, ophelderen, of inscherpen; aangezien zij die niet verstaan of verstaan kunnen, alzo zij maar blijven hangen aan de Gerechtigheid der wet. Zij zijn en blijven dus voorstanders van eigen werken, niet kunnende klimmen boven die werkzame gerechtigheid. Dus blijven zij dezelfden, die zij waren onder de Paus, behalve dat zij nieuwe namen voeren, en nieuwe werken verrichten; de zaak nochtans blijft dezelfde. Bij voorbeeld, de Turken verrichten andere werken dan de Papisten, de Papisten doen andere werken dan de Joden, enz. 
+
+Maar hoe uitmuntend ook de één boven de ander die werken verricht, hetzij dat die werkzaamheden voortreffelijker en moeilijker zijn, het is en blijft nochtans hetzelfde substantiële wezen van de zaak. De omstandigheid is maar anders, dat is: de werken veranderen slechts in schijn en naam, inderdaad zijn (en blijven) zij echter eigen-werkzaamheden, en die ze verrichten, zijn geen christenen, maar zijn en blijven werkers van eigengerechtigheid, hetzij zij genoemd worden Joden, Mohammedanen, Papisten, Wederdopers, enz. Daarom herhalen wij zo dikwijls, en dringen zo sterk aan op die zaak van het geloof of de Christelijke Gerechtigheid, opdat die door een gedurig gebruik in wezen blijve, en nauwkeurig van de eigen-werkelijke gerechtigheid der wet onderscheiden worde; anders kunnen wij de ware Theologie niet behouden, (want door die waarheid alleen is de Kerk gegrond, en blijft dezelve nog bestaan), maar wij worden dadelijk Juristen, plichtplegers, wettische knechten, papisten. Christus wordt verduisterd, en niemand kan in de kerk recht onderwezen, of opgebouwd worden. Dus willen wij voorgangers en leraars van anderen zijn, zo behoren wij de grootste zorg voor die zaken te dragen, en eenvoudig die onderscheiding staande te houden, namelijk tussen de Gerechtigheid der wet, en die van Christus. Het is gemakkelijk, die onderscheiding te noemen, maar hoogst moeilijk, die door bevinding en gebruikmaking eigenaardig en van nabij te kennen. Hoezeer men ook alle krachten inspant, om die onderscheiding op te klaren, en te beoefenen, omdat in de ure des doods, of andere gemoedsaanvechtingen, die twee gerechtigheden nauwer in elkaar komen, dan men wel zou wensen of willen.
+
+En daarom vermaan ik u, vooral de zodanigen, die zielen zullen behandelen, en voorts ieder mens in het bijzonder, dat gij uzelf hierin oefent, door studeren, lezen, overdenken en bidden, opdat gij in uw aanvechtingen van uw en anderer gemoed, zoudt kunnen bestieren en vertroosten, en van de wet tot de genade, van de eigen, werkzame, tot de lijdelijke of toegerekende Gerechtigheid overbrengen, in één woord: van Mozes tot Christus. Want de satan is gewoon in bekommering en aanvechting des gewetens, ons door de wet te verschrikken en de ziel te bezwaren met de vuilheid onzer zonden, en dat wij ons leven zeer slecht hebben doorgebracht, ons dan voor ogen houdende de toorn en het oordeel Gods, de hel en eeuwige dood; opdat de vijand ons aldus in wanhoop brenge, en dat wij ons dus aan hem zouden onderwerpen, en hij ons van Christus aftrekke. 
+
+De duivel is eindelijk ook gewoon, ons plaatsen uit het Evangelie voor te stellen, waar Christus van ons de plichten eist, en aan dezulken met uitdrukkelijke woorden de verdoemenis bedreigt, die ze niet zullen gedaan hebben. Indien wij dan hier niet weten te onderscheiden tussen die twee gerechtigheden, indien wij hier niet in het geloof Christus aannemen, zittende ter rechterhand Gods, Die ons leven en onze Gerechtigheid is, Die ook voor ons ellendige zondaren bij de Vader intreedt, dan zijn wij onder de wet, niet onder de genade, en dan is Christus niet langer een Zaligmaker, maar een Wetgever. Daar kan dan geen behoudenis meer overblijven, maar een gewisse wanhoop en eeuwige dood zal daarop volgen.
+
+Laat ons dan met alle nauwkeurigheid de kunst leren, om onderscheid te maken tussen deze twee gerechtigheden, opdat wij mogen weten, hoever wij aan de wet moeten onderdanig zijn. Want wij hebben hierboven gezegd, dat de wet in een christen niet buiten zijn palen mag gaan, doch dat de wet maar heerschappij voert over het vlees, hetwelk ook aan de wet moet onderdanig zijn, en daar ook moet onder blijven. Wanneer dat geschiedt, dan blijft de wet binnen haar palen. Maar wil zij bezit nemen van de consciëntie, en daarover heersen, zie dan toe, dat gij een verstandig oordelaar zijt, en recht en gepast onderscheid maakt, en aan de wet niet meer gezag toerekent, dan haar toekomt. 
+
+Maar zeg dan: Gij o wet!, wilt uw gebied uitbreiden over het geweten, en daar heerschappij voeren, en haar van zonde beschuldigen en de blijdschap der ziele wegnemen, die ik door het geloof in Christus heb; en aldus zoekt gij mij in wanhoop te brengen, opdat ik het opgeve en verloren ga. Dit doet gij buiten uw post. Blijf binnen uw palen, en voer alleen uw gebied over het vlees. Doch de consciëntie moet ge mij niet aanraken. Want ik ben gedoopt, en door het Evangelie geroepen, tot de gemeenschap der gerechtigheid en des eeuwigen levens, tot het koninkrijk van Christus, waarin mijn gemoed volkomen berust, alwaar geen wet is, maar een loutere vergeving der zonden, vrede, rust, blijdschap, behoudenis en het eeuwige leven. Aan-gaande die zaken moet ge mij niet in het minste ontrusten. Want ik zal niet toestaan, dat gij als een harde tiran, en een ondraaglijke beschuldiger in mijn geweten zoudt regeren, alzo die is de zitplaats en inwoning van Christus, de Zone Gods; Die een Koning der Gerechtigheid en des Vredes is, en mijn allerdierbaarste Behouder en Middelaar, Die zal mijn gemoed vrolijk en bevredigd doen blijven, in de gezonde en zuivere leer des Evangelies, en in die bevindelijke kennisse van die lijdelijke of toege-brachte Gerechtigheid.
+
+Wanneer ik deze Gerechtigheid des geloofs binnen in mij heb, zo daal ik uit de hemel, als de regen die de aarde bevochtigt, dat is: ik verricht uitwendig het werk, onder een ander gebied staande, en ik doe die goede werken, die mij voorkomen en te doen staan. Ben ik een bedienaar des Woords, ik verkondig dat, ik vertroost de kleinmoedigen, ik bedien de Sacramenten. Ben ik een huisvader, ik bestuur of bezorg mijn huis en huis-gezin. Ben ik een magistraat, zo volg ik de last op, mij van God opgelegd. Ben ik een dienstknecht, zo behartig ik getrouwelijk de zaak van mijn heer. In één woord, alwie met verzekering weet, dat Christus zijn Gerechtigheid is, die volhardt niet alleen met vreugde, en getrouwheid in zijn beroep, maar hij onderwerpt zich ook in liefde aan Overheden, en aan hun wetten, ofschoon zij onrechtvaardig mochten zijn; en, indien het de zaak zo vereist, aan alle lasten en gevaren van dit tegenwoordige leven, omdat hij weet zulks Gods wil te zijn, en dat die onderdanigheid de HEERE welbehaaglijk is.
+
+Tot dusver de Inhoud van de Brief, waarover Paulus hier handelt, daartoe aanleiding gekregen hebbende door de valse leraars, die de Gerechtigheid des geloofs voor de Galaten hadden verduisterd, tegen wie hij zijn gezag en bediening, zending en roeping staande en heerlijk maakt.
+
