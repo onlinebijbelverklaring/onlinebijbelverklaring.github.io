@@ -2768,10 +2768,10 @@ nav:
     - Inleiding: maartenluther/inleiding.md
     - Voorredes: maartenluther/voorrede.md
     - Indeling: maartenluther/indeling.md
-#    - Nieuwe Testament:
-#      - Galaten:
-#        - Galaten: maartenluther/galaten/index.md
-#        - Galaten 1: maartenluther/galaten/galaten1.md
+    - Nieuwe Testament:
+      - Galaten:
+        - Galaten: maartenluther/galaten/index.md
+        - Galaten 1: maartenluther/galaten/galaten1.md
 #        - Galaten 2: maartenluther/galaten/galaten2.md
 #        - Galaten 3: maartenluther/galaten/galaten3.md
 #        - Galaten 4: maartenluther/galaten/galaten4.md
