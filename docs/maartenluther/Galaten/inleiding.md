@@ -1,37 +1,10 @@
 Een merkwaardige getuigenis van de grote **Calvijn**, omtrent de persoon van Doctor
 Martinus Luther.
 
-De Eerw. Fl. Costerus, in zijn Geestelijke Mens, pg. 16, verhaalt van Calvijn, die aan
-Bullinger schreef: *Al was het dat Luther mij een duivel noemde, zo zal ik hem
-nochtans die eer geven, dat ik hem erken voor een groot dienstknecht Gods.*
+De Eerw. Fl. Costerus, in zijn Geestelijke Mens, pg. 16, verhaalt van Calvijn, die aan Bullinger schreef: *Al was het dat Luther mij een duivel noemde, zo zal ik hem nochtans die eer geven, dat ik hem erken voor een groot dienstknecht Gods.*
 
-Een ander merkwaardig getuigenis van 't Boek van Luther over de Galaten.
-De Eerw. Joh. **Bunjan**, in zijn bekerings-verhaal, achter de Komst en Welkomst tot
-Christus, bl. 402, zegt:
+Een ander merkwaardig getuigenis van 't Boek van Luther over de Galaten. De Eerw. Joh. **Bunjan**, in zijn bekerings-verhaal, achter de Komst en Welkomst tot Christus, bl. 402, zegt:
 
-God, in Wiens macht al onze dagen en wegen zijn, liet mij eens op zekere tijd in de
-hand komen, een boek van Martinus Luther, zijnde een Uitlegging van PAULUS'
-BRIEF aan de GALATEN, en was zo oud dat het bijna in stukken viel, als ik het maar
-verleggen wilde. Met dit boek, zo oud als het was, was ik wonderlijk in mijn schik.
-Want ik vond, zodra ik het maar een weinig had ingezien, mijn staat in zijn
-ondervinding zo breed en wijdlopig behandeld, alsof zijn boek uit mijn hart
-geschreven was. Dit deed mij vreemd aan; want ik hield het ervoor, dat deze man niets
-kon weten van de staat der tegenwoordige Christenen, maar noodzakelijk moest
-schrijven en spreken van de ondervinding der voorgaande dagen. Bovendien bracht hij
-in dat boek zeer voornaam naar voren: de oorsprong van deze verzoeking, namelijk
-lastering, wanhoop, en dergelijke; aanwijzende, dat de wet van Mozes, zowel als de
-duivel, dood en hel grotelijks hun hand daarin had; hetgeen mij aanvankelijk nogal
-wat vreemd voorkwam, maar met overdenken, en nauwkeurig achtgeven, bevond ik
-dat het waar was. Maar van bijzonderheden te spreken, is mijn voornemen niet; dit
-dunkt mij, moet ik hier evenwel ronduit zeggen, dat ik dit boek van Doctor Martinus
-Luther over de Galaten, stel (uitgezonderd de Heilige Bijbel) boven alle boeken, die ik
-ooit gezien heb, als het meest bekwaam voor een gewonde consciëntie.
+God, in Wiens macht al onze dagen en wegen zijn, liet mij eens op zekere tijd in de hand komen, een boek van Martinus Luther, zijnde een Uitlegging van PAULUS' BRIEF aan de GALATEN, en was zo oud dat het bijna in stukken viel, als ik het maar verleggen wilde. Met dit boek, zo oud als het was, was ik wonderlijk in mijn schik. Want ik vond, zodra ik het maar een weinig had ingezien, mijn staat in zijn ondervinding zo breed en wijdlopig behandeld, alsof zijn boek uit mijn hart geschreven was. Dit deed mij vreemd aan; want ik hield het ervoor, dat deze man niets kon weten van de staat der tegenwoordige Christenen, maar noodzakelijk moest schrijven en spreken van de ondervinding der voorgaande dagen. Bovendien bracht hij in dat boek zeer voornaam naar voren: de oorsprong van deze verzoeking, namelijk lastering, wanhoop, en  dergelijke; aanwijzende, dat de wet van Mozes, zowel als de duivel, dood en hel grotelijks hun hand daarin had; hetgeen mij aanvankelijk nogal wat vreemd voorkwam, maar met overdenken, en nauwkeurig achtgeven, bevond ik dat het waar was. Maar van bijzonderheden te spreken, is mijn voornemen niet; dit dunkt mij, moet ik hier evenwel ronduit zeggen, dat ik dit boek van Doctor Martinus Luther over de Galaten, stel (uitgezonderd de Heilige Bijbel) boven alle boeken, die ik ooit gezien heb, als het meest bekwaam voor een gewonde consciëntie.
 
-Een derde merkwaardig getuigenis omtrent de Leer van Luther, hoe hem de Heere
-verwaardigd heeft, om vele zaken te leren ter zaligheid.
-M. du Bois in zijn Christelijke Annotatie, pag. 198, verhaalt van R. **Greenham**, die de
-onderschrijving der Ceremoniën weigerde; en toen hem tegengevoerd werd, dat
-Luther dacht, dat sommige Ceremoniën in de Kerk verdraaglijk waren, gaf hij dit
-merkwaardige ten antwoord: *ik eer meer de geopenbaarde Wijsheid Gods, in Luther
-zoveel nodige dingen ter zaligheid te leren, dan dat ik wil onderzoeken 's Heeren
-verborgen oordeel van aan hem niet te openbaren dingen van minder gewicht.*
+Een derde merkwaardig getuigenis omtrent de Leer van Luther, hoe hem de Heere verwaardigd heeft, om vele zaken te leren ter zaligheid. M. du Bois in zijn Christelijke Annotatie, pag. 198, verhaalt van R. **Greenham**, die de onderschrijving der Ceremoniën weigerde; en toen hem tegengevoerd werd, dat Luther dacht, dat sommige Ceremoniën in de Kerk verdraaglijk waren, gaf hij dit merkwaardige ten antwoord: *ik eer meer de geopenbaarde Wijsheid Gods, in Luther zoveel nodige dingen ter zaligheid te leren, dan dat ik wil onderzoeken 's Heeren verborgen oordeel van aan hem niet te openbaren dingen van minder gewicht.*
