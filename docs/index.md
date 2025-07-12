@@ -14,7 +14,7 @@ U kunt een Bijbelverklaring op meerdere manieren gebruiken, bijvoorbeeld na iede
 
 ## Bijbelverklaringen
 
-Op deze website vindt u 2 bijbelverklaringen geschreven vanuit een ^^Reformatorisch standpunt^^. 
+Op deze website vindt u 2 volledig bijbelverklaringen vanuit een ^^Reformatorisch standpunt^^. Daarnaast vind u de verklaring van de Galatenbrief van Luther.
 
 De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied een goede leeservaring op zowel computer als smartphone en tablet. Daarnaast zijn gedrukte versies niet goedkoop en mede daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaringen.
 
