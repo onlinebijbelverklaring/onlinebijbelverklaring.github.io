@@ -1,0 +1,5 @@
+
+DE BRIEF VAN DE APOSTEL PAULUS AAN DE FILIPPENSEN
+
+De gehele brief rust op de grond van een innige persoonlijke betrekking en spreekt in al zijn delen de innige liefde van de apostel tot deze gemeente uit, zodat die meer dan andere als een echte uitstorting van het hart voorkomt en meer dan andere in een gemeenzamen toon geschreven is. Als grondtoon, die steeds weer wordt aangeslagen en waarvan de klank door het geheel wordt vernomen, kan genoemd worden het gevoel van vreugde, waarmee het hart van de apostel vervuld is en waartoe hij zo graag zijn geliefde Filippensen zou willen verheffen (Hoofdstuk 2: 17 v.). Niet minder dan vijftien maal lezen wij het woord "blijdschap" en "zich verblijden" in deze brief. Deze moet en kan alle Christenen, die de vreugde missen, alle treurigen, alle bedroefden veranderen in degenen, die zeer blij en zalig zijn in de Heere. Maak daarom veel gebruik van dit boek.
+

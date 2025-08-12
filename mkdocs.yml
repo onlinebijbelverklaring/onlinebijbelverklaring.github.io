@@ -2648,12 +2648,12 @@ nav:
   #      -   Filipenzen 2: karlaugustdachsel/Filipenzen/Filipenzen2.md
   #      -   Filipenzen 3: karlaugustdachsel/Filipenzen/Filipenzen3.md
   #      -   Filipenzen 4: karlaugustdachsel/Filipenzen/Filipenzen4.md
-#      -   Kolossenzen:
-  #      -   Kolossenzen: karlaugustdachsel/Kolossenzen/index.md
-  #      -   Kolossenzen 1: karlaugustdachsel/Kolossenzen/Kolossenzen1.md
-  #      -   Kolossenzen 2: karlaugustdachsel/Kolossenzen/Kolossenzen2.md
-  #      -   Kolossenzen 3: karlaugustdachsel/Kolossenzen/Kolossenzen3.md
-  #      -   Kolossenzen 4: karlaugustdachsel/Kolossenzen/Kolossenzen4.md
+      - Kolossenzen:
+        - Kolossenzen: karlaugustdachsel/Kolossenzen/index.md
+        - Kolossenzen 1: karlaugustdachsel/Kolossenzen/Kolossenzen1.md
+        - Kolossenzen 2: karlaugustdachsel/Kolossenzen/Kolossenzen2.md
+        - Kolossenzen 3: karlaugustdachsel/Kolossenzen/Kolossenzen3.md
+        - Kolossenzen 4: karlaugustdachsel/Kolossenzen/Kolossenzen4.md
       - 1 Thessalonicenzen:
         - 1 Thessalonicenzen: karlaugustdachsel/1Thessalonicenzen/index.md
         - 1 Thessalonicenzen 1: karlaugustdachsel/1Thessalonicenzen/1Thessalonicenzen1.md
