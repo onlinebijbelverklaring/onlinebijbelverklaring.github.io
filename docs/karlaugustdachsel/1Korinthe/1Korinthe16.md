@@ -106,7 +106,7 @@ Dat woord, hoe kan het anders, draagt een ernstig ontrustend karakter. Immers, h
 
 CHRISTUS REMUNERATOR
 
-Van de toren, Luid en schel, Doet het klingelend klokkenspel 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren: "Maranatha, Jezus komt!"
+Van de toren, Luid en schel, Doet het klingelend klokkenspel. 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren: "Maranatha, Jezus komt!"
 
 Daar ruist bij nachten en bij dagen Een duizendstemmig geestenkoor, Een smachtend fluisteren en vragen de moederschoot der aarde door. Het ritselt in de groene bladeren, Het murmelt in de ontroerde baren, Het zwerft in het koeltjen op en neer. En alle heuvelen en dalen, De donders en de nachtegalen, Al het schepsel zucht: "Hoe lang nog, Heer?"
 
@@ -120,13 +120,13 @@ Zo waak, mijn ziel! En waakt, u bozen, Die onbezorgd in zwijmel zeegt! U zult ve
 
 Waai op, u sluier van Gods heemlen! Ziet, alle dingen zijn gereed: Tien duizenden, reisvaardig, weemlen In het nieuw ontvangen gloriekleed! Reeds hoor ik de optochtsliedren menglen: Reeds houdt de machtigste uit de Aartsenglen Nabij de Koning van het heelal De richtbazuin omhoog geheven, Die op één wenk het teken geven En 's werelds loop voleinden zal!
 
-Van de toren Luid en schel, Doet het klinglend klokkenspel 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren. "Mara-natha", Jezus komt!
+Van de toren Luid en schel, Doet het klinglend klokkenspel. 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren. "Maranatha", Jezus komt!
 
 't Zal geschieden! 't Is voorzeid! Aarde en hemel zullen vlieden Voor des Konings heerlijkheid! Wat ontwaken Op dien dag, Als van het aardrijks diepten kraken. Op de laatsten klepelslag! Als met losgereten slinger 't Zonne-uurwerk stil zal staan, Waar de Koning met Zijn vinger Sterren wegwist van heur baan! Als in afgrond en vulkaan Heilge vlammen zich bereiden, Om het ingeroeste slijk Van de wereld af te scheiden, Tot ze een luister zal verspreiden Aan gelouterd goud gelijk! Plotsling staat, ten tweeden male, 's Mensen Zoon Voor de aard ten toon: Valle nu wat ademhale Bevend neer voor Zijn troon! Ziet, de teeknen Zijner wonden! Ja, Hij is dezelfde wel, Die gebonden Voor de zonden, De overwinning van de hel In Zijn sterven heeft verslonden, God met ons, Immanuel! Maar om de eens bebloede slapen Speelt een goddelijke glans, En de doornen zijn herschapen In de paarlen Zijner krans! Heerlijke omkeer - Toen en Thans! Bethlehems zuigling, zwak en teder En die Hemeltroonbekleder! De aardworm in Gethsemane En die Richter op de wolken! Eeuwig Wel, of eeuwig Wee Brengt Hij op Zijn weegschaal mee. Wat benauwdheid bij de volken! Wat rumoer in 's aardrijks kolken! Wat ontroering in de zee!
 
 Waarom splijt ge uw marmren deuren, Stad der doden! dus van een, Dat de slapers daar beneden 't Licht zien scheemren door de scheuren Van den kranken tombesteen? Waarom werpt ge, ontzette golven! Onder huilend angstgeluid Al die bleke beendren uit. In uw woestenij bedolven? Al dat stof, als Alpensneeuw Opgehoopt van eeuw tot eeuw? 't Is gesproken, 't Dagingswoord! Roepende englen dragen het voort: "De eeuwigheid is aangebroken - "Rijst, gestorvenen! komt en hoort! " En zij rijzen En zij komen, Opgevaren uit hun as, Dwazen, wijzen, Bozen, vromen, Al wat leefde en - stervling was! Beelden, die wij lang vergaten, Zie ik door elkaar kruisen: Alle kluizen Zijn verlaten, De eerste groef, de laatste kist! 't Is een leger van geslachten: En geen natie laat zich wachten, En geen zuigling wordt gemist! Maar bij millioenentallen, Spraakloos luistrend, staan zij allen Voor de ontzaggelijken troon - Tot het woord van de splitsing klinke: "Tot Mijn rechte! Tot Mijn slinke! "Kiest uw plaatse! Neemt Uw loon!"
 
-Van de toren, Luid en schel, Doet het klinglend klokkenspel 't Plechtig middernachtsuur horen., 't Is verstomd! Maar de nagalm dreunt in de oren: "Maran-atha, Jezus komt!"
+Van de toren, Luid en schel, Doet het klinglend klokkenspel. 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren: "Maranatha, Jezus komt!"
 
 Sidderend heir, in de schaduw gegroept! U, eens op aarde Vooraan geschaarde! Hoe nu zo traag, nu de hemel u roept?
 
@@ -148,7 +148,7 @@ En waarom zouden zulke geesten Dan ingaan tot de grote rust? Daar zijn de minste
 
 Zij deinzen voor de blik van de Heere, Die als richtzwaard hen doordringt. Zij storten neer naar lager sferen. Op het onbedrieglijkst ziels-instinkt. Zij dwarlen, waar geen heilige ogen Hun pelgrimaadje volgen mogen, Zelfs die van de ware deernis niet! En bij hun sporeloos verdwijnen, Daar heft een wolk van serafijnen Het voorspel aan van het nieuwe lied.
 
-Van de toren, Luid en schel, Doet het klinglend klokkenspel 't Plechtig middernachtsuur horen. het Is verstomd! Maar de nagalm dreunt in de oren "Maran-atha, Jezus komt! "
+Van de toren, Luid en schel, Doet het klinglend klokkenspel 't Plechtig middernachtsuur horen. het Is verstomd! Maar de nagalm dreunt in de oren "Maranatha, Jezus komt! "
 
 Jezus komt! Hij is gekomen! Altijd voller wordt het licht: Heiligende stralen stromen Van Zijn vriendlijk aangezicht. Boven het smeltend harpgeluid Klinkt Zijn stem vertroostende uit, Met een moederlijk erbarmen: "Komt, vermoeiden, in Mijn armen! "
 
@@ -176,4 +176,4 @@ Schuldloze kinderkens! Zalige wichtjens! Hemelse vlinderkens! Cherubsgezichtjens
 
 Neen! heel het aardrijk is herboren Tot een jonge Hemelbruid: Sarons rozen botten uit: Ziet de Paradijsvrucht gloren Tussen het kruid, Waar de Levensboom ontspruit! Duizend koren Jubelschateren. Als een stemme veler wateren: "Hij regeert "Van sfeer tot sferen! " Opgerold is het luchtgordijn, Waar geen starren nodig zijn: 't Zalig aangezicht des Heeren Is een eeuwge lenteschijn! Lam en tijger dartlen zamen. 't Knaapjen streelt de drakenmuil In der basilisken kuil, Waar de duifjens nestlen kwamen. Op de berg van de heiligheid Woont de vrede. En des Konings majesteit Deelt heur gloed aan alles mede. Zoals eens de zonneglans Sneeuw lei op de lelieknoppen. Zilver op de regendroppen, Purper op de morgentrans! Elke zalige bewoner Van het eeuwig koninkrijk Is de anderen gelijk: De Oude Broeder slechts is schoner! En toch zwemen zij naar Hem In die reinheid zonder vlekken, In dien adeldom van de trekken, In die zilverklank van de stem, In die rijkdom aller deugden, Aller gaven, aller vreugden, 't Erfdeel van Jeruzalem! Stad des hemels! trek uw straten, Schiet uw stralen van kristal Overal, Tot geen plek is leeggelaten In het Heelal! En nu - boven en beneden, U die 's Heeren huis bevolkt Die daar aan Zijn voeten wolkt, Als het stof van onze schreden! Duizenden tien duizend keer! Valt ontroerd op het aanschijn neer! Werpt de kronen uwer hoofden Voor den troon des Hooggeloofden! d' Alverzoener, d' Alvergelder, zij alleen en eeuwig de eer!
 
-Van de toren. Luid en schel, Doet het klinglend klokkenspel 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren: "Maranatha, Jezus komt!
+Van de toren. Luid en schel, Doet het klinglend klokkenspel. 't Plechtig middernachtsuur horen. 't Is verstomd! Maar de nagalm dreunt in de oren: "Maranatha, Jezus komt!
