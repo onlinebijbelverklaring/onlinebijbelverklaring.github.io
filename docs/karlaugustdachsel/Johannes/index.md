@@ -1,0 +1,5 @@
+
+HET EVANGELIE VAN JOHANNES
+
+Wat is het toch dat de schriften van de apostel Johannes zo buitengewoon aantrekkelijk maakt, zodat zij zich als wij ze horen of lezen, zo sterk van onze ziel meester maken? Het is waar, er is in deze een toon van eenvoud en liefde, die niet van hier, maar hemels zijn; maar vanwaar die eenvoud, die liefde? Het is niet de eenvoud van het kind, maar van een seraf en de liefde is geen liefde van die soort, zoals de wereld die heeft en geeft, maar liefde, zoals die om de eeuwige troon van de gezegende Zoon van God bloeit. Het is de eenvoud van het bezit, die in de eenvoud van vorm zichtbaar is en de liefde tot die Ene, aan wiens borst de liefhebbend discipel bij het avondmaal lag, is het, die de taal van de liefde voortbracht. Eenvoudige liefde tot de enige Jezus, die waarachtig mens is, maar ook waarachtig God, dat is het wat uit Johannes’ mond spreekt en de geesten overmeestert, de geesten van de mensen, die allen alleen in de wereld komen, om tot de geliefde Heer van Johannes te komen en tot de schoot, waarin Hij gelegen is.
+

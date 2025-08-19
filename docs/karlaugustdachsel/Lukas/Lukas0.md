@@ -1,0 +1,5 @@
+
+HET EVANGELIE VAN LUKAS
+
+Wat Lukas voor de kerk als Evangelist is geworden, vooral ook in zijn geschriften - het derde Evangelie en de Handelingen der Apostelen - dat is hij voor haar geworden door de genade van God in Christus en door de gave van de Heilige Geest. Wat het menselijk middel betreft is hij dat vooral geworden door de omgang met zijn leermeester Paulus en door zijn delen in diens	groot	eigenaardig	geloofsinzicht.	Zijn	geschriften	zijn	geheel	naar	de beschouwingswijze van Paulus vervaardigd. Waarschijnlijk ontstond zijn voorstelling van de Evangelische geschiedenis onder diens ogen, zoals eveneens de Evangelist Markus zijn Evangelie onder de ogen van Petrus heeft vervaardigd. En heeft de Apostel ook niet juist het Evangelie van Lukas zelf bedoeld, toen hij zich op zijn Evangelie beriep (Rom. 2: 16. 2 Tim. 2: 7), dan bedoelde hij toch zeker een bewerking van de Evangelische boodschap, zoals die ten slotte haar geschiedkundige voorstelling in het Evangelie van Lukas gevonden heeft. Lukas is de Paulinische Evangelist van de kerk.
+
