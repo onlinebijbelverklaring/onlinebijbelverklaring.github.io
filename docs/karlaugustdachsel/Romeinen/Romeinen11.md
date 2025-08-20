@@ -230,6 +230,16 @@ Drievuldigheid gelegerd, maar het besluit van de apostolische beschouwing met lo
 
 Overigens zijn de onderscheidende artikelen voor de goddelijke werken gewoon: uit, door en in (1 Kor. 8: 6. Efeze. 4: 6). Afgezien van dergelijke bij elkaar plaatsingen wordt de uitdrukking: "uit God de Vader, door Jezus Christus en in de Heilige Geest" veel gevonden, dus het voorzetsel "uit" bij de Vader, "door" bij de Zoon en "in" bij de Geest. De gedachte aan deze trinitarische onderscheiding ligt dus hier zeer voor de hand, ja, dringt zich zelfs aan ons op. De enige schijnbaar juiste tegenwerping, dat overigens de verhouding van de zaken tot God als Geest niet door "tot", maar door "in" wordt aangewezen, is toch slechts schijnbaar. Want ten eerste heeft alles wat zijn levensbeginsel in de Geest heeft, ook de Geest ten doel en ons zijn in de Geest is de aanvangende verwezenlijking van onze bestemming voor de Geest, die pas dan haar doel zal hebben bereikt, wanneer de Geest niet slechts als eerstelinggave, maar zonder mate in ons zal zijn en wij dan geheel in Hem. Vervolgens was hier het vooraanstellen van de eindbestemming van alle dingen voor God juist noodzakelijk; want niet zozeer door het "in Hem", als door het "tot Hem", zowel op zichzelf als in zijn samenvoeging met het "door Hem", ligt de goddelijke onafhankelijkheid en absolute bestemmende kracht en de in zichzelf terugkerende, als het ware kringvormige beweging van de goddelijke besluiten en werken, die door geen drang van buiten te brengen zijn uit de baan, door henzelf gekozen, duidelijk uitgedrukt. Eindelijk kan evengoed het "in" ten opzichte van de Geest met "tot" verwisseld worden, als ook ten opzichte van de Vader het "van" met het "tot" (1 Kor. 8: 6. Efeze. 1: 5) en ten opzichte van de Zoon het "door" met het "tot" (Kol. 1: 16) wordt afgewisseld. Alles is van de Vader, door de Zoon, in de Geest, maar van allen op dezelfde manier tot de één God, Vader, Zoon en Geest.
 
+
+
+
+-----------------
+hoofdstuk 13
+
+
+
+
+
 14. Maar doet aan de Heere Jezus Christus 1) (Gal. 3: 27 ), a) en verzorg het vlees, wanneer u het
 zijn nooddruft geeft (Kol. 2: 23. 5: 29 ), niet zo, dat het tot steeds meerdere
 begeerlijkheden 2) leidt; door overdadige en weelderige verzorging zoudt u slechte zondige begeerten bevorderen en, aan vleselijke lusten toegevend, wordt geen verzadiging gevonden, maar slechts temeer de lust opgewekt.
