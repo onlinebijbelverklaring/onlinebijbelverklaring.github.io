@@ -2545,10 +2545,10 @@ nav:
   #      -   Johannes 19: karlaugustdachsel/Johannes/Johannes19.md
   #      -   Johannes 20: karlaugustdachsel/Johannes/Johannes20.md
   #      -   Johannes 21: karlaugustdachsel/Johannes/Johannes21.md
-#      -   Handelingen:
-  #      -   Handelingen: karlaugustdachsel/Handelingen/index.md
-  #      -   Handelingen 1: karlaugustdachsel/Handelingen/Handelingen1.md
-  #      -   Handelingen 2: karlaugustdachsel/Handelingen/Handelingen2.md
+      - Handelingen:
+        - Handelingen: karlaugustdachsel/Handelingen/index.md
+        - Handelingen 1: karlaugustdachsel/Handelingen/Handelingen1.md
+        -   Handelingen 2: karlaugustdachsel/Handelingen/Handelingen2.md
   #      -   Handelingen 3: karlaugustdachsel/Handelingen/Handelingen3.md
   #      -   Handelingen 4: karlaugustdachsel/Handelingen/Handelingen4.md
   #      -   Handelingen 5: karlaugustdachsel/Handelingen/Handelingen5.md
