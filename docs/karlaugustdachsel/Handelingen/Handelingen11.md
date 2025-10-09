@@ -14,7 +14,7 @@ Men zou kunnen menen dat de aanklagers van Petrus zich niet zozeer aan zijn cont
 
 ***4. Maar Petrus, die aan de ene zijde zijn goddelijk recht voelde en aan de andere bedacht wat hij zelf in hoofdst. 10: 14 aan de Heere op diens eishad geantwoord, bleef kalm en had geduld met zijn zwakke broeders. Hij begon en verhaalde het hun vervolgens hoe hij ertoe gekomen was om zo te handelen, zeggende:***
 
-***5. ***
+***5. Ik was in de stad Joppe, biddende; en zag in een vertrekking van zinnen een gezicht, namelijk een zeker vat, gelijk een groot linnen laken, nederdalende, bij de vier hoeken nedergelaten uit den hemel, en het kwam tot bij mij;***
 
 Het is een opmerkelijk bewijs voor de werkelijk bestaande broederschap en gelijkheid van de christenen onder elkaar dat deze christenen te Jeruzalem, trots op hun besnijdenis, de eerste onder de apostelen over zijn gedrag ter verantwoording durven roepen. Dat nu een zodanige vrijmoedigheid vooral in het gehele gedrag van de apostelen zijn grond heeft, blijkt uit het feit dat Petrus geen woord zegt om zich over een oneerbiedig te buiten gaan van de grenzen tussen de gewone christenen en de apostelen te beklagen, maar de aanklacht aanneemt als een welkome aanleiding om zich over de gehele gebeurtenis zowel als ook over zijn gedrag uit te spreken.
 
