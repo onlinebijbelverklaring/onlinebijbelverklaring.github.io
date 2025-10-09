@@ -6,7 +6,7 @@ hide:
 icon: material/home
 ---
 
-# Welkom op Onlinebijbelverklaring.nl
+# Welkom op Onlinebijbelverklaring.nl 
 
 Bijbelverklaringen helpen u om bijbelteksten meer toegankelijk en begrijpelijker te maken. Deze verklaringen geven u meer context over bepaalde vertellingen uit de Bijbel. Bijbelverklaringen zijn niet alleen gemaakt voor dominees, maar voor iedereen.
 
