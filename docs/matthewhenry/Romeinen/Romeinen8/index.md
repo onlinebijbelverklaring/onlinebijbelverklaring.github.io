@@ -305,7 +305,7 @@ c. Het is alleen door Christus, die ons liefgehad heeft. De verdienste van Zijn 
 
 2\. Een rechtstreekse en besliste gevolgtrekking uit het geheel. Want ik ben verzekerd, vers 38. Hiermede wordt te kennen gegeven een volkomen, sterke en gewillige overtuiging, geboren uit de ondervinding van de kracht en zoetheid van de Goddelijke liefde. En thans somt hij al de dingen op, die verondersteld kunnen worden misschien scheiding te zullen maken tussen Christus en de gelovigen, en besluit dat geen hunner daartoe bij machte is. 
 
-A. Noch dood, noch leven; zomin de verschrikkingen des doods aan de een zijde als de gemakken en genietingen des levens aan de anderen kant; zomin de vreze des doods als de hoop op het leven. 
+A. Noch dood, noch leven; zomin de verschrikkingen des doods aan de ene zijde als de gemakken en genietingen des levens aan de anderen kant; zomin de vreze des doods als de hoop op het leven. 
 
 B. Noch engelen, noch overheden, noch machten. Zowel de goede engelen als de kwade worden overheden en machten genoemd; de goede Ef. 1:21; Coll. 1:16; de kwade Ef. 6:12; Coll. 2:15. De goede engelen zijn belangstellende vrienden; de kwade onverzoenlijke vijanden. 
 
