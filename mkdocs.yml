@@ -2522,9 +2522,9 @@ nav:
   #      -   Lukas 22: karlaugustdachsel/Lukas/Lukas22.md
   #      -   Lukas 23: karlaugustdachsel/Lukas/Lukas23.md
   #      -   Lukas 24: karlaugustdachsel/Lukas/Lukas24.md
-#      -   Johannes:
-  #      -   Johannes: karlaugustdachsel/Johannes/index.md
-  #      -   Johannes 1: karlaugustdachsel/Johannes/Johannes1.md
+      -   Johannes:
+        - Johannes: karlaugustdachsel/Johannes/index.md
+        - Johannes 1: karlaugustdachsel/Johannes/Johannes1.md
   #      -   Johannes 2: karlaugustdachsel/Johannes/Johannes2.md
   #      -   Johannes 3: karlaugustdachsel/Johannes/Johannes3.md
   #      -   Johannes 4: karlaugustdachsel/Johannes/Johannes4.md
