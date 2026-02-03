@@ -1,49 +1,49 @@
-1. EN als zij nu Jeruzalem genaakten en gekomen waren te Bethfagé, aan den Olijfberg, toen zond Jezus twee discipelen, zeggende tot hen:
-2. Gaat heen in het vlek dat tegen u over ligt, en gij zult terstond een ezelin gebonden vinden en een veulen met haar; ontbindt ze en brengt ze tot Mij.
-3. En indien iemand u iets zegt, zo zult gij zeggen dat de Heere deze van node heeft, en hij zal ze terstond zenden.
-4. Dit alles nu is geschied, opdat vervuld worde hetgeen gesproken is door den profeet, zeggende:
-5. Zegt de dochter Sions: Zie, uw Koning komt tot u, zachtmoedig en gezeten op een ezelin en een veulen, zijnde een jong ener jukdragende ezelin.
-6. En de discipelen heengegaan zijnde, en gedaan hebbende gelijk Jezus hun bevolen had,
-7. Brachten de ezelin en het veulen, en legden hun klederen op dezelve, en zetten Hem daarop.
-8. En de meeste schare spreidden hun klederen op den weg, en anderen hieuwen takken van de bomen en spreidden ze op den weg.
-9. En de scharen die voorgingen en die volgden, riepen, zeggende: Hosanna den Zone Davids! Gezegend is Hij Die komt in den Naam des Heeren! Hosanna in de hoogste hemelen!
-10. En als Hij te Jeruzalem inkwam, werd de gehele stad beroerd, zeggende: Wie is Deze?
-11. En de scharen zeiden: Deze is Jezus, de Profeet van Nazareth in Galiléa.
-12. En Jezus ging in den tempel Gods en dreef uit allen die verkochten en kochten in den tempel, en keerde om de tafels der wisselaars en de zitstoelen dergenen die de duiven verkochten.
-13. En Hij zeide tot hen: Er is geschreven: Mijn huis zal een huis des gebeds genaamd worden; maar gij hebt dat tot een moordenaarskuil gemaakt.
-14. En er kwamen blinden en kreupelen tot Hem in den tempel, en Hij genas dezelve.
-15. Als nu de overpriesters en schriftgeleerden zagen de wonderheden die Hij deed, en de kinderen, roepende in den tempel en zeggende: Hosanna den Zone Davids! namen zij dat zeer kwalijk,
-16. En zeiden tot Hem: Hoort Gij wel wat dezen zeggen? En Jezus zeide tot hen: Ja; hebt gij nooit gelezen: Uit den mond der jonge kinderen en der zuigelingen hebt Gij U lof toebereid?
-17. En hen verlatende, ging Hij vandaar uit de stad naar Bethanië en overnachtte aldaar.
-18. En des morgens vroeg, als Hij wederkeerde naar de stad, hongerde Hem.
-19. En ziende een vijgenboom aan den weg, ging Hij naar hem toe en vond niets aan denzelven dan alleenlijk bladeren, en zeide tot hem: Uit u worde geen vrucht meer in der eeuwigheid. En de vijgenboom verdorde terstond.
-20. En de discipelen dat ziende, verwonderden zich, zeggende: Hoe is de vijgenboom zo terstond verdord?
-21. Doch Jezus antwoordende zeide tot hen: Voorwaar zeg Ik u: Indien gij geloof hadt en niet twijfeldet, gij zoudt niet alleenlijk doen hetgeen den vijgenboom is geschied, maar indien gij ook tot dezen berg zeidet: Word opgeheven en in de zee geworpen, het zou geschieden.
-22. En al wat gij zult begeren in het gebed, gelovende, zult gij ontvangen.
-23. En als Hij in den tempel gekomen was, kwamen tot Hem, terwijl Hij leerde, de overpriesters en de ouderlingen des volks, zeggende: Door wat macht doet Gij deze dingen? En wie heeft U deze macht gegeven?
-24. En Jezus antwoordende zeide tot hen: Ik zal u ook één woord vragen, hetwelk indien gij Mij zult zeggen, zo zal Ik u ook zeggen door wat macht Ik deze dingen doe.
-25. De doop van Johannes, vanwaar was die? Uit den hemel of uit de mensen? En zij overlegden bij zichzelven en zeiden: Indien wij zeggen: Uit den hemel, zo zal Hij ons zeggen: Waarom hebt gij hem dan niet geloofd?
-26. En indien wij zeggen: Uit de mensen, zo vrezen wij de schare; want zij houden allen Johannes voor een profeet.
-27. En zij, Jezus antwoordende, zeiden: Wij weten het niet. En Hij zeide tot hen: Zo zeg Ik u ook niet, door wat macht Ik dit doe.
-28. Maar wat dunkt u? Een mens had twee zonen, en gaande tot den eerste, zeide: Zoon, ga heen, werk heden in mijn wijngaard.
-29. Doch hij antwoordde en zeide: Ik wil niet; en daarna berouw hebbende, ging hij heen.
-30. En gaande tot den tweede, zeide desgelijks. En deze antwoordde en zeide: Ik ga, heer; en hij ging niet.
-31. Wie van deze twee heeft den wil des vaders gedaan? Zij zeiden tot Hem: De eerste. Jezus zeide tot hen: Voorwaar Ik zeg u, dat de tollenaars en de hoeren u voorgaan in het Koninkrijk Gods.
-32. Want Johannes is tot u gekomen in den weg der gerechtigheid, en gij hebt hem niet geloofd; maar de tollenaars en hoeren hebben hem geloofd; doch gij, zulks ziende, hebt daarna geen berouw gehad, om hem te geloven.
-33. Hoort een andere gelijkenis. Er was een heer des huizes, die een wijngaard plantte, en zette een tuin daarom, en groef een wijnpersbak daarin, en bouwde een toren, en verhuurde dien den landlieden, en reisde buitenslands.
-34. Toen nu de tijd der vruchten genaakte, zond hij zijn dienstknechten tot de landlieden om zijn vruchten te ontvangen.
-35. En de landlieden nemende zijn dienstknechten, hebben den ene geslagen en den andere gedood en den derde gestenigd.
-36. Wederom zond hij andere dienstknechten, meer in getal dan de eerste, en zij deden hun desgelijks.
-37. En ten laatste zond hij tot hen zijn zoon, zeggende: Zij zullen mijn zoon ontzien.
-38. Maar de landlieden den zoon ziende, zeiden onder elkander: Deze is de erfgenaam; komt, laat ons hem doden en zijn erfenis aan ons behouden.
-39. En hem nemende, wierpen zij hem uit, buiten den wijngaard, en doodden hem.
-40. Wanneer dan de heer des wijngaards komen zal, wat zal hij dien landlieden doen?
-41. Zij zeiden tot Hem: Hij zal den kwaden een kwaden dood aandoen, en zal den wijngaard anderen landlieden verhuren, die hem de vruchten op haar tijden zullen geven.
-42. Jezus zeide tot hen: Hebt gij nooit gelezen in de Schriften: De Steen Dien de bouwlieden verworpen hebben, Deze is geworden tot een Hoofd des hoeks; van den Heere is dit geschied, en het is wonderlijk in onze ogen?
-43. Daarom zeg Ik ulieden, dat het Koninkrijk Gods van u zal weggenomen worden, en een volk gegeven dat zijn vruchten voortbrengt.
-44. En wie op dezen Steen valt, die zal verpletterd worden; en op wien Hij valt, dien zal Hij vermorzelen.
-45. En als de overpriesters en farizeeën deze Zijn gelijkenissen hoorden, verstonden zij dat Hij van hen sprak.
-46. En zoekende Hem te vangen, vreesden zij de scharen, dewijl deze Hem hielden voor een profeet.
+1. EN Jezus antwoordende sprak tot hen wederom door gelijkenissen, zeggende:
+2. Het Koninkrijk der hemelen is gelijk een zeker koning, die zijn zoon een bruiloft bereid had;
+3. En zond zijn dienstknechten uit om de genoden ter bruiloft te roepen, en zij wilden niet komen.
+4. Wederom zond hij andere dienstknechten uit, zeggende: Zegt den genoden: Zie, ik heb mijn middagmaal bereid; mijn ossen en de gemeste beesten zijn geslacht, en alle dingen zijn gereed: komt tot de bruiloft.
+5. Maar zij zulks niet achtende, zijn heengegaan, deze tot zijn akker, gene tot zijn koopmanschap.
+6. En de anderen grepen zijn dienstknechten, deden hun smaadheid aan en doodden hen.
+7. Als nu de koning dat hoorde, werd hij toornig, en zijn krijgsheiren zendende, heeft die doodslagers vernield en hun stad in brand gestoken.
+8. Toen zeide hij tot zijn dienstknechten: De bruiloft is wel bereid, doch de genoden waren het niet waardig.
+9. Daarom, gaat op de uitgangen der wegen, en zovelen als gij er zult vinden, roept ze tot de bruiloft.
+10. En dezelve dienstknechten uitgaande op de wegen, vergaderden allen die zij vonden, beide kwaden en goeden; en de bruiloft werd vervuld met aanzittende gasten.
+11. En als de koning ingegaan was om de aanzittende gasten te overzien, zag hij aldaar een mens, niet gekleed zijnde met een bruiloftskleed;
+12. En zeide tot hem: Vriend, hoe zijt gij hier ingekomen, geen bruiloftskleed aanhebbende? En hij verstomde.
+13. Toen zeide de koning tot de dienaars: Bindt zijn handen en voeten, neemt hem weg, en werpt hem uit in de buitenste duisternis; daar zal zijn wening en knersing der tanden.
+14. Want velen zijn geroepen, maar weinigen uitverkoren.
+15. Toen gingen de farizeeën heen en hielden tezamen raad, hoe zij Hem verstrikken zouden in Zijn rede.
+16. En zij zonden uit tot Hem hun discipelen, met de herodianen, zeggende: Meester, wij weten dat Gij waarachtig zijt en den weg Gods in der waarheid leert en naar niemand vraagt; want Gij ziet den persoon der mensen niet aan;
+17. Zeg ons dan, wat dunkt U? Is het geoorloofd den keizer schatting te geven of niet?
+18. Maar Jezus bekennende hun boosheid, zeide:
+19. Gij geveinsden, wat verzoekt gij Mij? Toont Mij den schattingpenning. En zij brachten Hem een penning.
+20. En Hij zeide tot hen: Wiens is dit beeld en het opschrift?
+21. Zij zeiden tot Hem: Des keizers. Toen zeide Hij tot hen: Geeft dan den keizer wat des keizers is, en Gode wat Gods is.
+22. En zij dit horende, verwonderden zich; en Hem verlatende, zijn zij weggegaan.
+23. Te dienzelven dage kwamen tot Hem de sadduceeën, die zeggen dat er geen opstanding is, en vraagden Hem,
+24. Zeggende: Meester, Mozes heeft gezegd: Indien iemand sterft, geen kinderen hebbende, zo zal zijn broeder deszelfs vrouw trouwen en zijn broeder zaad verwekken.
+25. Nu waren er bij ons zeven broeders; en de eerste, een vrouw getrouwd hebbende, stierf; en dewijl hij geen zaad had, zo liet hij zijn vrouw voor zijn broeder.
+26. Desgelijks ook de tweede, en de derde, tot den zevenden toe.
+27. Ten laatste na allen is ook de vrouw gestorven.
+28. In de opstanding dan, wiens vrouw zal zij wezen van die zeven? Want zij hebben haar allen gehad.
+29. Maar Jezus antwoordde en zeide tot hen: Gij dwaalt, niet wetende de Schriften, noch de kracht Gods.
+30. Want in de opstanding nemen zij niet ten huwelijk, noch worden ten huwelijk uitgegeven; maar zij zijn als engelen Gods in den hemel.
+31. En wat aangaat de opstanding der doden, hebt gij niet gelezen hetgeen van God tot ulieden gesproken is, Die daar zegt:
+32. Ik ben de God Abrahams en de God Izaks en de God Jakobs? God is niet een God der doden, maar der levenden.
+33. En de scharen dit horende, werden verslagen over Zijn leer.
+34. En de farizeeën gehoord hebbende dat Hij den sadduceeën den mond gestopt had, zijn tezamen bijeenvergaderd.
+35. En een uit hen, zijnde een wetgeleerde, heeft gevraagd, Hem verzoekende en zeggende:
+36. Meester, welk is het grote gebod in de wet?
+37. En Jezus zeide tot hem: Gij zult liefhebben den Heere uw God met geheel uw hart en met geheel uw ziel en met geheel uw verstand.
+38. Dit is het eerste en het grote gebod.
+39. En het tweede, aan dit gelijk, is: Gij zult uw naaste liefhebben als uzelven.
+40. Aan deze twee geboden hangt de ganse Wet en de Profeten.
+41. Als nu de farizeeën tezamen vergaderd waren, vraagde hun Jezus,
+42. En zeide: Wat dunkt u van den Christus? Wiens Zoon is Hij? Zij zeiden tot Hem: Davids Zoon.
+43. Hij zeide tot hen: Hoe noemt Hem dan David in den Geest zijn Heere? zeggende:
+44. De Heere heeft gezegd tot mijn Heere: Zit aan Mijn rechterhand, totdat Ik Uw vijanden zal gezet hebben tot een voetbank Uwer voeten.
+45. Indien Hem dan David noemt zijn Heere, hoe is Hij zijn Zoon?
+46. En niemand kon Hem een woord antwoorden; en niemand durfde Hem van dien dag aan iets meer vragen.
 
 ## Inleiding
 
