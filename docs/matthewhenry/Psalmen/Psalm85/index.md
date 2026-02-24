@@ -36,7 +36,7 @@ I. Zij moeten met dankbaarheid de grote dingen erkennen, die God voor hen gedaan
 
 II. Hen wordt geleerd om tot God te bidden om genade en goedertierenheid met betrekking tot hun tegenwoordige ellende. Dit wordt afgeleid uit het vorige: "Gij hebt wel gedaan aan onze vaderen, doe wel aan ons, want wij zijn de kinderen van hetzelfde verbond." 
 
-1\. Zij bidden om beker ende genade, "Bekeer ons, o God onzes heils, vers 5, ten einde onze gevangenschap te wenden, wend ons af van ongerechtigheid, wend ons tot U en tot onze plicht, bekeer ons, en wij zullen bekeerd zijn. Allen, die God wil behouden, zal Hij vroeg of laat bekeren. Zonder bekering geen zaligheid.
+1\. Zij bidden om bekerende genade, "Bekeer ons, o God onzes heils, vers 5, ten einde onze gevangenschap te wenden, wend ons af van ongerechtigheid, wend ons tot U en tot onze plicht, bekeer ons, en wij zullen bekeerd zijn. Allen, die God wil behouden, zal Hij vroeg of laat bekeren. Zonder bekering geen zaligheid.
 
 2\. Zij bidden om de wegneming van de tekenen van Gods misnoegen, waaronder zij zich bevonden. "Doe teniet uw toornigheid over ons, zoals Gij hem menigmaal teniet gedaan hebt in de dagen van onze vaderen, toen Gij Uw toorn van hen hebt afgewend." Let op de methode. Eerst: wend ons tot U en doe dan Uw toorn over ons teniet." Als wij met God verzoend zijn, dan en niet eerder kunnen wij de vertroosting verwachten van Zijn verzoend zijn met ons.
 

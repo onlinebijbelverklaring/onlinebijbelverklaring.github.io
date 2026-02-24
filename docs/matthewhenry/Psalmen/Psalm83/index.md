@@ -39,7 +39,7 @@ II. Hij geeft hier een bericht van het grote verbond van de naburige volken tege
 
 a. Wordt met veel geweld tewerk gegaan. uw vijanden maken getier, vers 3. "De heidenen woeden" Psalm 2:1. "De volken waren toornig," Openbaring 11:18. Zij zijn zeer luid in hun geroep tegen het volk, dat zij hopen door hun luide lasteringen terneer te kunnen werpen. Dit wordt aangevoerd als een reden waarom God niet zou zwijgen. "De vijanden spreken groot, spreken veel, Heere, laat hen niet alleen spreken, maar spreek Gij tot hen in Uwen toorn," Psalm 2:5.
 
-b. Met veel hoogmoed en onbeschoftheid. Zij steken het hoofd op, in vast vertrouwen op hun welslagen, zij zijn zo hoog opgeheven, alsof zij de Allerhoogste reeds ver te boven waren gekomen en de almachtige konden overweldigen.
+b. Met veel hoogmoed en onbeschoftheid. Zij steken het hoofd op, in vast vertrouwen op hun welslagen, zij zijn zo hoog opgeheven, alsof zij de Allerhoogste reeds ver te boven waren gekomen en de Almachtige konden overweldigen.
 
 c. Met zeer veel slimheid en overleg, zij maken listiglijk een heimelijke aanslag, vers 4. In hun wijze van handelen ontwaart men de list van de oude slang, en zij wenden alle middelen, hoe laag ook of hoe slecht, aan om hun doel te bereiken. Zij "verdiepen zich om te slachten,’ Hoséa 5:2, alsof zij de oneindige wijsheid konden verschalken.
 

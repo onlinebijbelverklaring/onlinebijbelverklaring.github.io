@@ -68,7 +68,7 @@ Zij pleiten op drie dingen:
 
 A. Op de grote ellende waarin ze verkeerden. "Wij zijn zeer naar beneden gebracht vers 8, en, in de diepte zijnde zullen wij verzinken, zo Gij ons niet te hulp komt." Hoe meer wij naar beneden zijn gebracht, hoe meer hulp wij nodig hebben van de hemel, en hoe meer de macht van God in ons op te heffen verheerlijkt zal worden.
 
-B. Hun steunen en getrouwen op Hem. Gij zijt de God onzes heils, die alleen instaat zijt ons te helpen, het heil is des Heeren, van wie wij hulp verwachten, want in de Heere alleen is het heil Zijns volks." Zij, die God tot de God huns heils stellen, zullen Hem aldus bevinden.
+B. Hun steunen en betrouwen op Hem. Gij zijt de God onzes heils, die alleen instaat zijt ons te helpen, het heil is des Heeren, van wie wij hulp verwachten, want in de Heere alleen is het heil Zijns volks." Zij, die God tot de God huns heils stellen, zullen Hem aldus bevinden.
 
 C. Het belang van Zijn eigen eer in hun toestand. Zij pleiten op generlei verdienste van henzelf, maar: "Help ons, ter oorzake van de eer Uws naams, vergeef ons om Uws naams wil." De beste aanmoedigingen in het gebed zijn die, welke alleen in God gelegen zijn en in de dingen, waardoor Hij zich bekend heeft gemaakt. 
 Er wordt in dit pleiten op twee dingen gewezen.

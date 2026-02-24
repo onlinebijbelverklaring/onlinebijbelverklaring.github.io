@@ -37,7 +37,7 @@ Nu zien wij de psalmist hier:
 
 a. Zeer ernstig in het gebed: "Ik roep voor U, vers 2, ik strek mijn handen uit tot U, vers 10, als iemand, die U wil aangrijpen, de genade zoekt te grijpen met een heilige vrees van haar te zullen missen." 
 
-b. Hij was zeer dikwijls en aanhoudend in het gebed: "ik roep tot U de gehele dag, vers 10, ja bij dag, bij nacht," vers 2, want aldus behoort men altijd te bidden en niet te vertragen, Gods uitverkorenen roepen dag en nacht tot Hem, niet slechts des morgens en des avonds, beginnende ieder e dag en elke nacht met gebed, maar dag en nacht doorbrengende in het gebed. Dit is inderdaad altijd te bidden, en wij zullen welslagen in het gebed als wij volharden in de gebede.
+b. Hij was zeer dikwijls en aanhoudend in het gebed: "ik roep tot U de gehele dag, vers 10, ja bij dag, bij nacht," vers 2, want aldus behoort men altijd te bidden en niet te vertragen, Gods uitverkorenen roepen dag en nacht tot Hem, niet slechts des morgens en des avonds, beginnende iedere dag en elke nacht met gebed, maar dag en nacht doorbrengende in het gebed. Dit is inderdaad altijd te bidden, en wij zullen welslagen in het gebed als wij volharden in de gebede.
 
 c. Hij richtte zijn gebed tot God, en van Hem begeerde en verwachtte hij een antwoord, vers 3. "Laat mijn gebed voor Uw aanschijn komen, om door U aangenomen te worden, niet voor het aanschijn van mensen, om van hen gezien te worden, zoals de gebeden van de Farizeeën." Hij verlangt niet dat de mensen ze zullen horen, maar, Heere, neig Uw oor tot mijn geschrei geef er het antwoord op, dat U behaagt." 
 
