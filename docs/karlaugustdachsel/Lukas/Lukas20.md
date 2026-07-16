@@ -62,7 +62,7 @@ Het gedrag van de boze "landlieden" is een levendige voorstelling van het gedrag
 
 17. Maar Hij zag hen aan en zei: Wat is dan dit, dat a) geschreven staat (Ps. 118: 22): De steen, die de bouwlieden verworpen hebben, deze is tot een hoofd van een hoek geworden?
 
-a) Jes. 8: 14; 28: 16. Hand. 4: 11. Rom. 9: 33. 1 Petrus . 2: 4, 7.
+a) Jes. 8: 14; 28: 16. Hand. 4: 11. Rom. 9: 33. 1 Petrus 2: 4, 7.
 
 18. a)Een ieder, die op die steen valt, zal verpletterd worden b) en op wie hij valt, die zal hij vermorzelen.
 

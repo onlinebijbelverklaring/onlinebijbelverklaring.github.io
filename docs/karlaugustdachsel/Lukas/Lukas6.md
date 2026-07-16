@@ -82,7 +82,7 @@ a) Jes. 65: 13. b) Jes. 61: 3; 66: 10.
 
 a) 1 Petr. 2: 19; 3: 14; 4: 14.
 
-***23. Verblijdt u in die dag dat u dit overkomt en wees vrolijk, want daardoor is u een geluk overkomen. Zie, uw loon is groot in de hemel. U bent afgezonderd van de menigte die aan het verderf is overgegeven (Jes. 65: 12)en die uitwerping zal u niet schaden, al wordt die ook voltooid door een overleveren ten dode (Hoofdstuk . 11: 36-38); want hun vaders deden hetzelfde met de profeten.***
+***23. Verblijdt u in die dag dat u dit overkomt en wees vrolijk, want daardoor is u een geluk overkomen. Zie, uw loon is groot in de hemel. U bent afgezonderd van de menigte die aan het verderf is overgegeven (Jes. 65: 12)en die uitwerping zal u niet schaden, al wordt die ook voltooid door een overleveren ten dode (Hoofdstuk 11: 36-38); want hun vaders deden hetzelfde met de profeten.***
 
 a) Hand. 5: 41; 7: 51.
 
@@ -90,7 +90,7 @@ a) Hand. 5: 41; 7: 51.
 
 a) Amos. 6: 1, 8.
 
-***25. a)Wee u die verzadigd bent! Want u zult hongeren; b) wee u, die nu lacht! Want u zult treuren en wenen (Jak. 4: 9. Openbaring . 6: 15 vv. ).***
+***25. a)Wee u die verzadigd bent! Want u zult hongeren; b) wee u, die nu lacht! Want u zult treuren en wenen (Jak. 4: 9. Openbaring 6: 15 vv. ).***
 
 a) Jes. 65: 13. b) Jak. 5: 1
 
@@ -150,7 +150,7 @@ Nadat Jezus heeft aangewezen wat de liefde is waarboven Zijn discipelen verheven
 
 EVANGELIE OP DE 4e ZONDAG NA TRINITATIS
 
-God heeft ons Zijn barmhartigheid rijkelijk betoond; wij moeten dat met dankbaarheid erkennen en jegens onze broeders ook barmhartigheid en liefde betonen. Wie Gods barmhartigheid echt heeft erkend en aangegrepen, die kan niet onbarmhartig zijn jegens de naaste; de heilige openbaring van de liefde jegens de naaste is de zekere getuigenis van eigen roeping, de ware lof en dank voor Gods barmhartigheid. Daardoor zoeken wij tevens het meest het heil van de ziel van de naaste en roepen zo door daden hen, die het woord niet aannemen (1 Petrus . 3: 1 vv. ) en dus hun eigen roeping niet volgen.
+God heeft ons Zijn barmhartigheid rijkelijk betoond; wij moeten dat met dankbaarheid erkennen en jegens onze broeders ook barmhartigheid en liefde betonen. Wie Gods barmhartigheid echt heeft erkend en aangegrepen, die kan niet onbarmhartig zijn jegens de naaste; de heilige openbaring van de liefde jegens de naaste is de zekere getuigenis van eigen roeping, de ware lof en dank voor Gods barmhartigheid. Daardoor zoeken wij tevens het meest het heil van de ziel van de naaste en roepen zo door daden hen, die het woord niet aannemen (1 Petrus 3: 1 vv. ) en dus hun eigen roeping niet volgen.
 
 Twee zondagen achter elkaar is ons in onze evangeliën Gods rijke barmhartigheid voorgesteld: op de ene hadden wij de gelijkenis van het grote avondmaal, waartoe de Godmens Jezus Christus velen nodigde; op de tweeden hadden wij het zoeken van Christus naar de verdwaalde zielen, in de gelijkenissen van het verloren schaap en van de verloren penning. Heeft Hij u dan tweemaal voorgehouden wat Hij aan u doet, heeft Hij u tweemalen de blik geopend in de zee van Zijn barmhartigheid, welker diepte niemand kan peilen, dan mag Hij u nu ook wel een eis voorstellen. Hij heeft u getoond hoeveel duizend pond onverdiende liefde Hij voor u en aan u heeft betaald; daarom kan Hij u ook van de penning van de barmhartigheid spreken, die u aan uw broeder moet betalen. Wanneer het regent op grote bomen met dicht loof, dan vangen zij de druppels op die liggen op hun bladeren. Daar moeten zij echter niet blijven, daarom komt met de regen en na de regen de wind, ruist door de bladeren en schudt die, zodat de druppels neervallen, zodat het arme kruid en het gras, dat in de schaduw staat, ook hun deel krijgen. Zo wil dan de Heere, onze God, door dit Evangelie ons als door een goede wind schudden, zodat wij de druppels van Zijn gerechtigheid, die op ons zijn gevallen, niet alleen bewaren, maar ze laten overvloeien op onze broeders, die naast ons staan.
 
