@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Voorrede
+
 ## Voorrede van Doctor Martinus Luther, over zijn Uitbreiding van Paulus' Brief aan de Galaten.
 
 Ik kan nauwelijks zelf geloven, dat ik zo uitgebreid in woorden geweest ben, toen ik in het openbaar sprak over deze Brief van Paulus aan de Galaten, zoals ik nu in dit Boekje zie. En toch bemerk ik, dat dit alle mijn eigen gedachten zijn, die in dit geschrift, door de Broeders, met zoveel naarstigheid bijéénverzameld zijn, zodat ik gehouden ben te bekennen, of dat alle deze zaken, of mogelijk nog meer, in dit openbaar Opstel door mij gezegd zijn. Want in mijn hart heeft deze Grondregel alleen de overhand, te weten: Het geloof van Christus, uit Wie, door Wie en in Wie al mijn theologische gedachten en werkzaamheden, bij dag en nacht afstromen en weder invloeien. Echter ondervind ik, dat ik van zo'n hoge, brede en diepe wijsheid, nog niet meer begrepen heb, dan enige zwakke en nog maar kleine beginselen, en als het ware fragmenten of afgebroken gedeelten. Waarom ik mij schaam, dat deze mijn sobere en armoedige aantekeningen over zulk een groot Apostel, en een uitverkoren vat Gods, in het licht gebracht worden. Maar de schaamte zelf wordt gedwongen schaamteloos te worden, en zonder omzien stoutmoedig te zijn, door de oneindige en verschrikkelijke ontheiliging en boosheid, die altoos in Gods gemeente gewoed heeft, en geenszins ophoudt nog heden ten dage te woeden, tegen deze enige en wezenlijke Rotssteen, die wij in het Artikel der Rechtvaardiging noemen, daarin bestaande, hoe wij, niet door ons zelf [ongetwijfeld ook niet door onze daden, als nog minder zijnde dan wijzelf], maar door de hulp van een ander, namelijk door de eniggeboren Zone Gods Jezus Christus, verlost zijn geworden van zonden, dood en duivel en met het eeuwige leven beschonken.

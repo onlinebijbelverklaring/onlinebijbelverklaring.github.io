@@ -2,7 +2,7 @@
 hide:
   - toc
 
-icon: material/bookshelf
+icon: lucide/library
 ---
 
 # Het rechtvaardigend geloof verklaard en bevestigd in een verhandeling over Paulus' brief aan de Galaten
