@@ -1,6 +1,4 @@
----
-icon: lucide/file-text
----
+
 
 # Inleiding
 
