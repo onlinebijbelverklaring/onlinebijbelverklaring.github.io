@@ -1,26 +1,47 @@
-name: Build MkDocs on Github Pages
+name: Build and Deploy Zensical to GitHub Pages
+
 on:
   push:
     branches:
       - main
+
 permissions:
-  contents: write
+  contents: read
+  pages: write
+  id-token: write
+
+concurrency:
+  group: pages
+  cancel-in-progress: true
+
 jobs:
   deploy:
+    environment:
+      name: github-pages
+      url: ${{ steps.deployment.outputs.page_url }}
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v4
+      - name: Checkout repository
+        uses: actions/checkout@v4
         with:
           fetch-depth: 0
-      - uses: actions/setup-python@v5
+
+      - name: Setup Python
+        uses: actions/setup-python@v5
         with:
-          python-version: 3.x
-      - uses: actions/cache@v4
+          python-version: '3.x'
+
+      - name: Install Zensical
+        run: pip install zensical
+
+      - name: Build site with Zensical
+        run: zensical build --clean
+
+      - name: Upload artifact for GitHub Pages
+        uses: actions/upload-pages-artifact@v3
         with:
-          key: ${{ github.ref }}
-          path: .cache
-      - run: pip install mkdocs-material 
-      - run: pip install mkdocs-git-revision-date-localized-plugin
-      - run: pip install mkdocs-git-committers-plugin-2
-      - run: mkdocs gh-deploy --force
-      
+          path: site # Zensical bouwt de site standaard in de 'site/' map net als MkDocs
+
+      - name: Deploy to GitHub Pages
+        id: deployment
+        uses: actions/deploy-pages@v4
