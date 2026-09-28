@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Hooglied
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET HOOGLIED VAN SALOMO
 
 Al de Schrift, dies zijn wij zeker, is van God ingegeven, en is nuttig ter ondersteuning en bevordering van de belangen van Zijn koninkrijk onder de mensen, en zij is er dit niet minder om wijl er sommige dingen in gevonden worden, die zwaar zijn om te verstaan, die de ongeleerde en onvaste mensen verdraaien lot hun eigen verderf. In ons geloof beide van de Goddelijke herkomst en van de geestelijke opvatting van dit boek worden wij bevestigd door het aloude standvastige en overeenstemmende getuigenis zowel van de kerk der Joden, aan wie de woorden Gods zijn toevertrouwd, en die nooit enigerlei twijfel geopperd hebben aan het gezag van dit boek, als van de Christelijke kerk, die hen gelukkig is opgevolgd in het bewaren van dit toevertrouwde pand en in die ere.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 11
+
 1. EN er was een zeker man krank, genaamd Lázarus, van Bethanië, uit het vlek van Maria en haar zuster Martha.
 2. (Maria nu was degene die den Heere gezalfd heeft met zalf, en Zijn voeten afgedroogd heeft met haar haren; welker broeder Lázarus krank was.)
 3. Zijn zusters dan zonden tot Hem, zeggende: Heere, zie, dien Gij liefhebt, is krank.

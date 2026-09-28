@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 10
+
 1. DAARNA zag ik, en zie, boven het uitspansel hetwelk was over het hoofd der cherubs, was als een saffiersteen, als de gedaante van de gelijkenis eens troons; en Hij verscheen op dezelve.
 2. En Hij sprak tot den Man, bekleed met linnen, en Hij zeide: Ga in tot tussen de wielen, tot onder den cherub, en vul Uw vuisten met vurige kolen van tussen de cherubs en strooi ze over de stad. En Hij ging in voor mijn ogen.
 3. De cherubs nu stonden ter rechterzijde van het huis, als diezelve Man inging; en een wolk vervulde het binnenste voorhof.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 16
+
 1. Korach nu, de zoon van Jizhar, zoon van Kohath, zoon van Levi, nam tot zich zo Dathan als Abiram, zonen van Eliab, en On, de zoon van Peleth, zonen van Ruben. 
 2. En zij stonden op voor het aangezicht van Mozes, mitsgaders tweehonderd en vijftig mannen uit de kinderen Israëls, oversten der vergadering, de geroepenen der samenkomst, mannen van naam. 
 3. En zij vergaderden zich tegen Mozes, en tegen Aäron, en zeiden tot hen: Het is te veel voor u, want deze ganse vergadering, zij allen, zijn heilig, en de HEERE is in het midden van hen; waarom dan verheft gijlieden u over de gemeente des HEEREN? 

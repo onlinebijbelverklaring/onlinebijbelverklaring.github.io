@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 19
+
 1. DE arme in zijn oprechtheid wandelende, is beter dan de verkeerde van lippen, en die een zot is.
 2. Ook is de ziel zonder wetenschap niet goed; en die met de voeten haastig is, zondigt.
 3. De dwaasheid des mensen zal zijn weg verkeren, en zijn hart zal zich tegen den HEERE vergrammen.

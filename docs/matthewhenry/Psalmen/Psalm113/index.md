@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 113
+
 1. HALLELUJAH. Looft, gij knechten des HEEREN, looft den Naam des HEEREN.
 2. De Naam des HEEREN zij geprezen, van nu aan tot in der eeuwigheid.
 3. Van den opgang der zon af tot haar nedergang zij de Naam des HEEREN geloofd.

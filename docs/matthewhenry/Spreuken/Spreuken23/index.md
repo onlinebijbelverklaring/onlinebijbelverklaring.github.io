@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 23
+
 1. ALS gij aangezeten zult zijn om met een heerser te eten, zo zult gij scherpelijk letten op dengene die voor uw aangezicht is.
 2. En zet een mes aan uw keel, indien gij een gulzig mens zijt.
 3. Laat u niet gelusten zijn smakelijke spijzen, want het is een leugenachtig brood.

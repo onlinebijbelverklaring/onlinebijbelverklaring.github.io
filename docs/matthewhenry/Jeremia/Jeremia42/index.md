@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 42
+
 1. TOEN traden toe alle oversten der heiren, Jóhanan, de zoon van Karéah, en Jezánja, de zoon van Hosája, en al het volk, van den kleinste tot den grootste toe,
 2. En zeiden tot den profeet Jeremía: Laat toch onze smeking voor uw aangezicht nedervallen, en bid voor ons tot den HEERE uw God, voor dit ganse overblijfsel; want wij zijn weinigen van velen overgelaten, gelijk als uw ogen ons zien;
 3. Dat ons de HEERE uw God bekendmake den weg dien wij zullen ingaan, en de zaak die wij zullen doen.

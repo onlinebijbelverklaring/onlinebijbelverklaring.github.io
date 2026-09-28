@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 17
+
 1. DIT heeft Jezus gesproken, en Hij hief Zijn ogen op naar den hemel, en zeide: Vader, de ure is gekomen, verheerlijk Uw Zoon, opdat ook Uw Zoon U verheerlijke.
 2. Gelijkerwijs Gij Hem macht gegeven hebt over alle vlees, opdat al wat Gij Hem gegeven hebt, Hij hun het eeuwige leven geve.
 3. En dit is het eeuwige leven, dat zij U kennen, den enigen waarachtigen God, en Jezus Christus, Dien Gij gezonden hebt.

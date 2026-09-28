@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 12
+
 VERMANING TOT GEDULD EN GODZALIGHEID
 
 ## II. Vers 1-29

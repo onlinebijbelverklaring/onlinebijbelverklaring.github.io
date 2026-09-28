@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 1
+
 1. PAULUS, een apostel van JEZUS CHRISTUS, naar het bevel van God onzen Zaligmaker, en van den Heere Jezus Christus, Die onze Hoop is,
 2. Aan Timótheüs, mijn oprechten zoon in het geloof: Genade, barmhartigheid, vrede zij u van God onzen Vader en Christus Jezus onzen Heere.
 3. Gelijk ik u vermaand heb dat gij te Éfeze zoudt blijven, als ik naar Macedónië reisde, zo vermaan ik het u nog, opdat gij sommigen beveelt geen andere leer te leren,

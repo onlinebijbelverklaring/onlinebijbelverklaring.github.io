@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 28
+
 1. GEWISSELIJK, er is voor het zilver een uitgang, en een plaats voor het goud, dat zij smelten.
 2. Het ijzer wordt uit stof genomen, en uit steen wordt koper gegoten.
 3. Het einde dat God gesteld heeft voor de duisternis, en al het uiterste onderzoekt hij; het gesteente der donkerheid en der schaduw des doods.

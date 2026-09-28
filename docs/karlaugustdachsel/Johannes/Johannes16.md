@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 16
+
 VERVOLGING VAN DE APOSTELEN. CHRISTUS’ HEENGAAN TOT DE VADER. HET WERK VAN DE HEILIGE GEEST. GELUKKIG EINDE VAN DE DROEFHEID. VERHORING VAN HET GEBED. VLUCHT VAN DE DISCIPELEN
 
 ***1. Deze dingen, namelijk dat u haat en vervolging van de kant van de wereld zult ondervinden, bij betrekkelijk weinig aannemen van uw woord en getuigen, heb Ik tot u gesproken voordat het gebeurd is, opdat u, als het zal gebeuren, nietgeërgerd wordt, niet van Mij afvalt, of aan Mij wanhoopt (MATTHEUS. 13: 21; 24: 9 v. ).***

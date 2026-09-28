@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 3
+
 1. EN er was een mens uit de farizeeën, wiens naam was Nicodémus, een overste der Joden.
 2. Deze kwam des nachts tot Jezus, en zeide tot Hem: Rabbi, wij weten dat Gij zijt een Leraar van God gekomen; want niemand kan deze tekenen doen die Gij doet, zo God met hem niet is.
 3. Jezus antwoordde en zeide tot hem: Voorwaar, voorwaar zeg Ik u, tenzij dat iemand wederom geboren wordt, hij kan het Koninkrijk Gods niet zien.

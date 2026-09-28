@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 7
+
 STEFANUS’ PREDIKING EN MARTELDOOD
 
 ***1. En de hogepriester, die dat was in naam van de overheid d. i. Annas (hoofdstuk 4: 6; 5: 17), verbrak de stilte die in de raad had geheerst en gaf de aangeklaagde het woord, teneinde zich te verantwoorden en zei: Zijn dan deze dingen alzo, gelijk deze tegen u zeggen (vs. 14)?***

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 36
+
 1. En de hoofden der vaderen van het geslacht der kinderen van Gilead, de zoon van Machir, de zoon van Manasse, uit de geslachten der kinderen van Jozef, traden toe, en spraken voor het aangezicht van Mozes, en voor het aangezicht der oversten, hoofden van de vaderen der kinderen Israëls. 
 2. En zeiden: De HEERE heeft mijn Heere geboden, dat land door het lot aan de kinderen Israëls in erfenis te geven; en mijn Heere is door de HEERE geboden, de erfenis van onzen broeder Zelafead te geven aan zijn dochteren. 
 3. Wanneer zij een van de zonen der andere stammen van de kinderen Israëls tot vrouwen zouden worden, zo zou haar erfenis van de erfenis onzer vaderen afgetrokken worden, en toegedaan tot de erfenis van dien stam, aan welken zij geworden zouden; alzo zou van het lot onzer erfenis worden afgetrokken. 

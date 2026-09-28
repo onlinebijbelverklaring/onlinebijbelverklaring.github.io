@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 76
+
 1. EEN psalm, een lied van Asaf, voor den opperzangmeester, op Neginôth.
 2. God is bekend in Juda, Zijn Naam is groot in Israël.
 3. En in Salem is Zijn hut, en Zijn woning in Sion.

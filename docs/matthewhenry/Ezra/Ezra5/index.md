@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 5
+
 1. Haggaï nu, de profeet, en Zacharia, de zoon van Iddo, profeteerden tot de Joden, die in Juda en te Jeruzalem waren; in de naam Gods van Israël profeteerden zij tot hen. 
 2. Toen maakten zich op Zerubbabel, de zoon van Sealthiel, en Jesua, de zoon van Jozadak, en begonnen te bouwen het huis Gods, Die te Jeruzalem woont; en met hen de profeten Gods, die hen ondersteunden. 
 3. Te dier tijd kwam tot hen Thathnai, de landvoogd aan deze zijde der rivier, en Sthar-boznai, en hun gezelschap, en zeiden aldus tot hen: Wie heeft ulieden bevel gegeven dit huis te bouwen, en dezen muur te voltrekken? 

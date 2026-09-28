@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 16
+
 1. MAAR Job antwoordde en zeide:
 2. Ik heb vele dergelijke dingen gehoord; gij allen zijt moeilijke vertroosters.
 3. Zal er een einde zijn aan de winderige woorden? Of wat stijft u, dat gij alzo antwoordt?

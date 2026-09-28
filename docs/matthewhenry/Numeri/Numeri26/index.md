@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 26
+
 1. Het geschiedde nu na die plaag, dat de HEERE sprak tot Mozes, en tot Eleazar, de zoon van Aäron, de priester, zeggende: 
 2. Neem de som van de gehele vergadering der kinderen Israëls op, van twintig jaren oud en daarboven, naar het huis hunner vaderen, al wie ten heire in Israël uittrekt. 
 3. Mozes dan en Eleazar, de priester, spraken hen aan, in de vlakke velden van Moab, aan de Jordaan van Jericho, zeggende: 

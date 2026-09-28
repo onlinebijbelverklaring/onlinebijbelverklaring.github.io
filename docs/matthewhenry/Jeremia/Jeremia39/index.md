@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 39
+
 1. IN het negende jaar van Zedekía, koning van Juda, in de tiende maand, kwam Nebukadrézar, de koning van Babel, en al zijn heir tegen Jeruzalem, en zij belegerden haar.
 2. In het elfde jaar van Zedekía, in de vierde maand, op den negende der maand, werd de stad doorgebroken.
 3. En alle vorsten des konings van Babel togen henen in en hielden stil bij de middelste poort; namelijk Nergal-Sarézer Samgar-Nebu, Sársechim Ráb-Sarîs, Nergal-Sarézer Rab-Mag, en al de overige vorsten des konings van Babel.

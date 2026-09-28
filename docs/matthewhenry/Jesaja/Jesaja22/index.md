@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 22
+
 1. DE last van het dal des gezichts. Wat is u nu, dat gij altegader op de daken klimt?
 2. Gij die vol van groot gedruis waart, gij woelige stad, gij vrolijk huppelende stad; uw verslagenen zijn niet verslagen met het zwaard, noch gestorven in den strijd.
 3. Al uw oversten zijn tezamen weggevlucht, zij zijn van de schutters gebonden; allen die in u gevonden zijn, zijn samengebonden, zij zijn van verre gevloden.

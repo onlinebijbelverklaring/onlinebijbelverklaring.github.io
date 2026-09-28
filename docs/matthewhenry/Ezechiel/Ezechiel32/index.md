@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 32
+
 1. HET gebeurde ook in het twaalfde jaar, in de twaalfde maand, op den eerste der maand, dat het woord des HEEREN tot mij geschiedde, zeggende:
 2. Mensenkind, hef een klaaglied op over Farao, den koning van Egypte, en zeg tot hem: Gij waart een jongen leeuw onder de heidenen gelijk, en gij waart als een zeedraak in de zeeën, en braakt voort in uw rivieren, en beroerdet het water met uw voeten, en vermodderdet hunlieder rivieren.
 3. Alzo zegt de Heere HEERE: Ik zal daarom Mijn net over u uitspreiden door een vergadering van vele volken; die zullen u optrekken in Mijn garen.

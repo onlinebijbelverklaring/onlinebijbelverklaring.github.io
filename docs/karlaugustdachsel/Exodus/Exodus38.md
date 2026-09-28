@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 38
+
 AANZIENLIJKE SOMMEN VAN GEBRUIKT GOUD, ZILVER EN KOPER.
 
 ## I. Vers 1-20

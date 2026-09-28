@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Richteren
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK RICHTEREN
 
 Dit boek wordt in het Hebreeuws "Sefer Shoftim" genoemd, dat is het boek der Richteren. In de Syrische en Arabische overzettingen is die titel uitgebreid, en wordt het Het Boek der Richteren van de kinderen Israëls genoemd. De rechten van dit volk waren van bijzondere aard, en dat waren ook hun rechters, wier ambt grotelijks verschilde van dat der rechtere van andere volken. De LXX noemen het slechts Kritai, Rechters. Het bevat de geschiedenis van Israëls gemenebest onder de regering der Richteren, van Othniël tot Eli, zoveel er van als God geschikt oordeelde om er ons van mede te delen. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 5
+
 1. Maar het geroep des volks en hunner vrouwen was groot, tegen hun broederen, de Joden. 
 2. Want er waren, die zeiden: Onze zonen, en onze dochteren, wij zijn velen; daarom hebben wij koren opgenomen, opdat wij eten en leven. 
 3. Ook waren er, die zeiden: Wij verpanden onze akkers, en onze wijngaarden, en onze huizen, opdat wij in dezen honger koren mogen opnemen. 

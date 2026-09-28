@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 14
+
 1. Gijlieden zijt kinderen des HEEREN, uws Gods; gij zult uzelven niet snijden, noch kaalheid maken tussen uw ogen, over een dode. 
 2. Want gij zijt een heilig volk de HEERE, uw God; en u heeft de HEERE verkoren, om Hem tot een volk des eigendoms te zijn, uit al de volken, die op de aardbodem zijn. 
 3. Gij zult geen gruwel eten. 

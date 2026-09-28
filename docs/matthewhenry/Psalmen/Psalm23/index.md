@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 23
+
 1. EEN psalm van David. De HEERE is mijn Herder, mij zal niets ontbreken.
 2. Hij doet mij nederliggen in grazige weiden; Hij voert mij zachtkens aan zeer stille wateren.
 3. Hij verkwikt mijn ziel; Hij leidt mij in het spoor der gerechtigheid om Zijns Naams wil.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 11
+
 ***1. Wees a) mijn navolgers, dat u tot heden maar al te zeer heeft verzuimd (Hoofdstuk 4: 16), zoals ook ik een navolger ben van Christus, dat hoogste toonbeeld van zelfverloochenende, alleen anderer zaligheid zoekende gezindheid en denkwijze (Fil. 2: 4 vv. Rom. 15: 3. Matth. 11: 29).***
 
 a) Fil. 3: 17. 1 Thess. 1: 6. 2 Thess. 3: 9.

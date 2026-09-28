@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 15
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, wat is het hout des wijnstoks meer dan alle hout, of de wijnrank meer dan wat onder het hout eens wouds is?
 3. Wordt daarvan hout genomen om een stuk werk te maken? Neemt men daarvan een pin om enig vat daaraan te hangen?

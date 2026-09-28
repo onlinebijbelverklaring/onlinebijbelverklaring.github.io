@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 64
+
 1. OCH, dat Gij de hemelen scheurdet, dat Gij nederkwaamt, dat de bergen van Uw aangezicht vervloten;
 2. Gelijk een smeltvuur brandt en het vuur de wateren doet opbobbelen, om Uw Naam aan Uw wederpartijders bekend te maken! Laat alzo de heidenen van Uw aangezicht beven.
 3. Toen Gij vreselijke dingen deedt, die wij niet verwachtten; Gij kwaamt neder, van Uw aangezicht vervloten de bergen.

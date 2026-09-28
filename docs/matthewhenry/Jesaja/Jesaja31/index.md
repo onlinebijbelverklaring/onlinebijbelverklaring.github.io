@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 31
+
 1. WEE dengenen die in Egypte om hulp aftrekken, en steunen op paarden, en vertrouwen op wagens, omdat er vele zijn, en op ruiters, omdat die zeer machtig zijn; en zien niet op den Heilige Israëls en zoeken den HEERE niet.
 2. Nochtans is Hij ook wijs, en Hij doet het kwaad komen en trekt Zijn woorden niet terug; maar Hij zal Zich opmaken tegen het huis der boosdoeners en tegen de hulp dergenen die ongerechtigheid werken.
 3. Want de Egyptenaars zijn mensen en geen God, en hun paarden zijn vlees en geen geest; en de HEERE zal Zijn hand uitstrekken, dat de helper struikelen zal, en die geholpen wordt, zal nedervallen, en zij zullen altezamen tenietkomen.

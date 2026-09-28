@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 2
+
 1. WAAROM woeden de heidenen, en bedenken de volken ijdelheid?
 2. De koningen der aarde stellen zich op, en de vorsten beraadslagen tezamen, tegen den HEERE en tegen Zijn Gezalfde, zeggende:
 3. Laat ons Hun banden verscheuren en Hun touwen van ons werpen.

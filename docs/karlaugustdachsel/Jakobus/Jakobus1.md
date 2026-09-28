@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 1
+
 OVER GEDULD EN MOEITE EN LIJDEN
 
 A. Evenals het synodale schrijven in Hand. 15: 23vv., dat waarschijnlijk door Jakobus II is opgesteld, na het noemen van de briefschrijver en de aanwijzing van de geadresseerden zich bedient van de Griekse groet (Hand. 23: 26 1 Makk. 10: 18, zo doet ook deze apostel. Hij gebruikt eenzelfde groet in het opschrift van deze algemene zendbrief, die niet lang voor het synodale schrijven rondgezonden is, aan de twaalf geslachten van het huis van Israël in de verstrooiing Ac 15: 21, namelijk het woord "zaligheid. "

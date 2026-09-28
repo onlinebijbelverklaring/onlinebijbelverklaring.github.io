@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 24
+
 BILEAMS PROFETIE VAN DE STER UIT JAKOB.
 
 ***1. Toen Bileam uit de ervaringen, die hij reeds twee maal (hoofdstuk 23:3 vv.; 15 vv.) gemaakt had, zag, dat het goed was in de ogen van de HEERE, dat hij Israël zegende, en er geen teken was, dat zich overeenkomstig de wensen van de koning liet verklaren, zo ging hij ditmaal niet heen, zoals eerder, zoals de beide vorige keren, tot de toverijen (hoofdstuk 23:3 vv.; 15 vv.), maar hij stelde zijn aangezicht naar de woestijn, naar het noordwestelijk gelegen veld van Moab, waar Israël gelegerd was.***

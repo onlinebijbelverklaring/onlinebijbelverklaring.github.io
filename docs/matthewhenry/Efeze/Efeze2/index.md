@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 2
+
 1. EN u heeft Hij mede levend gemaakt, daar gij dood waart door de misdaden en de zonden,
 2. In welke gij eertijds gewandeld hebt, naar de eeuw dezer wereld, naar den overste van de macht der lucht, van den geest die nu werkt in de kinderen der ongehoorzaamheid;
 3. Onder dewelke ook wij allen eertijds verkeerd hebben in de begeerlijkheden onzes vleses, doende den wil des vleses en der gedachten; en wij waren van nature kinderen des toorns, gelijk ook de anderen.

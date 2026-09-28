@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 36
+
 1. Toen nam het volk des lands Joahaz, de zoon van Josia, en zij maakten hem koning, in zijns vaders plaats, te Jeruzalem. 
 2. Drie en twintig jaren was Joahaz oud, als hij koning werd, en hij regeerde drie maanden te Jeruzalem. 
 3. Want de koning van Egypte zette hem af te Jeruzalem; en hij leide het land een boete op van honderd talenten zilver en een talent goud. 

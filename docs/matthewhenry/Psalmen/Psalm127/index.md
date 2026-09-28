@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 127
+
 1. EEN lied Hammaäloth, van Sálomo. Zo de HEERE het huis niet bouwt, tevergeefs arbeiden deszelfs bouwlieden daaraan; zo de HEERE de stad niet bewaart, tevergeefs waakt de wachter.
 2. Het is tevergeefs dat gijlieden vroeg opstaat, laat opblijft, eet brood der smarten; het is alzo, dat Hij het Zijn beminde als in den slaap geeft.
 3. Zie, de kinderen zijn een erfdeel des HEEREN; des buiks vrucht is een beloning.

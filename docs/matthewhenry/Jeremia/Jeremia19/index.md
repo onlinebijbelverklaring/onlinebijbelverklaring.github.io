@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 19
+
 1. ZO zegt de HEERE: Ga heen en koop een pottenbakkerskruik, en neem tot u van de oudsten des volks en van de oudsten der priesters.
 2. En ga uit naar het dal des zoons van Hinnom, dat voor de deur der Zonnepoort is, en roep aldaar uit de woorden die Ik tot u spreken zal;
 3. En zeg: Hoort des HEEREN woord, gij koningen van Juda en inwoners van Jeruzalem. Alzo zegt de HEERE der heirscharen, de God Israëls: Zie, Ik zal een kwaad brengen over deze plaats, van hetwelk eenieder die het hoort, zijn oren klinken zullen;

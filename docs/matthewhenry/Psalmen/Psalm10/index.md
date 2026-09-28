@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 10
+
 1. O HEERE, waarom staat Gij van verre? Waarom verbergt Gij U in tijden van benauwdheid?
 2. De goddeloze vervolgt hittiglijk in hoogmoed den ellendige; laat hen gegrepen worden in de aanslagen die zij bedacht hebben.
 3. Want de goddeloze roemt over den wens zijner ziel; hij zegent den gierigaard, hij lastert den HEERE.

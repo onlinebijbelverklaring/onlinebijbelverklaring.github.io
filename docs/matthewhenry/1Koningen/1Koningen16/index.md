@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 16
+
 1. Toen geschiedde het woord des HEEREN tot Jehu, de zoon van Hanani, tegen Baesa, zeggende: 
 2. Daarom, dat Ik u uit het stof verheven, en u tot een voorganger over Mijn volk Israël gesteld heb, en gij gewandeld hebt in de weg van Jerobeam, en Mijn volk Israël hebt doen zondigen, Mij tot toorn verwekkende door hun zonden; 
 3. Zie, zo zal Ik de nakomelingen van Baesa, en de nakomelingen van zijn huis wegdoen; en Ik zal uw huis maken, gelijk het huis van Jerobeam, de zoon van Nebat. 

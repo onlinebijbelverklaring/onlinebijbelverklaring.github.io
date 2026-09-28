@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 30
+
 1. En Mozes sprak tot de hoofden der stammen van de kinderen Israëls, zeggende: Dit is de zaak, die de HEERE geboden heeft: 
 2. Wanneer een man de HEERE een gelofte zal beloofd, of een eed zal gezworen hebben, zijn ziel met een verbintenis verbindende, zijn woord zal hij niet ontheiligen; naar alles, wat uit zijn mond gegaan is, zal hij doen. 
 3. Maar als een vrouw de HEERE een gelofte zal beloofd hebben, en zich met een verbintenis in het huis haars vaders in haar jonkheid zal verbonden hebben; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Ruth
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK RUTH
 
 Deze korte geschiedenis van de huiselijke aangelegenheden van een particulier gezin volgt gevoeglijk op het boek der Richteren daar de gebeurtenissen, hier verhaald, plaatshadden in de dagen der Richteren en zij gaat ook gevoeglijk aan de boeken van Samuel vooraf, omdat aan het einde er van David ingeleid wordt. De Joden scheiden het echter in hun Bijbels van beide deze boeken, en maken het tot een van de vijf megilloth, of rollen, die zij aan het einde bij elkaar plaatsen, en wel in deze volgorde: Het Hooglied, Ruth, de Klaagliederen, de Prediker, en Esther. Het is waarschijnlijk dat Samuel de schrijver is van dit boek. Het verhaalt geen wonderen of wetten, geen oorlogen en overwinningen, geen staatsomwentelingen, maar eerst de beproeving, en daarna de vertroosting van Naomi, eerst de bekering en daarna de verhoging van Ruth. Veel zulke gebeurtenissen zijn voorgevallen, die wij misschien even waardig vinden om vermeld te worden. Maar God oordeelde het goed en gepast dat deze ter onzer kennis zou gebracht worden, en zelfs gewone geschiedschrijvers achten zich vrij om hun onderwerp te kiezer. Het doel van dit boek is:

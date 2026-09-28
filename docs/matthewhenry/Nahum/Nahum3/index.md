@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nahum 3
+
 1. Wee der bloedstad, die gans vol leugen, en verscheuring is! de roof houdt niet op. 
 2. Er is het geklap der zweep, en het geluid van het bulderen der raderen; en de paarden stampen, en de wagens springen op. 
 3. De ruiter steekt omhoog, zo het vlammende zwaard, als de bliksemende spies, en er zal veelheid der verslagenen zijn, en een zware menigte der dode lichamen; ja, er zal geen einde zijn der lichamen, men zal over hun lichamen struikelen; 

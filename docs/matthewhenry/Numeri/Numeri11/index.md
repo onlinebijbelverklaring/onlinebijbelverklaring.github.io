@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 11
+
 1. En het geschiedde, als het volk zich was beklagende, dat het kwaad was in de oren des HEEREN; want de HEERE hoorde het, zodat Zijn toorn ontstak, en het vuur des HEEREN onder hen ontbrandde, en verteerde, in het uiterste des legers. 
 2. Toen riep het volk tot Mozes; en Mozes bad tot de HEERE; en het vuur werd gedempt. 
 3. Daarom noemde hij de naam dier plaats Thab-era, omdat het vuur des HEEREN onder hen gebrand had. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 3
+
 RUTH VERKRIJGT GOEDE HOOP OP EEN AANSTAAND HUWELIJK.
 
 ## I. Vers 1-18

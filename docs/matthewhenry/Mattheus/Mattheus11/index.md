@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 11
+
 1. EN het is geschied toen Jezus geëindigd had Zijn twaalf discipelen bevelen te geven, dat Hij vandaar voortging, om te leren en te prediken in hun steden.
 2. En Johannes in de gevangenis gehoord hebbende de werken van Christus, zond twee van zijn discipelen,
 3. En zeide tot Hem: Zijt Gij Degene Die komen zou, of verwachten wij een ander?

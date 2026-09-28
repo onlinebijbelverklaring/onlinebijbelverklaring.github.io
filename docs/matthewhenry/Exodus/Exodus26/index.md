@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 26
+
 1. de tabernakel nu zult gij maken van tien gordijnen, van fijn getweernd linnen, en hemelsblauw, en purper, en scharlaken, met cherubim; van het allerkunstelijkste werk zult gij ze maken. 
 2. De lengte van een gordijn zal van acht en twintig ellen zijn, en de breedte ener gordijn van vier ellen; al deze gordijnen zullen een maat hebben. 
 3. Er zullen vijf gordijnen samengevoegd zijn, de een aan de andere; wederom zullen er vijf gordijnen samengevoegd zijn, de een aan de andere. 

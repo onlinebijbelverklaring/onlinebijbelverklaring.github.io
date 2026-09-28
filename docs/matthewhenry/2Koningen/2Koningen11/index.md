@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 11
+
 1. Toen nu Athalia, de moeder van Ahazia, zag, dat haar zoon dood was, zo maakte zij zich op, en bracht al het koninklijke zaad om. 
 2. Maar Joseba, de dochter van de koning Joram, de zuster van Ahazia, nam Joas, de zoon van Ahazia, en stal hem uit het midden van des konings zonen, die gedood werden, zettende hem en zijn voedster in een slaapkamer; en zij verborgen hem voor Athalia, dat hij niet gedood werd. 
 3. En hij was met haar verstoken in het huis des HEEREN zes jaren; en Athalia regeerde over het land. 

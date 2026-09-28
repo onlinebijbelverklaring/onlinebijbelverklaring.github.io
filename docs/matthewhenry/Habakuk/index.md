@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Habakuk
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET HABAKUK
 
 Het is een dwaze inbeelding van enige Joodse rabbijnen, als zou deze profeet de zoon zijn der Sunamietische vrouw, haar eens zo wonderdadig geschonken, en daarna door Eliza opgewekt, 2 Koningen 4; gelijk ze ook beweren, dat de profeet Jona de zoon was der weduwe te Zarfath, door Elia in het leven teruggeroepen. Waarschijnlijker is de onderstelling van nieuwere geschiedkundigen, dat hij leefde en profeteerde in de tijd van koning Manasse, wiens goddeloosheid zo groot was, dat ze het verderf haastig over stad en land bracht, de verwoesting door de Chaldeeën, die de profeet vermeldt als de werktuigen van Gods oordelen. Manasse zelf werd naar Babel gevoerd, als een proef van water geschieden zou. In de apocriefe historie van Bel en de Draak wordt van Habakuk melding gemaakt als de profeet in het land van Juda, die vandaar door een engel naar Babel gevoerd werd om Daniël in de leeuwenkuil te voeden. 

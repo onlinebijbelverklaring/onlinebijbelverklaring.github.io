@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 80
+
 1. VOOR den opperzangmeester, op Schóschannim; een getuigenis, een psalm van Asaf.
 2. O Herder Israëls, neem ter ore, Die Jozef als schapen leidt; Die tussen de cherubs zit, verschijn blinkende.
 3. Wek Uw macht op voor het aangezicht van Efraïm en Benjamin en Manasse, en kom tot onze verlossing.

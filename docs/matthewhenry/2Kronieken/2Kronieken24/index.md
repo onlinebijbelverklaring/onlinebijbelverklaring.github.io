@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 24
+
 1. Joas was zeven jaren oud, toen hij koning werd, en hij regeerde veertig jaren te Jeruzalem; en de naam zijner moeder was Zibja, van Ber-seba. 
 2. En Joas deed dat recht was in de ogen des HEEREN, al de dagen van de priester Jojada. 
 3. En Jojada nam voor hem twee vrouwen; en hij gewon zonen en dochteren. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 60
+
 1. EEN gouden kleinood van David tot lering, voor den opperzangmeester, op Schuschan Eduth;
 2. Als hij gevochten had met de Syriërs van Mesopotámië en met de Syriërs van Zoba, en Joab wederkwam en de Edomieten sloeg in het Zoutdal, twaalfduizend.
 3. O God, Gij hadt ons verstoten, Gij hadt ons gescheurd, Gij zijt toornig geweest; keer weder tot ons.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 2
+
 1. WEDEROM was er een dag, als de kinderen Gods kwamen om zich voor den HEERE te stellen, dat de satan ook in het midden van hen kwam om zich voor den HEERE te stellen.
 2. Toen zeide de HEERE tot den satan: Vanwaar komt gij? En de satan antwoordde den HEERE en zeide: Van om te trekken op de aarde en van die te doorwandelen.
 3. En de HEERE zeide tot den satan: Hebt gij ook acht geslagen op Mijn knecht Job? Want niemand is op de aarde gelijk hij, een man, oprecht en vroom, godvrezende en wijkende van het kwaad; en hij houdt nog vast aan zijn oprechtheid, hoewel gij Mij tegen hem opgehitst hebt om hem te verslinden zonder oorzaak.

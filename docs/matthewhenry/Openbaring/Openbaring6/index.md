@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 6
+
 1. EN ik zag, toen het Lam een van de zegelen geopend had, en ik hoorde een uit de vier dieren zeggen, als een stem van een donderslag: Kom en zie.
 2. En ik zag, en zie, een wit paard, en Die daarop zat, had een boog; en Hem is een kroon gegeven, en Hij ging uit overwinnende, en opdat Hij overwon.
 3. En toen Het het tweede zegel geopend had, hoorde ik het tweede dier zeggen: Kom en zie.

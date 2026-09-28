@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 24
+
 1. WIJDERS geschiedde des HEEREN woord tot mij in het negende jaar, in de tiende maand, op den tiende der maand, zeggende:
 2. Mensenkind, schrijf u den naam van den dag op, even van dezen zelven dag; de koning van Babel legt zich voor Jeruzalem, even op dezen zelven dag.
 3. En gebruik een gelijkenis tot dat wederspannig huis, en zeg tot hen: Alzo zegt de Heere HEERE: Zet een pot toe, zet hem toe, en giet ook water daarin.

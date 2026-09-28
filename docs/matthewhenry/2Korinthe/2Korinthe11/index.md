@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 11
+
 1. OCH, of gij mij een weinig verdroegt in de onwijsheid; ja ook, verdraagt mij.
 2. Want ik ben ijverig over u met een ijver Gods; want ik heb ulieden toebereid om u als een reine maagd aan één Man voor te stellen, namelijk aan Christus.
 3. Doch ik vrees dat niet enigszins, gelijk de slang Eva door haar arglistigheid bedrogen heeft, alzo uw zinnen bedorven worden, om af te wijken van de eenvoudigheid die in Christus is.

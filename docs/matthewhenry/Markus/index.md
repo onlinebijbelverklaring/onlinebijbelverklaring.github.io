@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Markus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EVANGELIE NAAR DE BESCHRIJVING VAN MARKUS
 
 Wij hebben het getuigenis gehoord van de eersten getuige voor de leer en de wonderen van onze Heere Jezus, en nu komt hier een ander getuige onze aandacht vragen. Het tweede levende schepsel zegt: Kom en zie. Openbaring 6:3. Laat ons dan het een en ander nagaan betreffende dezen getuige. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 14
+
 1. EN het geschiedde als Hij gekomen was in het huis van een der oversten der farizeeën, op den sabbat, om brood te eten, dat zij Hem waarnamen.
 2. En zie, er was een zeker waterzuchtig mens voor Hem.
 3. En Jezus antwoordende zeide tot de wetgeleerden en farizeeën, en sprak: Is het ook geoorloofd op den sabbat gezond te maken?

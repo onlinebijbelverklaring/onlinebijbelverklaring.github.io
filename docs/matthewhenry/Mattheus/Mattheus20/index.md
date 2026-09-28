@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 20
+
 1. WANT het Koninkrijk der hemelen is gelijk een heer des huizes, die met den morgenstond uitging om arbeiders te huren in zijn wijngaard.
 2. En als hij met de arbeiders eens geworden was voor een penning des daags, zond hij hen heen in zijn wijngaard.
 3. En uitgegaan zijnde omtrent de derde ure, zag hij anderen ledigstaande op de markt.

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Prediker
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK PREDIKER
 
 Nog bevinden wij ons onder Salomo’s gelukkige mannen, zijn gelukkige dienstknechten, die gedurig voor zijn aangezicht stonden om zone wijsheid te horen, en het is de keur van al de uitspraken zijner wijsheid, die meer onmiddellijk door Gods Geest waren ingegeven, die ons hier wordt overgeleverd, niet om, zoals door hen, slechts eenmaal te worden gehoord, waarna zij allicht verkeerd begrepen of vergeten kunnen worden en door de herhaling hare schoonheid kunnen verliezen; maar om gelezen, herlezen en bepeinsd te worden, en dan in altoosdurende herinnering bewaard te blijven. 

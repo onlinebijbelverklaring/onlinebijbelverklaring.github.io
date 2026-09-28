@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 7
+
 AANMANING TOT HEILIGMAKING
 
 ***1. Omdat wij dan deze belofte hebben, zoals die in de Spreuken 6: 16-18 aangevoerd vervat zijn, geliefden, laat ons onszelf reinigen van alle besmetting van het vlees, die plaats heeft als zintuigen en leden aan de dienst van de onreinheid worden overgegeven (Rom. 6: 19) en van de geest, "waardoor de mens inwendig zichzelf voor God bevlekt en verderft, al blijkt het ook niet uitwendig voor de wereld" Strijden wij tegen alle kwaad, voleindigend de heiligmaking in de vrees van God. Hij is de Alwetende en Alomtegenwoordige, wiens gemeenschap ten voorwaarde heeft, dat wij ernstig streven naar volkomen heiligheid (Hebr. 12: 14).***

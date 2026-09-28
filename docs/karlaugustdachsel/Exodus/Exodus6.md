@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 6
+
 MOZES VERKRIJGT VAN GOD EEN NIEUW BEVEL. HIJ BESCHRIJFT ZIJN GEBOORTEREGISTER.
 
 ***1. Verder sprak God tot Mozes, 1) en zei tot hem: Ik ben, gelijk Ik u reeds bij de eerste roeping (hoofdstuk 3:13 vv.) verklaard heb, de HEERE, Jehova, de eeuwige, onveranderlijke, de alleen waarachtig zijnde.***

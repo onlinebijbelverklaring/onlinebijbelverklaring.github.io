@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 17
+
 1. Het geschiedde nu, als David in zijn huis woonde, dat David tot Nathan, de profeet, zeide: Zie, ik woon in een cederen huis, maar de ark des verbonds des HEEREN onder gordijnen. 
 2. Toen zeide Nathan tot David: Doe alles, wat in uw hart is, want God is met u. 
 3. Maar het geschiedde in denzelven nacht, dat het woord Gods tot Nathan kwam, zeggende: 

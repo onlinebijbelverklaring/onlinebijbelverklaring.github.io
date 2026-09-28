@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 6
+
 CHRISTELIJKE HUISREGELS. GEESTELIJKE WAPENS
 
 ***1. Kinderen, wees uw ouderen gehoorzaam in de Heere, overeenkomstig de betrekking als eigendom, waarin u ook tot Christus staat (Hoofdstuk 4: 1, 17. Kol. 3: 20); want dat is recht, dat is uw plicht (Fil. 1: 7. 2 Thess. 1: 6).***

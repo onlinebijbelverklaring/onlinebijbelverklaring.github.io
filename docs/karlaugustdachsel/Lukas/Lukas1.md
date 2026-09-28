@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 1
+
 JOHANNES’ GEBOORTE EN JEUGD
 
 In vs. 1-4 laat de Evangelist aan zijn werk een inleiding voorafgaan, waarin hij zich voor hem, tot wie in de eerste plaats zijn Evangelie gericht is, over aanleiding en doel, grondslag en bewerking nader uitspreekt. "In kortheid, eenvoudigheid en bescheidenheid is deze het toonbeeld van een voorrede tot een geschiedkundig geschrift. " Voor ons lezers is het echter een voorafgaande herinnering aan de voorzorg van God voor de optekening van Jezus’ geschiedenis en wel door verstandige en betrouwbare mannen.

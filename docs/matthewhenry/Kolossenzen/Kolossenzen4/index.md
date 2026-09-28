@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 4
+
 1. GIJ heren, doet uw dienstknechten recht en gelijk, wetende dat ook gij een Heere hebt in de hemelen.
 2. Houdt sterk aan in het gebed, en waakt in hetzelve met dankzegging;
 3. Biddende meteen ook voor ons, dat God ons de deur des Woords opene, om te spreken de verborgenheid van Christus, om welke ik ook gebonden ben,

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 23
+
 1. En men boodschapte David, zeggende: Zie, de Filistijnen strijden tegen Kehila, en zij beroven de schuren. 
 2. En David vraagde de HEERE, zeggende: Zal ik heengaan en deze Filistijnen slaan? En de HEERE zeide tot David: Ga heen, en gij zult de Filistijnen slaan en Kehila verlossen. 
 3. Doch de mannen Davids zeiden tot hem: Zie, wij vrezen hier in Juda; hoeveel te meer, als wij naar Kehila tegen der Filistijnen slagorden gaan zullen. 

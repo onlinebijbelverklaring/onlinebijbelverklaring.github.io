@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 3
+
 1. NA deze geschiedenissen maakte de koning Ahasvéros Haman groot, den zoon van Hammedátha, den Agagiet, en hij verhoogde hem; en hij zette zijn stoel boven al de vorsten die bij hem waren.
 2. En al de knechten des konings, die in de poort des konings waren, neigden en bogen zich neder voor Haman, want de koning had alzo van hem bevolen; maar Mórdechai neigde zich niet en boog zich niet neder.
 3. Toen zeiden de knechten des konings, die in de poort des konings waren, tot Mórdechai: Waarom overtreedt gij des konings gebod?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 25
+
 1. Verder sprak de HEERE tot Mozes, aan de berg Sinaï, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: Wanneer gij zult gekomen zijn in dat land, dat Ik u geve, dan zal dat land rusten, een sabbat de HEERE. 
 3. Zes jaren zult gij uw akker bezaaien, en zes jaren uw wijngaard besnijden, en de inkomst daarvan inzamelen. 

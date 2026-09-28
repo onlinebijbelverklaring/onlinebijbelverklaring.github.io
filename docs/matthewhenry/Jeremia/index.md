@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jeremia
+
 ## EEN VERKLARING MET PRAKTISCHE AANMERKINGEN VAN HET BOEK VAN DE PROFEET JEREMIA
 
 De profetieën van het Oude Testament zijn, evenals de brieven in het Nieuwe, gerangschikt naar de omvang der boeken, meer dan naar hun oudheid; de langste, en niet de oudste, het eerst. Er waren verscheidene profeten, die hun godsspraken opschreven, tijdgenoten van Jesaja, zoals Micha, of korten tijd vóór hem Hoséa, en Joel, en Amos, of spoedig na hem gelijk Habakuk en, naar men onderstelt ook Nahum; maar toch is de profetie van Jeremia, die vele jaren naden dood van Jesaja leefde, dadelijk achter het boek van Jesaja geplaatst, omdat het zoveel bevat. Laat hun de voorrang gegeven worden, bij wie wij het meeste van Gods Woord vinden, en laat de minder-begaafden daarom niet geminacht of buitengesloten worden. Omtrent de profetie in het algemeen hebben we thans niets meer op te merken, maar betreffende de profeet Jeremia wijzen wij er op:

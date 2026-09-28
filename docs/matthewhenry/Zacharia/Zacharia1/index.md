@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 1
+
 1. In de achtste maand, in het tweede jaar van Darius, geschiedde het woord des HEEREN tot Zacharia, de zoon van Berechja, de zoon van Iddo, de profeet, zeggende:
 2. De HEERE is zeer vertoornd geweest tegen uw vaderen. 
 3. Daarom zeg tot hen: Alzo zegt de HEERE der heirscharen: Keert weder tot Mij, spreekt de HEERE der heirscharen, zo zal Ik weder tot ulieden keren, zegt de HEERE der heirscharen. 

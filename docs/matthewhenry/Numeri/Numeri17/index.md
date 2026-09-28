@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 17
+
 1. Toen sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, en neem van hen voor elk vaderlijk huis een staf, van al hun oversten, naar het huis hunner vaderen, twaalf staven; eens iegelijken naam zult gij schrijven op zijn staf. 
 3. Doch Aärons naam zult gij schrijven op de staf van Levi; want een staf zal er zijn voor het hoofd van het huis hunner vaderen. 

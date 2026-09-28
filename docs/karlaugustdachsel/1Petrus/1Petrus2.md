@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 2
+
 OVER DE PLICHT VAN DE WEDERGEBORENEN, ALSMEDE VAN ONDERDANEN EN DIENSTBAREN
 
 ### B. Vers 1-10 

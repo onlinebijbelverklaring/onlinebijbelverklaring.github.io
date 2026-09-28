@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Numeri
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET VIERDE BOEK VAN MOZES GENAAMD NUMERI
 
 De titels der vijf boeken van Mozes, die wij in onze Bijbels gebruiken, zijn allen ontleend aan de Griekse vertaling der Zeventigen, de oudste overzetting van het Oude Testament, die ons bekend is. Alleen voor dit boek is de titel ontleend aan het Latijn, terwijl voor al de overigen de Griekse benamingen zijn behouden. Men had ook voor dit boek de Griekse titel Arithmoi kunnen behouden, evengoed als Genesis voor het eerste en Exodus voor het tweede; of men had ook die namen kunnen vertalen, en het eerste boek: het Ontstaan of de Wording, het tweede de Uittocht of de Ontkoming hebben kunnen noemen, zoals dit derde boek Numeri, dat is: de getallen, of tellingen genoemd wordt. Dit boek is aldus genoemd vanwege de getallen der kinderen Israëls, die zo dikwijls in dit boek vermeld zijn, en zo wèl waardig om er de titel aan te geven, omdat het de merkwaardige vervulling was van Gods belofte aan Abraham; dat zijn zaad zou zijn als de sterren des hemels in menigte. Het heeft ook betrekking op hun tellingen, ene bij de berg Sinaï, Hoofdstuk 1, de andere in de vlakten van Moab, negen en dertig jaren later, Hoofdstuk 26. En geen drie mannen van nu waren dezelfden als van toen. Het boek is bijna gelijkmatig verdeeld tussen geschiedenis en wetten, door elkaar gemengd.

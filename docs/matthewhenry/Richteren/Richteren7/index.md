@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 7
+
 1. Toen stond Jerubbaäl (dewelke is Gideon) vroeg op, en al het volk, dat met hem was; en zij legerden zich aan de fontein van Harod; dat hij het heirleger der Midianieten had tegen het noorden, achter de heuvel More, in het dal. 
 2. En de HEERE zeide tot Gideon: Des volks is te veel, dat met u is, dan dat Ik de Midianieten in hun hand zou geven; opdat zich Israël niet tegen Mij beroeme, zeggende: Mijn hand heeft mij verlost. 
 3. Nu dan, roep nu uit voor de oren des volks, zeggende: Wie blode en versaagd is, die kere weder, en spoede zich naar het gebergte van Gilead! Toen keerden uit het volk weder twee en twintig duizend, dat er tien duizend overbleven. 

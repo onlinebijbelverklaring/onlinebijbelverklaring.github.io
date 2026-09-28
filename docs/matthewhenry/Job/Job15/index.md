@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 15
+
 1. TOEN antwoordde Elifaz, de Themaniet, en zeide:
 2. Zal een wijs man winderige wetenschap voor antwoord geven, en zal hij zijn buik vullen met oostenwind?
 3. Bestraffende door woorden die niet baten, en door redenen met dewelke hij geen profijt doet?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 139
+
 1. EEN psalm van David, voor den opperzangmeester. HEERE, Gij doorgrondt en kent mij.
 2. Gij weet mijn zitten en mijn opstaan, Gij verstaat van verre mijn gedachte.
 3. Gij omringt mijn gaan en mijn liggen, en Gij zijt al mijn wegen gewend.

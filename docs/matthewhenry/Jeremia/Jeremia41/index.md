@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 41
+
 1. MAAR het geschiedde in de zevende maand, dat Ismaël, de zoon van Nethánja, den zoon van Elisáma, van koninklijk zaad, en de oversten des konings, te weten tien mannen met hem, kwamen tot Gedália, den zoon van Ahíkam, te Mizpa; en zij aten aldaar brood tezamen, te Mizpa.
 2. En Ismaël, de zoon van Nethánja, maakte zich op, mitsgaders de tien mannen die met hem waren, en zij sloegen Gedália, den zoon van Ahíkam, den zoon van Safan, met het zwaard; alzo doodde hij hem, dien de koning van Babel over het land gesteld had.
 3. Ook sloeg Ismaël al de Joden die met hem, namelijk met Gedália, te Mizpa waren, en de Chaldeeën, de krijgslieden, die aldaar gevonden werden.

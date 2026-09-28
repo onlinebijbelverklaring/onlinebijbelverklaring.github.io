@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 11
+
 1. Toen vergaderde zich gans Israël tot David naar Hebron, zeggende: Zie, wij zijn uw gebeente en uw vlees. 
 2. Zelfs ook te voren, toen Saul nog koning was, hebt gij Israël uitgeleid en ingeleid; ook heeft de HEERE, uw God, tot u gezegd: Gij zult Mijn volk Israël weiden, en gij zult voorganger zijn van Mijn volk Israël. 
 3. Ook kwamen alle oudsten in Israël tot de koning naar Hebron, en David maakte een verbond met hen te Hebron, voor het aangezicht des HEEREN; en zij zalfden David ten koning over Israël, naar het woord des HEEREN, door de dienst van Samuël. 

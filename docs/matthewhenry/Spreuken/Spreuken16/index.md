@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 16
+
 1. DE mens heeft schikkingen des harten, maar het antwoord der tong is van den HEERE.
 2. Alle wegen des mans zijn zuiver in zijn ogen, maar de HEERE weegt de geesten.
 3. Wentel uw werken op den HEERE, en uw gedachten zullen bevestigd worden.

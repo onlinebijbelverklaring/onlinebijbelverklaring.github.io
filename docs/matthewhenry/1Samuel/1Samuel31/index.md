@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 31
+
 1. De Filistijnen dan streden tegen Israël; en de mannen Israëls vloden voor het aangezicht der Filistijnen, en vielen verslagen op het gebergte Gilboa. 
 2. En de Filistijnen hielden dicht op Saul en zijn zonen; en de Filistijnen sloegen Jonathan, en Abinadab, en Malchisua, de zonen van Saul. 
 3. En de strijd werd zwaar tegen Saul; en de mannen, die met de boog schieten, troffen hem aan, en hij vreesde zeer voor de schutters. 

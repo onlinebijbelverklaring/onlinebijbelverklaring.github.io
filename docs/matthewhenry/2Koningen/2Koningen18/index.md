@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 18
+
 1. Het geschiedde nu in het derde jaar van Hosea, de zoon van Ela, de koning van Israël, dat Hizkia koning werd, de zoon van Achaz, koning van Juda. 
 2. Vijf en twintig jaren was hij oud, toen hij koning werd, en hij regeerde negen en twintig jaren te Jeruzalem, en de naam zijner moeder was Abi, een dochter van Zacharia. 
 3. En hij deed dat recht was in de ogen des HEEREN, naar alles, wat zijn vader David gedaan had. 

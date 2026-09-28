@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Obadja
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET OBADJA
 
 Dit is het kortste van alle boeken van het Oude Testament, het kleinste, en toch mag het niet voorbijgezien worden noch mag men er gering over denken, want deze penning draagt des keizers beeld en opschrift; het draagt het goddelijke stempel. In een korte preek, in een klein boekje, kan veel over God voorkomen, en zij kunnen veel goeds uitwerken, multum in parvo, veel in weinig woorden. Norris zegt: "Als de engelen boeken moesten schrijven, dan zouden we weinig folianten hebben." Wat kort is, kan zeer krachtig zijn. 

@@ -1,3 +1,10 @@
+---
+icon: lucide/file-text
+---
+
+
+# Galaten 2
+
 
 ## Vers 1
 ***Daarom ben ik, na veertien jaar, wederom naar Jeruzalem opgegaan.*** Paulus' leer bracht mee, dat de heidenen alleen door het Geloof, zonder de werken der Wet, gerechtvaardigd werden. Nadat hij die leer op verscheidene plaatsen, onder de heidenen verspreid, en alom openbaar gemaakt had, is hij te Antiochië gekomen, en heeft daarvan aan de Discipelen kennis gegeven. Daar zijn toen diegenen tegen Paulus opgestaan, die nog van de oude zuurdesem der Wet doortrokken waren, ontevreden zijnde, dat Paulus aan de heidenen vrijheid der Wet verkondigde, en daar is ontstaan de bitterste twist, die in het vervolg nieuwe ontroeringen verwekt heeft. Paulus en Barnabas stonden hier kloekmoedig en onbeweeglijk, en gaven getuigenis, zeggende: Waar ter plaatse het ook geweest is, dat wij onder de heidenen gepredikt hebben, is de Heilige Geest gekomen, en is op hen neergevallen, die het Woord hoorden, en dat is voorgevallen door alle gemeenten der heidenen heen. Want wij hebben toch geen Besnijdenis gepredikt, noch de onderhouding van de Wet geëist, maar wij hebben alleen het Geloof in Christus verkondigd en gepredikt. En op die prediking des Geloofs in Christus, heeft God de Heilige Geest aan de toehoorders geschonken. Daarom keurt de Heilige Geest het Geloof der heidenen, zonder Wet en Besnijdenis, goed. Want indien God de Heilige Geest geen behagen had genomen in dat soort van prediking des Evangelies, en Geloof der heidenen in Christus, zo zou Hij niet neergedaald zijn met een zichtbaar teken[^1] op de onbesnedenen die het Woord gehoord hebben. Aangezien daarom de Heilige Geest op het gehoor [van de prediking] des Geloofs alleen op hen is neergedaald, zo is het volkomen zeker, dat door zulk een teken de Heilige Geest het Geloof der heidenen goedgekeurd heeft. Want dat is tevoren nooit bevonden gebeurd te zijn op de verkondiging der Wet; dit was de drangreden, en bewijs van Paulus en Barnabas.

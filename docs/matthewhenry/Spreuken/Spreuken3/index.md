@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 3
+
 1. MIJN zoon, vergeet mijn wet niet, maar uw hart beware mijn geboden.
 2. Want langheid van dagen, en jaren van leven, en vrede zullen zij u vermeerderen.
 3. Dat de goedertierenheid en de trouw u niet verlaten; bind ze aan uw hals, schrijf ze op de tafel uws harten.

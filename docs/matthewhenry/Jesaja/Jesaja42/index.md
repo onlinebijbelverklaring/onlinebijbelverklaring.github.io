@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 42
+
 1. ZIE, Mijn Knecht, Dien Ik ondersteun, Mijn Uitverkorene, in Denwelken Mijn ziel een welbehagen heeft. Ik heb Mijn Geest op Hem gegeven, Hij zal het recht den heidenen voortbrengen.
 2. Hij zal niet schreeuwen, noch Zijn stem verheffen, noch Zijn stem op de straat horen laten.
 3. Het gekrookte riet zal Hij niet verbreken, en de rokende vlaswiek, die zal Hij niet uitblussen; met waarheid zal Hij het recht voortbrengen.

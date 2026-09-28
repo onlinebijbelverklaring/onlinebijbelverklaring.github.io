@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 31
+
 1. IK heb een verbond gemaakt met mijn ogen; hoe zou ik dan acht gegeven hebben op een maagd?
 2. Want wat is het deel Gods van boven, of de erve des Almachtigen uit de hoogten?
 3. Is niet het verderf voor den verkeerde, ja, wat vreemds voor de werkers der ongerechtigheid?

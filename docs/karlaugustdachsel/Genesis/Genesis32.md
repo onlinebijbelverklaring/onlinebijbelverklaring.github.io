@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 32
+
 JAKOB’S VREES, GEBED EN STRIJD.
 
 ***1. Jakob toog ook zijns weegs, van het gebergte Gilead verder heen, en stond nu dicht aan de grenzen van het heilige land. Nauwelijks aan de vervolgingen van zijn harde schoonvader door Gods tussenkomst ontkomen, gaat hij nu een vijand tegemoet, die nog meer te vrezen is, de nog niet verzoende Ezau, Jakob verbergt het gevaar voor zichzelf niet, maar dezelfde God, die hem eens bij zijn vlucht uit Kanaän door een gezicht van Engelen gesterkt had (hoofdstuk. 28:10 vv.), liet hem ook nu een dergelijk gezicht waarnemen; doch nu niet in een droom, maar in wakende toestand; en de Engelen Gods ontmoetten hem; 1) evenals de jongeling van Eliza in gelijke toestand (2 Koningen 6:17), werden hem de ogen geopend, en hij zag boven zijn hoofd twee legers van ten strijd toegeruste hemelingen; of het een vóór en het andere achter hem, of het ene ter rechter en het andere ter linkerzijde.***

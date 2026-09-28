@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 6
+
 1. ER is een kwaad dat ik gezien heb onder de zon, en het is veel onder de mensen:
 2. Een man denwelken God gegeven heeft rijkdom en goederen en eer; en hij heeft voor zijn ziel geens dings gebrek van alles wat hij begeert; en God geeft hem de macht niet om daarvan te eten, maar dat een vreemd man dien opeet. Dit is ook ijdelheid en een kwade smart.
 3. Indien een man honderd kinderen gewon en vele jaren leefde, zodat de dagen zijner jaren vele waren, doch zijn ziel niet verzadigd werd van het goed en hij ook geen begrafenis had; ik zeg dat een misdracht beter is dan hij.

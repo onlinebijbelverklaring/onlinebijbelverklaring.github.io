@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 11
+
 1. EEN psalm van David, voor den opperzangmeester. Ik betrouw op den HEERE; hoe zegt gijlieden tot mijn ziel: Zwerft heen naar ulieder gebergte als een vogel?
 2. Want zie, de goddelozen spannen den boog, zij schikken hun pijlen op de pees, om in donker te schieten naar de oprechten van hart.
 3. Zekerlijk, de fundamenten worden omgestoten; wat heeft de rechtvaardige bedreven?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Thessalonicenzen 3
+
 1. VOORTS, broeders, bidt voor ons, opdat het Woord des Heeren zijn loop hebbe, en verheerlijkt worde, gelijk ook bij u;
 2. En opdat wij mogen verlost worden van de ongeschikte en boze mensen; want het geloof is niet aller.
 3. Maar de Heere is getrouw, Die u zal versterken en bewaren van den boze.

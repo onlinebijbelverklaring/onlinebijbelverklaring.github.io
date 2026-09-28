@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 110
+
 1. EEN psalm van David. De HEERE heeft tot mijn Heere gesproken: Zit tot Mijn rechterhand, totdat Ik Uw vijanden gezet zal hebben tot een voetbank Uwer voeten.
 2. De HEERE zal den scepter Uwer sterkte zenden uit Sion, zeggende: Heers in het midden Uwer vijanden.
 3. Uw volk zal zeer gewillig zijn op den dag Uwer heirkracht, in heilige sieradiën; uit de baarmoeder des dageraads zal U de dauw Uwer jeugd zijn.

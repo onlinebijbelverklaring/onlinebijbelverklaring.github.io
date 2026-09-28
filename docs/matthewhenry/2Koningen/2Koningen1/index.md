@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 1
+
 1. En Moab viel van Israël af, na Achabs dood. 
 2. En Ahazia viel door een tralie in zijn opperzaal, die te Samaria was, en werd krank. En hij zond boden, en zeide tot hen: Gaat heen, vraagt Baal-zebub, de god van Ekron, of ik van deze krankheid genezen zal. 
 3. Maar de Engel des HEEREN sprak tot Elia, de Thisbiet: Maak u op, ga op, de boden des konings van Samaria tegemoet, en spreek tot hen: Is het, omdat er geen God in Israël is, dat gijlieden heengaat, om Baal-zebub, de god van Ekron, te vragen? 

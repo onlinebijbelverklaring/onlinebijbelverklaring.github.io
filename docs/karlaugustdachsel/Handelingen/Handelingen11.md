@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 11
+
 PETRUS’ PLEITREDE EN BEKERING VAN DE HEIDENEN. PLANTING VAN DE KERK TE ANTIOCHIE.
 
 ***1. De apostelen nu, die te Jeruzalem en de broeders die in verschillende plaatsen van het streek Judea waren (Luk. 2: 4), hebben spoedig na de gebeurtenis in hoofdst. 10, terwijl Petrus naar Joppe teruggekeerd zich daar nog geruime tijd ophield, gehoord dat ook de heidenen in een gewichtig en beslissend begin het woord van God aangenomen hadden, evenals enige jaren geleden reeds Samaria (hoofdst. 8: 14; 14: 27).***

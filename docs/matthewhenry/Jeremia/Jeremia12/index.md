@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 12
+
 1. GIJ zoudt rechtvaardig zijn, o HEERE, wanneer ik tegen U zou twisten; ik zal nochtans van Uw oordelen met U spreken: Waarom is der goddelozen weg voorspoedig, waarom hebben zij rust, allen die trouwelooslijk trouweloosheid bedrijven?
 2. Gij hebt hen geplant, zij zijn ook ingeworteld, zij gaan voort, ook dragen zij vrucht; Gij zijt wel nabij in hun mond, maar verre van hun nieren.
 3. Maar Gij, o HEERE, kent mij, Gij ziet mij en proeft mijn hart, dat het met U is. Ruk hen uit als schapen ter slachting, en heilig hen tot den dag der doding.

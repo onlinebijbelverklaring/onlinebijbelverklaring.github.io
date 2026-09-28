@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 3
+
 OVER DE BEOEFENING VAN DE GODZALIGHEID, VOORAL TEN OPZICHTE VAN PERSONEN, DIE TOT HET HUISGEZIN BEHOREN
 
 Het tweede, het paranetische gedeelte, dat niet, zoals men soms heeft gemeend, met Hoofdst 2: 6 v. begint, ook niet, zoals door anderen is beweerd, met vs. 5, maar met dit nieuwe hoofdstuk begint, hangt evenwel met de overige afdeling ten nauwste samen en komt voor als een voortzetting daarvan. Nadat namelijk de apostel het wezen van de Christelijke staat, dat aan de ene kant een gestorven en begraven zijn met Christus, aan de andere kant een opgestaan zijn met Hem en een wandelen in een nieuw leven is, daartoe heeft aangewend, om zijn waarschuwing tegen de dwaalleraars te versterken en met zo’n doel vooral die eerste kant op de voorgrond stelde (vgl. Hoofdstuk 2: 20), zo gebruikt hij ditzelfde, maar nu vooral de andere kant op de voorgrond stellende, ertoe, om zijn aanmaning tot een waarachtig Christelijk wandelen zijn lezers op het hart te drukken. Eerst geeft hij de gronden daarvan aan, om deze vervolgens nader uiteen te zetten.

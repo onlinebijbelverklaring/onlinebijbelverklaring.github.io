@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 12
+
 1. MAAR Job antwoordde en zeide:
 2. Trouwens, omdat gijlieden het volk zijt, zo zal de wijsheid met ulieden sterven.
 3. Ik heb ook een hart, evenals gijlieden, ik zwicht niet voor u; en bij wien zijn niet dergelijke dingen?

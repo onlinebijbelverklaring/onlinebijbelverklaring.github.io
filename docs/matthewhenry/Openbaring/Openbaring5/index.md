@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 5
+
 1. EN ik zag in de rechterhand Desgenen Die op den troon zat, een boek, geschreven vanbinnen en vanbuiten, verzegeld met zeven zegelen.
 2. En ik zag een sterken engel, uitroepende met een grote stem: Wie is waardig het boek te openen en zijn zegelen open te breken?
 3. En niemand in den hemel, noch op de aarde, noch onder de aarde, kon het boek openen noch hetzelve inzien.

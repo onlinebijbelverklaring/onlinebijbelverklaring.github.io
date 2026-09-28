@@ -14,10 +14,19 @@ repo_url: https://github.com/onlinebijbelverklaring/onlinebijbelverklaring.githu
 edit_uri: blob/main/docs/
 repo_name: onlinebijbelverklaring.github.io
 
+# Extra JavaScript
+extra_javascript:
+  - assets/javascripts/font-size.js
+
+# Extra CSS
+extra_css:
+  - assets/stylesheets/extra.css
+
+
 # Configuration
 theme:
-  font:
-    text: Montserrat
+#  font:
+#    text: Montserrat
   icon:
     repo: fontawesome/brands/github
     edit: material/playlist-edit
@@ -25,6 +34,7 @@ theme:
     logo: material/book-open-variant
   favicon: assets/favicon.png
   name: material
+  variant: modern
   custom_dir: overrides
   features:
     - header.autohide
@@ -43,28 +53,35 @@ theme:
     - navigation.tabs.sticky
     - toc.follow
     - content.tabs.link
-    - content.code.annotatioin
+    - content.code.annotate
     - content.code.copy
     - content.tooltips
     - content.action.edit
   language: nl
   palette:
-     # Palette toggle for light mode
+    # Palette toggle for automatic mode
+    - media: "(prefers-color-scheme)"
+      toggle:
+        icon: lucide/sun-moon
+        name: Switch naar lichte mode
+
+    # Palette toggle for light mode
     - media: "(prefers-color-scheme: light)"
       scheme: default
       primary: black
-      accent: indigo
+      accent: indigo 
       toggle:
-        icon: material/weather-night
-        name: Donkere modus
+        icon: lucide/sun
+        name: Switch naar donkere mode
+
     # Palette toggle for dark mode
     - media: "(prefers-color-scheme: dark)"
       scheme: slate
       primary: black
       accent: indigo
       toggle:
-        icon: material/weather-sunny
-        name: Lichte modus
+        icon: lucide/moon
+        name: Switch naar automatische mode
 
 # Additional configuration
 extra:
@@ -100,6 +117,8 @@ markdown_extensions:
 
 # Plugins
 plugins:
+  - search:
+      enabled: false
   - git-revision-date-localized:
       enable_creation_date: true
       type: date
@@ -115,7 +134,7 @@ nav:
     - Voorrede: matthewhenry/voorrede.md
     - Oude Testament:
       - Genesis:
-        - Genesis: matthewhenry/Genesis/index.md
+        - Genesis: matthewhenry/Genesis/index.md 
         - Genesis 1: matthewhenry/Genesis/Genesis1/index.md
         - Genesis 2: matthewhenry/Genesis/Genesis2/index.md
         - Genesis 3: matthewhenry/Genesis/Genesis3/index.md
@@ -2416,37 +2435,37 @@ nav:
         - Hábakuk 1: karlaugustdachsel/Habakuk/Habakuk1.md
         - Hábakuk 2: karlaugustdachsel/Habakuk/Habakuk2.md
         - Hábakuk 3: karlaugustdachsel/Habakuk/Habakuk3.md
-#      -   Zefánja:
-  #      -   Zefánja: karlaugustdachsel/Zefanja.md
-  #      -   Zefánja 1: karlaugustdachsel/Zefanja/Zefanja1.md
-  #      -   Zefánja 2: karlaugustdachsel/Zefanja/Zefanja2.md
-  #      -   Zefánja 3: karlaugustdachsel/Zefanja/Zefanja3.md
-#      -   Haggaï:
-  #      -   Haggaï: karlaugustdachsel/Haggai.md
-  #      -   Haggaï 1: karlaugustdachsel/Haggai/Haggai1.md
-  #      -   Haggaï 2: karlaugustdachsel/Haggai/Haggai2.md
-#      -   Zacharía:
-  #      -   Zacharía: karlaugustdachsel/Zacharia.md
-  #      -   Zacharía 1: karlaugustdachsel/Zacharia/Zacharia1.md
-  #      -   Zacharía 2: karlaugustdachsel/Zacharia/Zacharia2.md
-  #      -   Zacharía 3: karlaugustdachsel/Zacharia/Zacharia3.md
-  #      -   Zacharía 4: karlaugustdachsel/Zacharia/Zacharia4.md
-  #      -   Zacharía 5: karlaugustdachsel/Zacharia/Zacharia5.md
-  #      -   Zacharía 6: karlaugustdachsel/Zacharia/Zacharia6.md
-  #      -   Zacharía 7: karlaugustdachsel/Zacharia/Zacharia7.md
-  #      -   Zacharía 8: karlaugustdachsel/Zacharia/Zacharia8.md
-  #      -   Zacharía 9: karlaugustdachsel/Zacharia/Zacharia9.md
-  #      -   Zacharía 10: karlaugustdachsel/Zacharia/Zacharia10.md
-  #      -   Zacharía 11: karlaugustdachsel/Zacharia/Zacharia11.md
-  #      -   Zacharía 12: karlaugustdachsel/Zacharia/Zacharia12.md
-  #      -   Zacharía 13: karlaugustdachsel/Zacharia/Zacharia13.md
-  #      -   Zacharía 14: karlaugustdachsel/Zacharia/Zacharia14.md
-#      -   Maleáchi:
-  #      -   Maleáchi: karlaugustdachsel/Maleachi/index.md
-  #      -   Maleáchi 1: karlaugustdachsel/Maleachi/Maleachi1.md
-  #      -   Maleáchi 2: karlaugustdachsel/Maleachi/Maleachi2.md
-  #      -   Maleáchi 3: karlaugustdachsel/Maleachi/Maleachi3.md
-  #      -   Maleáchi 4: karlaugustdachsel/Maleachi/Maleachi4.md
+      - Zefánja:
+        - Zefánja: karlaugustdachsel/Zefanja/index.md
+        - Zefánja 1: karlaugustdachsel/Zefanja/Zefanja1.md
+        - Zefánja 2: karlaugustdachsel/Zefanja/Zefanja2.md
+        - Zefánja 3: karlaugustdachsel/Zefanja/Zefanja3.md
+      - Haggaï:
+        - Haggaï: karlaugustdachsel/Haggai/index.md
+        - Haggaï 1: karlaugustdachsel/Haggai/Haggai1.md
+        - Haggaï 2: karlaugustdachsel/Haggai/Haggai2.md
+      - Zacharía:
+        - Zacharía: karlaugustdachsel/Zacharia/index.md
+        - Zacharía 1: karlaugustdachsel/Zacharia/Zacharia1.md
+        - Zacharía 2: karlaugustdachsel/Zacharia/Zacharia2.md
+        - Zacharía 3: karlaugustdachsel/Zacharia/Zacharia3.md
+        - Zacharía 4: karlaugustdachsel/Zacharia/Zacharia4.md
+        - Zacharía 5: karlaugustdachsel/Zacharia/Zacharia5.md
+        - Zacharía 6: karlaugustdachsel/Zacharia/Zacharia6.md
+        - Zacharía 7: karlaugustdachsel/Zacharia/Zacharia7.md
+        - Zacharía 8: karlaugustdachsel/Zacharia/Zacharia8.md
+        - Zacharía 9: karlaugustdachsel/Zacharia/Zacharia9.md
+        - Zacharía 10: karlaugustdachsel/Zacharia/Zacharia10.md
+        - Zacharía 11: karlaugustdachsel/Zacharia/Zacharia11.md
+        - Zacharía 12: karlaugustdachsel/Zacharia/Zacharia12.md
+        - Zacharía 13: karlaugustdachsel/Zacharia/Zacharia13.md
+        - Zacharía 14: karlaugustdachsel/Zacharia/Zacharia14.md
+      - Maleáchi:
+        - Maleáchi: karlaugustdachsel/Maleachi/index.md
+        - Maleáchi 1: karlaugustdachsel/Maleachi/Maleachi1.md
+        - Maleáchi 2: karlaugustdachsel/Maleachi/Maleachi2.md
+        - Maleáchi 3: karlaugustdachsel/Maleachi/Maleachi3.md
+        - Maleáchi 4: karlaugustdachsel/Maleachi/Maleachi4.md
     - Nieuwe Testament:
       - Matthéüs:
         - Matthéüs: karlaugustdachsel/Mattheus/index.md
@@ -2516,12 +2535,12 @@ nav:
         - Lukas 16: karlaugustdachsel/Lukas/Lukas16.md
         - Lukas 17: karlaugustdachsel/Lukas/Lukas17.md
         - Lukas 18: karlaugustdachsel/Lukas/Lukas18.md
-  #      - Lukas 19: karlaugustdachsel/Lukas/Lukas19.md
-  #      - Lukas 20: karlaugustdachsel/Lukas/Lukas20.md
-  #      - Lukas 21: karlaugustdachsel/Lukas/Lukas21.md
-  #      - Lukas 22: karlaugustdachsel/Lukas/Lukas22.md
-  #      - Lukas 23: karlaugustdachsel/Lukas/Lukas23.md
-  #      - Lukas 24: karlaugustdachsel/Lukas/Lukas24.md
+        - Lukas 19: karlaugustdachsel/Lukas/Lukas19.md
+        - Lukas 20: karlaugustdachsel/Lukas/Lukas20.md
+        - Lukas 21: karlaugustdachsel/Lukas/Lukas21.md
+        - Lukas 22: karlaugustdachsel/Lukas/Lukas22.md
+        - Lukas 23: karlaugustdachsel/Lukas/Lukas23.md
+        - Lukas 24: karlaugustdachsel/Lukas/Lukas24.md
       - Johannes:
         - Johannes: karlaugustdachsel/Johannes/index.md
         - Johannes 1: karlaugustdachsel/Johannes/Johannes1.md

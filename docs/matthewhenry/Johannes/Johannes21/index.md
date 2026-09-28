@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 21
+
 1. Na dezen openbaarde Jezus Zichzelf wederom de discipelen aan de zee van Tiberias. En Hij openbaarde Zich aldus: 
 2. Er waren te zamen Simon Petrus, en Thomas, gezegd Didymus, en Nathanael, die van Kana in Galiléa was, en de zonen van Zebedeus, en twee anderen van Zijn discipelen. 
 3. Simon Petrus zeide tot hen: Ik ga vissen. Zij zeiden tot hem: Wij gaan ook met u. Zij gingen uit, en traden terstond in het schip; en in dien nacht vingen zij niets. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 22
+
 1. VERDER geschiedde des HEEREN woord tot mij, zeggende:
 2. Gij nu, mensenkind, zoudt gij der bloedstad recht geven? Zoudt gij ze recht geven? Ja, maak haar bekend al haar gruwelen;
 3. En zeg: Alzo zegt de Heere HEERE: O stad, die in haar midden bloed vergiet, opdat haar tijd kome, en drekgoden tegen zichzelve maakt om zich te verontreinigen.

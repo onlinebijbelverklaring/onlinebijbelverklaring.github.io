@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 7
+
 OVER ENIGE HINDERNISSEN VAN DE ZALIGHEID.
 
 ## I. Vers 1-12

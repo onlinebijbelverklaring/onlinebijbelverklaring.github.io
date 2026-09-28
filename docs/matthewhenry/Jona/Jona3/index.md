@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 3
+
 1. En het woord des HEEREN geschiedde ten anderen male tot Jona, zeggende:
 2. Maak u op, ga naar de grote stad Nineve; en predik tegen haar de prediking, die Ik tot u spreek. 
 3. Toen maakte zich Jona op, en ging naar Nineve, naar het woord des HEEREN. Nineve nu was een grote stad Gods, van drie dagreizen. 

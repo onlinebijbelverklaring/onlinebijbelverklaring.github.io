@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 10
+
 1. En toen de koningin van Scheba het gerucht van Salomo hoorde, aangaande de Naam des HEEREN, kwam zij, om hem met raadselen te verzoeken. 
 2. En zij kwam te Jeruzalem, met een zeer zwaar heir, met kemelen, dragende specerijen, en zeer veel gouds, en kostelijk gesteente; en zij kwam tot Salomo, en sprak tot hem al wat in haar hart was. 
 3. En Salomo verklaarde haar al haar woorden; geen ding was er verborgen voor de koning, dat hij haar niet verklaarde. 

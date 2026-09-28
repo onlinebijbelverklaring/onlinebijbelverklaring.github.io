@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 3
+
 1. Dezen nu waren de kinderen van David, die hem te Hebron geboren zijn: de eerstgeborene Amnon, van Ahinoam, de Jizreëlietische; de tweede Daniel, van Abigail, de Karmelietische; 
 2. De derde Absalom, de zoon van Maacha, de dochter van Thalmai, de koning te Gesur; de vierde Adonia, de zoon van Haggith; 
 3. De vijfde Sefatja, van Abital; de zesde Jithream, van zijn huisvrouw Egla. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Titus 1
+
 1. PAULUS, een dienstknecht Gods en een apostel van JEZUS CHRISTUS, naar het geloof der uitverkorenen Gods, en de kennis der waarheid, die naar de godzaligheid is,
 2. In de hope des eeuwigen levens, welke God, Die niet liegen kan, beloofd heeft vóór de tijden der eeuwen, maar geopenbaard heeft te zijner tijd;
 3. Namelijk Zijn Woord, door de prediking die mij toebetrouwd is, naar het bevel van God onzen Zaligmaker: aan Titus, mijn oprechten zoon naar het gemeen geloof:

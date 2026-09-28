@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 30
+
 JAKOB’S KINDEREN EN RIJKDOM.
 
 ***1. Als nu Rachel, waarschijnlijk tegen het einde van het tweede jaar van haar huwelijk, zag, dat zij Jakob niet baarde, zo benijdde Rachel haar zuster, 1) die spoedig op elkaar, binnen twintig maanden, twee zonen gebaard had, en nu voor de derde maal zwanger was (hoofdstuk. 29:32-34); en zij zei in hevige hartstocht tot Jakob: Geef mij kinderen, of indien niet, zo ben ik dood,

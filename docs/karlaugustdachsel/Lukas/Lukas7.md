@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 7
+
 DE KNECHT VAN DE HOOFDMAN. DE JONGELING TE NAIN. JOHANNES EN ZIJN DISCIPELEN. DE GROTE ZONDARES
 
 ## III. Vers 1-10

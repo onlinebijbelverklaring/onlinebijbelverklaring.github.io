@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 27
+
 1. TE dien dage zal de HEERE met Zijn hard en groot en sterk zwaard bezoeken den leviathan, de langwemelende slang, ja, den leviathan, de kromme slomme slang; en Hij zal den draak die in de zee is, doden.
 2. Te dien dage zal er een wijngaard van roden wijn zijn; zingt van denzelven bij beurten.
 3. Ik, de HEERE, behoed dien, alle ogenblik zal Ik hem bevochtigen; opdat de vijand hem niet bezoeke, zal Ik hem bewaren nacht en dag.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 3
+
 1. OM deze oorzaak ben ik, Paulus, de gevangene van Christus Jezus voor u, die heidenen zijt;
 2. Indien gij maar gehoord hebt van de bedeling der genade Gods, die mij gegeven is aan u,
 3. Dat Hij mij door openbaring heeft bekendgemaakt deze verborgenheid (gelijk ik met weinige woorden tevoren geschreven heb,

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 146
+
 1. HALLELUJAH. O mijn ziel, prijs den HEERE.
 2. Ik zal den HEERE prijzen in mijn leven; ik zal mijn God psalmzingen, terwijl ik nog ben.
 3. Vertrouwt niet op prinsen, op des mensen kind, bij hetwelk geen heil is.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 22
+
 1. ALZO zegt de HEERE: Ga af in het huis des konings van Juda, en spreek aldaar dit woord,
 2. En zeg: Hoor het woord des HEEREN, gij koning van Juda, gij die zit op Davids troon, gij en uw knechten en uw volk, die door deze poorten ingaan.
 3. Zo zegt de HEERE: Doet recht en gerechtigheid, en redt den beroofde uit de hand des verdrukkers; en onderdrukt den vreemdeling niet, den wees noch de weduwe; doet geen geweld en vergiet geen onschuldig bloed in deze plaats.

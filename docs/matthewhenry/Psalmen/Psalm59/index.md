@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 59
+
 1. EEN gouden kleinood van David, voor den opperzangmeester, Altáscheth; toen Saul gezonden had, die zijn huis bewaren zouden, om hem te doden.
 2. Red mij van mijn vijanden, o mijn God, stel mij in een hoog vertrek voor degenen die tegen mij opstaan.
 3. Red mij van de werkers der ongerechtigheid, en verlos mij van de mannen des bloeds.

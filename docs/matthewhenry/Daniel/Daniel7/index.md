@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 7
+
 1. IN het eerste jaar van Bélsazar, den koning van Babel, zag Daniël een droom en gezichten zijns hoofds op zijn leger; toen schreef hij dien droom en hij zeide de hoofdsom der zaken.
 2. Daniël antwoordde en zeide: Ik zag in mijn gezicht bij nacht, en zie, de vier winden des hemels braken voort op de grote zee.
 3. En er klommen vier grote dieren op uit de zee, het ene van het andere verscheiden.

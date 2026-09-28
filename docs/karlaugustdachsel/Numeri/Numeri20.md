@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 20
+
 WATER UIT DE ROTSSTEEN. MIRJAM EN AÄRON STERVEN.
 
 ## I. Vers 1-13

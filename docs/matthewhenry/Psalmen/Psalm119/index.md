@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 119
+
 1. WELGELUKZALIG zijn de oprechten van wandel, die in de wet des HEEREN gaan.
 2. Welgelukzalig zijn zij die Zijn getuigenissen onderhouden, die Hem van ganser harte zoeken;
 3. Ook geen onrecht werken, maar wandelen in Zijn wegen.

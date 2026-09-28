@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 2 Kronieken
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET TWEEDE BOEK DER KRONIEKEN
 
 Dit boek begint met de regering van Salomo en het bouwen van de tempel, en zet de geschiedenis voort der koningen van Juda, van toen aan tot aan de gevangenschap, en eindigt dus met de val dier doorluchtige monarchie en de verwoesting van de tempel. Gelijk deze monarchie van het huis van David vroeger was in tijd dan de vier vermaarde monarchieën van Nebukadnézars droom, zo overtrof zij ze ook in waardij en waardigheid. De Babylonische monarchie reken ik te beginnen met Nebukadnézar zelf: Gij zijt dat gouden hoofd. Dat heeft slechts ongeveer zeventig jaren geduurd; de Perzische monarchie, in verscheidene geslachten, ongeveer honderd en dertig jaren; de Griekse in haar onderscheiden vertakkingen, ongeveer driehonderd jaren, en nog eens driehonderd jaren gingen ver voor het Romeinse rijk. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 2
+
 1. Naomi nu had een bloedvriend van haar man, een man, geweldig van vermogen, van het geslacht van Elimelech; en zijn naam was Boaz. 
 2. En Ruth, de Moabietische, zeide tot Naomi: Laat mij toch in het veld gaan, en van de aren oplezen, achter dien, in wiens ogen ik genade zal vinden. En zij zeide tot haar: Ga heen, mijn dochter! 
 3. Zo ging zij heen, en kwam en las op in het veld, achter de maaiers; en haar viel bij geval voor, een deel van het veld van Boaz, die van het geslacht van Elimelech was. 

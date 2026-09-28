@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Klaagliederen 5
+
 1. GEDENK, HEERE, wat ons geschied is, aanschouw het en zie onzen smaad aan.
 2. Ons erfdeel is tot de vreemdelingen gewend, onze huizen tot de uitlanders.
 3. Wij zijn wezen zonder vader, onze moeders zijn als de weduwen.

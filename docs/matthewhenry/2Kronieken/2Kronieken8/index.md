@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 8
+
 1. Het geschiedde nu ten einde van twintig jaren, in dewelke Salomo het huis des HEEREN en zijn huis gebouwd had, 
 2. Dat Salomo de steden, welke Huram hem gegeven had, bouwde, en de kinderen Israëls aldaar deed wonen. 
 3. Daarna toog Salomo naar Hamath-zoba, en hij overweldigde het.

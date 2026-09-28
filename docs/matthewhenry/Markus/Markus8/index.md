@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 8
+
 1. IN dezelve dagen, als er een geheel grote schare was, en zij niet hadden wat zij eten zouden, riep Jezus Zijn discipelen tot Zich en zeide tot hen:
 2. Ik word innerlijk met ontferming bewogen over de schare; want zij zijn nu drie dagen bij Mij gebleven en hebben niet wat zij eten zouden.
 3. En indien Ik hen nuchter naar hun huis laat gaan, zo zullen zij op den weg bezwijken; want sommigen van hen komen van verre.

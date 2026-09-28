@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 31
+
 1. HET gebeurde ook in het elfde jaar, in de derde maand, op den eerste der maand, dat des HEEREN woord tot mij geschiedde, zeggende:
 2. Mensenkind, zeg tot Farao, den koning van Egypte, en tot zijn menigte: Wien zijt gij gelijk in uw grootheid?
 3. Zie, Assur was een ceder op den Libanon, schoon van takken, schaduwachtig van loof en hoog van stam, en zijn top was tussen dichte takken.

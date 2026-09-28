@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Joel 2
+
 1. Blaast de bazuin te Sion, en roept luide op de berg Mijner heiligheid; laat alle inwoners des lands beroerd zijn, want de dag des HEEREN komt, want hij is nabij. 
 2. Een dag van duisternis en donkerheid, een dag van wolken en dikke duisterheid, als de dageraad uitgespreid over de bergen; een groot en machtig volk, desgelijks vanouds niet geweest is, en na hetzelve niet meer zal zijn tot in jaren van vele geslachten. 
 3. Voor hetzelve verteert een vuur, en achter hetzelve brandt een vlam; het land is voor hetzelve als een lusthof, maar achter hetzelve een woeste wildernis, en ook is er geen ontkomen van hetzelve. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Judas
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN DE ALGEMENE BRIEF VAN DE APOSTEL JUDAS.
 
 Deze brief is, evenals enkele andere, genoemd een algemene, omdat hij niet onmiddellijk gericht is aan enigen persoon, aan een enkele gezin of aan een gemeente, maar aan de gehele gemeenschap van de Christenheid van dien tijd, die toen pas tot het Christendom bekeerd waren, uit het Jodendom of uit het heidendom. Hij zal van voortdurend, blijvend en bepaald nut zijn in en voor de gemeente zolang als het Christendom, dat is zolang als de tijd zal duren. De algemene bedoeling en inhoud is in vele opzichten gelijk aan die van het tweede hoofdstuk van de tweeden brief van Petrus, die reeds verklaard werd; en derhalve zal er minder over dezen hoeven gezegd te worden. Het doel is ons te waarschuwen tegen verleiders en hun verleiding; ons te bezielen met een warme liefde en hartelijke belangstelling voor de waarheid, de bewezen en belangrijke waarheid; en zulks in de nauwste vereniging met heiligheid, van welke liefdadigheid, of oprechte, ongeveinsde, broederlijke liefde een der voornaamste bestanddelen en het onafscheidelijk gevolg is. Wij moeten de waarheid vasthouden, en trachten te bewerken dat anderen met haar bekend worden en haar niet verlaten. 

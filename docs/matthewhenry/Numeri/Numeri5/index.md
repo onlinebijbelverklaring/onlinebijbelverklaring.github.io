@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 5
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Gebied de kinderen Israëls, dat zij uit het leger wegzenden alle melaatsen, en alle vloeienden, en allen, die onrein zijn van een dode. 
 3. Van de man tot de vrouw toe zult gij hen wegzenden; tot buiten het leger zult gij hen wegzenden; opdat zij niet verontreinigen hun legers, in welker midden Ik wone. 

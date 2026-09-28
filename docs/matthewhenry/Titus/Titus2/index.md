@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Titus 2
+
 1. DOCH gij, spreek hetgeen der gezonde leer betaamt.
 2. Dat de oude mannen nuchter zijn, stemmig, voorzichtig, gezond in het geloof, in de liefde, in de lijdzaamheid.
 3. De oude vrouwen insgelijks, dat zij in haar dracht zijn gelijk den heiligen betaamt, dat zij geen lasteraarsters zijn, zich niet tot veel wijn begevende, maar leraressen zijn van het goede;

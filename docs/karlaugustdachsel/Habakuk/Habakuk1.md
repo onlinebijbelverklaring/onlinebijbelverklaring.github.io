@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Habakuk 1
+
 INVAL DER CHALDEEN TEGEN JUDA.
  
 ***1. De last, de voorzegging van het zware oordeel en de verwerping van Juda en Jeruzalem (Jesaja 13:1), welken Habakuk (= omarmer), de Profeet, de Leviet, die het ambt van enen Profeet of mond Gods vervulde (Habakuk 3:19). gezien heeft in den laatsten tijd van den koning Manasse en onder den koning Josia tussen 650, 628 v. Chr.***

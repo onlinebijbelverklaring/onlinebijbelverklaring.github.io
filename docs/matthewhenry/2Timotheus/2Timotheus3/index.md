@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 3
+
 1. EN weet dit, dat in de laatste dagen ontstaan zullen zware tijden.
 2. Want de mensen zullen zijn liefhebbers van zichzelven, geldgierig, laatdunkend, hovaardig, lasteraars, den ouders ongehoorzaam, ondankbaar, onheilig;
 3. Zonder natuurlijke liefde, onverzoenlijk, achterklappers, onmatig, wreed, zonder liefde tot de goeden,

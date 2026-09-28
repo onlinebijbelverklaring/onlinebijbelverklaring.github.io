@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filippenzen 4
+
 OVER DE STANDVASTIGHEID EN GEESTELIJKE VREUGDE VAN DE CHRISTENEN. OVER DE GOEDDADIGHEID VAN DE FILIPPENSEN, AAN PAULUS BETOOND
 
 ***1. Zo dan, om hier de waarschuwingen, leringen en vermaningen, die ik u van vs. 2 af gaf, in een laatste kort woord samen te vatten, mijn geliefde en zeer gewenste broeders, u, die de voorwerpen van mijn liefdeen van mijn verlangen bent (Hoofdstuk 1: 8; 2: 24), mijn blijdschap, die mij verkwikt en mijn kroon, die mij versiert (1 Thess. 2: 19 v.), staat zo in de Heere. Houd u, zoals ik u heb voorgehouden, aan de ene kant vast tegenover de Judaisten aan de gerechtigheid door het geloof, evenals ik doe, en richt uw gedachten in tegenoverstelling tot de Epicureers met alle ware Christenen op het hemelse; doet dat in de Heere en houd zo uw plaats vast, zoals u die tot hiertoe heeft ingenomen, en laat u door niemand verdringen (1 Thess. 3: 8), geliefden! (Hoofdstuk 2: 12. Rom. 12: 19. 1 Kor. 10: 14. 2 Kor. 7: 1; 12: 19).***

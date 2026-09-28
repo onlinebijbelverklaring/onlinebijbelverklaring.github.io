@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 9
+
 1. En toen de koningin van Scheba het gerucht van Salomo hoorde, kwam zij, om Salomo met raadselen te verzoeken, te Jeruzalem, met een zeer zwaar heir, en kemelen, dragende specerijen en goud in menigte, en kostelijk gesteente; en zij kwam tot Salomo, en sprak met hem al wat in haar hart was. 
 2. En Salomo verklaarde haar al haar woorden; en geen ding was er verborgen voor Salomo, dat hij haar niet verklaarde. 
 3. Als nu de koningin van Scheba zag de wijsheid van Salomo, en het huis, dat hij gebouwd had, 

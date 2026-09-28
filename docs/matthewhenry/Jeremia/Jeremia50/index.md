@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 50
+
 1. HET woord dat de HEERE gesproken heeft tegen Babel, tegen het land der Chaldeeën, door den dienst van den profeet Jeremía.
 2. Verkondigt onder de heidenen en doet horen, en werpt een banier op, laat horen, verbergt het niet; zegt: Babel is ingenomen, Bel is beschaamd, Meródach is verpletterd, haar afgoden zijn beschaamd, haar drekgoden zijn verpletterd.
 3. Want een volk komt tegen haar op van het noorden; dat zal haar land zetten in verwoesting, dat er geen inwoner in zal zijn; van de mensen af tot de beesten toe zijn zij weggezworven, doorgegaan.

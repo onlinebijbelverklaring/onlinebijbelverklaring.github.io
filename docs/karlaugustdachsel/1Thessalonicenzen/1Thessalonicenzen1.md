@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 1
+
 VERMANING AAN DE THESSALONICENZEN OM IN HET CHRISTENDOM TE VOLHARDEN
 
 A. In deze eerste zendbrief, die Paulus aan het einde van het jaar 52, of toch zeker aan het begin van het jaar 53 na Christus van Corinthiërs aan een van zijn gemeenten gericht heeft, volgt de apostel in het opschrift, dat de aanvang vormt en de daaraan toegevoegde groet de manier van de oude briefstijl (Hand. 15: 23; 23: 26). Zo’n begin verenigt dan alles in zich, wat bij ons verdeeld wordt in aanspraak, groet, ondertekening en adres. Maar niet alleen in zijn eigen naam, maar ook in die van de bij hem aanwezige helpers, Silvanus en Timotheus, schrijft Paulus de brief, zoals zij ook gezamenlijk mondeling de Heere verkondigd hebben. De mannen, aan de gemeente zo dierbaar geworden, moeten dadelijk aan het begin weer verenigd voorkomen. Zij moet de schone, blijvende eenheid van deze onder elkaar opmerken en weten, dat zij niet slechts uit één mond, maar uit die van twee of drie getuigen hetzelfde Evangelie verneemt en door meerderen op het hart wordt gedragen.

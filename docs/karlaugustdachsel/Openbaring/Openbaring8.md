@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 8
+
 HET DERDE GEZICHT EN OPENING VAN HET ZEVENDE ZEGEL. DE EERSTE, TWEEDE, DERDE EN VIERDE BAZUIN
 
 ## VI. Vers 1-13

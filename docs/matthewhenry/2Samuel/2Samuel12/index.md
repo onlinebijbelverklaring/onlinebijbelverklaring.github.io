@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 12
+
 1. En de HEERE zond Nathan tot David. Als die tot hem inkwam, zeide hij tot hem: Er waren twee mannen in een stad, de een rijk en de ander arm. 
 2. De rijke had zeer veel schapen en runderen. 
 3. Maar de arme had gans niet dan een enig klein ooilam, dat hij gekocht had, en had het gevoed, dat het groot geworden was bij hem, en bij zijn kinderen tegelijk; het at van zijn bete, en dronk van zijn beker, en sliep in zijn schoot, en het was hem als een dochter. 

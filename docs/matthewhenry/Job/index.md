@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Job
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK JOB
 
 Dit boek van Job staat op zichzelf, staat in geen verband met een ander boek, en moet dus ook op zichzelf beschouwd worden. In vele exemplaren van de Hebreeuwse Bijbel is het achter het boek der Psalmen geplaatst, en in sommigen na de Spreuken, hetgeen misschien aan sommige geleerden aanleiding heeft gegeven te denken, dat het door Jesaja of een der latere profeten geschreven is. Daar echter het onderwerp naar veel vroeger tijd schijnt te verwijzen, hebben wij reden om te geloven dat ook de samenstelling van dit boek van veel ouderen datum is, en zo is het dus zeer voegzaam het eerst in deze verzameling van Goddelijke zedenkundige boeken geplaatst, en daar het ook leerstellig is, kan het zeer gevoeglijk het Boek der Psalmen, dat bovenal van Godsdienstige inhoud is, en het Boek der Spreuken, dat een praktische strekking heeft, voorafgaan en inleiden; want hoe zullen wij een God aanbidden, dien wij niet kennen? Wat nu dit boek betreft:

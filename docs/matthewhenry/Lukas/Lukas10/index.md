@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 10
+
 1. EN na dezen stelde de Heere nog andere zeventig, en zond hen heen voor Zijn aangezicht, twee en twee, in iedere stad en plaats waar Hij komen zou.
 2. Hij zeide dan tot hen: De oogst is wel groot, maar de arbeiders zijn weinige; daarom, bidt den Heere des oogstes, dat Hij arbeiders in Zijn oogst uitstote.
 3. Gaat heen; zie, Ik zend u als lammeren in het midden der wolven.

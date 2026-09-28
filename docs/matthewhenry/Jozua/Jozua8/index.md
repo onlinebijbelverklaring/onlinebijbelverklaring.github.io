@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 8
+
 1. Toen zeide de HEERE tot Jozua: Vrees niet, en ontzet u niet; neem met u al het krijgsvolk, en maak u op, trek op naar Ai; zie, Ik heb de koning van Ai, en zijn volk, en zijn stad, en zijn land in uw hand gegeven. 
 2. Gij nu zult aan Ai en haar koning doen, gelijk als gij aan Jericho en haar koning gedaan hebt; behalve dat gij haar roof en haar vee voor ulieden roven zult; stel u een achterlage tegen de stad, van achter dezelve. 
 3. Toen maakte zich Jozua op, en al het krijgsvolk, om op te trekken naar Ai. En Jozua verkoos dertig duizend mannen, strijdbare helden, en hij zond hen bij nacht uit, 

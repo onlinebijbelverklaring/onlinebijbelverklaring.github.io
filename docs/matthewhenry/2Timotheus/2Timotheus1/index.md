@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 1
+
 1. PAULUS, een apostel van JEZUS CHRISTUS, door den wil Gods, naar de belofte des levens dat in Christus Jezus is,
 2. Aan Timótheüs, mijn geliefden zoon: Genade, barmhartigheid, vrede zij u van God den Vader en Christus Jezus, onzen Heere.
 3. Ik dank God, Dien ik dien van mijn voorouders aan in een reine consciëntie, gelijk ik zonder ophouden uwer gedachtig ben in mijn gebeden nacht en dag;

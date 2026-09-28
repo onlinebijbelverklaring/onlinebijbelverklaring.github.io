@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 6
+
 HET BEOEFENEN VAN ZACHTMOEDIGHEID EN MILDDADIGHEID
 
 ***1. Broeders, a) als ook een mens, iemand uit uw midden (vgl. 1 Kor. 11: 28. Jak. 5: 19), overvallen was door enige misdaad, die hij begaan heeft zonder eigenlijk vooraf bedacht te hebben wat hij deed (Lev. 5: 4), u, die geestelijk bent, die nog in het bezit bent van de Heilige Geest en diens gaven (1Kor. 2: 15; 3: 1; 14: 37, brengt deze terecht met de geest van de zachtmoedigheid (Gal. 5: 22. 1 Kor. 4: 21 Doe dat, u, die uzelf meent te mogen rekenen onder degenen die geestelijk zijn, die meent te staan, ziende op uzelf, wakend, opdat ook u niet verzocht wordt en tot een val komt; dat zal u meer geschikt maken om terecht te brengen en de zachtmoedige geest, die daarvoor nodig is, bij u opwekken (1 Thessalonicenzen. 5: 14).***

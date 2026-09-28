@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 21
+
 1. En er was in Davids dagen een honger, drie jaren, jaar achter jaar; en David zocht het aangezicht des HEEREN. En de HEERE zeide: Het is om Saul en om des bloedhuizes wil, omdat hij de Gibeonieten gedood heeft. 
 2. Toen riep de koning de Gibeonieten, en zeide tot hen: (De Gibeonieten nu waren niet van de kinderen Israëls, maar van het overblijfsel der Amorieten; en de kinderen Israëls hadden hun gezworen, maar Saul zocht hen te slaan in zijn ijver voor de kinderen van Israël en Juda.) 
 3. David dan zeide tot de Gibeonieten: Wat zal ik ulieden doen, en waarmede zal ik verzoenen, dat gij het erfdeel des HEEREN zegent? 

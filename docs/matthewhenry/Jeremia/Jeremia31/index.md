@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 31
+
 1. TERZELFDER tijd, spreekt de HEERE, zal Ik allen geslachten Israëls tot een God zijn, en zij zullen Mij tot een volk zijn.
 2. Zo zegt de HEERE: Het volk der overgeblevenen van het zwaard heeft genade gevonden in de woestijn, namelijk Israël, als Ik heenging om hem tot rust te brengen.
 3. De HEERE is mij verschenen van verre tijden. Ja, Ik heb u liefgehad met een eeuwige liefde; daarom heb Ik u getrokken met goedertierenheid.

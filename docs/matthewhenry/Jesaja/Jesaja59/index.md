@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 59
+
 1. ZIE, de hand des HEEREN is niet verkort, dat zij niet zou kunnen verlossen; en Zijn oor is niet zwaar geworden, dat het niet zou kunnen horen.
 2. Maar uw ongerechtigheden maken een scheiding tussen ulieden en tussen uw God, en uw zonden verbergen het aangezicht van ulieden, dat Hij niet hoort.
 3. Want uw handen zijn met bloed bevlekt en uw vingers met ongerechtigheid; uw lippen spreken valsheid, uw tong dicht onrecht.

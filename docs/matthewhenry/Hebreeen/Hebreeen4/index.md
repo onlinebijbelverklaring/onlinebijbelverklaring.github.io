@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 4
+
 1. LAAT ons dan vrezen, dat niet te eniger tijd, de belofte van in Zijn rust in te gaan nagelaten zijnde, iemand van u schijne achtergebleven te zijn.
 2. Want ook ons is het Evangelie verkondigd, gelijk als hun; maar het woord der prediking deed hun geen nut, dewijl het met het geloof niet gemengd was in degenen die het gehoord hebben.
 3. Want wij die geloofd hebben, gaan in de rust, gelijk Hij gezegd heeft: Zo heb Ik dan gezworen in Mijn toorn: Indien zij zullen ingaan in Mijn rust! Hoewel Zijn werken van de grondlegging der wereld af al volbracht waren.

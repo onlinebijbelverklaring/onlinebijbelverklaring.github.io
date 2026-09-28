@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 33
+
 1. En Jakob hief zijn ogen op en zag; en ziet, Ezau kwam, en vierhonderd mannen met hem. Toen verdeelde hij de kinderen onder Lea, en onder Rachel, en onder de twee dienstmaagden. 
 2. En hij stelde de dienstmaagden en haar kinderen vooraan; en Lea en haar kinderen meer achterwaarts; maar Rachel en Jozef de achterste. 
 3. En hij ging voorbij hun aangezicht heen, en hij boog zich zeven malen ter aarde, totdat hij bij zijn broeder kwam. 

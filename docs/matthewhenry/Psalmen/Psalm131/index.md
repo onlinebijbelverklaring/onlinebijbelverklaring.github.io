@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 131
+
 1. EEN lied Hammaäloth, van David. O HEERE, mijn hart is niet verheven en mijn ogen zijn niet hoog; ook heb ik niet gewandeld in dingen mij te groot en te wonderlijk.
 2. Zo ik mijn ziel niet heb gezet en stilgehouden, gelijk een gespeend kind bij zijn moeder! Mijn ziel is als een gespeend kind in mij.
 3. Israël hope op den HEERE, van nu aan tot in der eeuwigheid.

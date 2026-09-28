@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 13
+
 1. Verder sprak de HEERE tot Mozes en tot Aäron, zeggende: 
 2. Een mens, als in het vel zijns vleses een gezwel, of gezweer, of witte blaar zal zijn, welke in het vel zijns vleses tot een plaag der melaatsheid zou worden, hij zal dan tot de priester Aäron, of tot een uit zijn zonen, de priesteren, gebracht worden. 
 3. En de priester zal de plaag in het vel des vleses bezien; zo het haar in die plaag in wit veranderd is, en het aanzien der plaag dieper is dan het vel zijns vleses, het is de plaag der melaatsheid; als de priester hem bezien zal hebben, dan zal hij hem onrein verklaren. 

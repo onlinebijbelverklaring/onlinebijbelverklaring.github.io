@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 71
+
 1. OP U, o HEERE, betrouw ik; laat mij niet beschaamd worden in eeuwigheid.
 2. Red mij door Uw gerechtigheid en bevrijd mij; neig Uw oor tot mij en verlos mij.
 3. Wees mij tot een Rotssteen om daarin te wonen, om geduriglijk daarin te gaan; Gij hebt bevel gegeven om mij te verlossen, want Gij zijt mijn Steenrots en mijn Burcht.

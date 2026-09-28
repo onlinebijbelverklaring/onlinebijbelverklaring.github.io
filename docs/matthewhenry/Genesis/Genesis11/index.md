@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 11
+
 1. En de ganse aarde was van enerlei spraak en enerlei woorden. 
 2. Maar het geschiedde, als zij tegen het oosten togen, dat zij een laagte vonden in het land Sinear; en zij woonden aldaar. 
 3. En zij zeiden een ieder tot zijn naaste: Kom aan, laat ons tichelen strijken, en wel doorbranden! En de tichel was hun voor steen, en het lijm was hun voor leem. 

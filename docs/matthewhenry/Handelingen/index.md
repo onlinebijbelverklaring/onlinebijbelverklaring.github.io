@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Handelingen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN DE HANDELINGEN DER APOSTELEN
 
 Wij hebben met grote blijdschap het fondament van onze heilige Godsdienst zien gelegd in de geschiedenis onzes gezegenden Zaligmakers, des groten Stichters van dien Godsdienst. Zij werd verhaald en te boek gesteld door vier van de Heilige Geest gedreven schrijvers, die allen overeenstemmen in deze heilige waarheid en de onbetwistbare bewijzen er van, dat Jezus is de Christus, de Zoon des levenden Gods. Op deze rots is de Christelijke kerk gebouwd. Hoe zij op deze rots is begonnen gebouwd te worden, zal verhaald worden in het boek, dat nu voor ons ligt, en daarvan hebben wij het getuigenis van slechts één getuige, want het was meer nodig om de feiten betreffende Christus volledig te verhalen en te betuigen, dan die betreffende de apostelen. Indien de Oneindige Wijsheid het nodig of geschikt had geoordeeld, dan zouden wij evenveel boeken over de Handelingen der Apostelen gehad hebben, als wij Evangeliën hebben, maar ten einde de wereld niet te overladen, Johannes 21:25, hebben wij genoeg om aan het doel te beantwoorden, zo wij er slechts gebruik van willen maken. De geschiedenis van dit boek, (hetwelk ten allen tijde als een deel van de gewijden canon is aangenomen), kan beschouwd worden als: 

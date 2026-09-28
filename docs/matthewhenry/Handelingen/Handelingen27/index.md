@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 27
+
 1. EN als het besloten was dat wij naar Italië zouden afvaren, leverden zij Paulus en enige andere gevangenen over aan een hoofdman over honderd, met name Július, van de keizerlijke bende.
 2. En in een Adramytteens schip gegaan zijnde, alzo wij de plaatsen langs Azië bevaren zouden, voeren wij af; en Aristárchus, de Macedóniër van Thessaloníca, was met ons.
 3. En des anderen daags kwamen wij aan te Sidon. En Július vriendelijk met Paulus handelende, liet hem toe tot de vrienden te gaan om van hen bezorgd te worden.

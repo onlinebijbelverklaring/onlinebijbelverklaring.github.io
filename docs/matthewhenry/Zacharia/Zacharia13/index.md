@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 13
+
 1. Te dien dage zal er een Fontein geopend zijn voor het huis Davids, en voor de inwoners van Jeruzalem, tegen de zonde en tegen de onreinheid. 
 2. En het zal te dien dage geschieden, spreekt de HEERE der heirscharen, dat Ik uitroeien zal uit het land de namen der afgoden, dat zij niet meer gedacht zullen worden; ja, ook de profeten, en de onreinen geest zal Ik uit het land wegdoen. 
 3. En het zal geschieden, wanneer iemand meer profeteert, dat zijn vader en zijn moeder, die hem gegenereerd hebben, tot hem zullen zeggen: Gij zult niet leven, dewijl gij valsheid gesproken hebt in de Naam des HEEREN; en zijn vader en zijn moeder, die hem gegenereerd hebben, zullen hem doorsteken, wanneer hij profeteert. 

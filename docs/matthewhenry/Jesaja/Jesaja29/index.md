@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 29
+
 1. WEE Ariël, Ariël, de stad waarin David gelegerd heeft; doet jaar tot jaar, laat hen feestoffers slachten.
 2. Evenwel zal Ik Ariël beangstigen, en er zal treuring en droefheid wezen, en die stad zal Mij gelijk Ariël zijn.
 3. Want Ik zal een leger in het rond om u slaan, en Ik zal u belegeren met bolwerken en Ik zal vestingen tegen u opwerpen.

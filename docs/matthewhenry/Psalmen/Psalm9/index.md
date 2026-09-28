@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 9
+
 1. EEN psalm van David, voor den opperzangmeester, op Mûth-Labben.
 2. Ik zal den HEERE loven met mijn ganse hart, ik zal al Uw wonderen vertellen.
 3. In U zal ik mij verblijden en van vreugde opspringen; ik zal Uw Naam psalmzingen, o Allerhoogste;

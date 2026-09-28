@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filipenzen 4
+
 1. ZO dan, mijn geliefde en zeer gewenste broeders, mijn blijdschap en kroon, staat alzo in den Heere, geliefden.
 2. Ik vermaan Euódia en ik vermaan Syntyche, dat zij eensgezind zijn in den Heere.
 3. En ik bid ook u, gij mijn oprechte metgezel, zijt dezen vrouwen behulpzaam, die met mij gestreden hebben in het Evangelie, ook met Clemens en de andere mijn medearbeiders, welker namen zijn in het boek des levens.

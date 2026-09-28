@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 128
+
 1. EEN lied Hammaäloth. Welgelukzalig is een iegelijk die den HEERE vreest, die in Zijn wegen wandelt.
 2. Want gij zult eten den arbeid uwer handen; welgelukzalig zult gij zijn, en het zal u welgaan.
 3. Uw huisvrouw zal wezen als een vruchtbare wijnstok aan de zijden van uw huis, uw kinderen als olijfplanten rondom uw tafel.

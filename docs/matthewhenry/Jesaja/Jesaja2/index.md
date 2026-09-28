@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 2
+
 1. HET woord dat Jesaja, de zoon van Amoz, gezien heeft over Juda en Jeruzalem.
 2. En het zal geschieden in het laatste der dagen, dat de berg van het huis des HEEREN zal vastgesteld zijn op den top der bergen, en dat hij zal verheven worden boven de heuvelen, en tot denzelven zullen alle heidenen toevloeien.
 3. En vele volken zullen heengaan en zeggen: Komt, laat ons opgaan tot den berg des HEEREN, tot het huis van den God Jakobs, opdat Hij ons lere van Zijn wegen en dat wij wandelen in Zijn paden. Want uit Sion zal de wet uitgaan, en des HEEREN woord uit Jeruzalem.

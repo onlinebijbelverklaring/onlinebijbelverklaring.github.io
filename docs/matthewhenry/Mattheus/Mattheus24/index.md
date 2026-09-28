@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 24
+
 1. EN Jezus ging uit en vertrok van den tempel; en Zijn discipelen kwamen bij Hem om Hem de gebouwen des tempels te tonen.
 2. En Jezus zeide tot hen: Ziet gij niet al deze dingen? Voorwaar zeg Ik u: Hier zal niet een steen op den anderen steen gelaten worden, die niet afgebroken zal worden.
 3. En als Hij op den Olijfberg gezeten was, gingen de discipelen tot Hem alleen, zeggende: Zeg ons, wanneer zullen deze dingen zijn? En welk zal het teken zijn van Uw toekomst en van de voleinding der wereld?

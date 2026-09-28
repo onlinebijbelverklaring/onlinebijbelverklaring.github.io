@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 1
+
 1. PAULUS, een apostel van JEZUS CHRISTUS door den wil Gods, den heiligen die te Éfeze zijn, en gelovigen in Christus Jezus:
 2. Genade zij u en vrede van God onzen Vader en den Heere Jezus Christus.
 3. Gezegend zij de God en Vader van onzen Heere Jezus Christus, Die ons gezegend heeft met alle geestelijke zegening in den hemel in Christus.

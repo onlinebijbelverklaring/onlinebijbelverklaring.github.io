@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 23
+
 1. Toen nu David oud was en zat van dagen, maakte hij zijn zoon Salomo tot koning over Israël. 
 2. En hij vergaderde al de vorsten van Israël, ook de priesters en de Levieten. 
 3. En de Levieten werden geteld, van dertig jaren af en daarboven; en hun getal was, naar hun hoofden, aan mannen, acht en dertig duizend. 

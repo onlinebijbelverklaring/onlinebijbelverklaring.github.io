@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 9
+
 1. HET volk dat in duisternis wandelt, zal een groot licht zien; degenen die wonen in het land van de schaduw des doods, over dezelve zal een licht schijnen.
 2. Gij hebt dit volk vermenigvuldigd, maar Gij hebt de blijdschap niet groot gemaakt; zij zullen nochtans blijde wezen voor Uw aangezicht, gelijk men zich verblijdt in den oogst, gelijk men verheugd is wanneer men den buit uitdeelt.
 3. Want het juk van hun last en den stok hunner schouders en den staf desgenen die hen dreef, hebt Gij verbroken, gelijk ten dage der Midianieten;

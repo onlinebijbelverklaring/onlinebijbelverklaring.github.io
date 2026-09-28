@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 31
+
 AANWIJZING VAN DE WERKMEESTERS. SABBATVIERING. TAFELEN VAN DE WET.
 
 ## I. Vers 1-11 

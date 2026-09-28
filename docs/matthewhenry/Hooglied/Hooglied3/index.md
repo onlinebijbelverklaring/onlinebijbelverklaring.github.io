@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 3
+
 1. IK zocht des nachts op mijn leger Hem Dien mijn ziel liefheeft; ik zocht Hem, maar ik vond Hem niet; ik zeide:
 2. Ik zal nu opstaan en in de stad omgaan, in de wijken en in de straten; ik zal Hem zoeken Dien mijn ziel liefheeft; ik zocht Hem, maar ik vond Hem niet.
 3. De wachters die in de stad omgingen, vonden mij; ik zeide: Hebt gij Dien gezien, Dien mijn ziel liefheeft?

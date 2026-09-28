@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 4
+
 1. EN Jezus, vol des Heiligen Geestes, keerde weder van de Jordaan, en werd door den Geest geleid in de woestijn,
 2. En werd veertig dagen verzocht van den duivel, en at gans niet in die dagen; en als dezelve geëindigd waren, zo hongerde Hem ten laatste.
 3. En de duivel zeide tot Hem: Indien Gij Gods Zoon zijt, zeg tot dezen steen dat hij brood worde.

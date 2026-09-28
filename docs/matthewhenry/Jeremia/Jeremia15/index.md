@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 15
+
 1. MAAR de HEERE zeide tot mij: Al stond Mozes en Samuël voor Mijn aangezicht, zo zou toch Mijn ziel tot dit volk niet wezen; drijf hen weg van Mijn aangezicht en laat hen uitgaan.
 2. En het zal geschieden wanneer zij tot u zullen zeggen: Waarheen zullen wij uitgaan? dat gij tot hen zult zeggen: Zo zegt de HEERE: Wie ter dood, ter dood; en wie ten zwaarde, ten zwaarde; en wie ten honger, ten honger; en wie ter gevangenis, ter gevangenis.
 3. Want Ik zal bezoeking over hen doen met vier geslachten, spreekt de HEERE: met het zwaard om te doden, en met de honden om te slepen, en met het gevogelte des hemels en met het gedierte der aarde om op te eten en te verderven.

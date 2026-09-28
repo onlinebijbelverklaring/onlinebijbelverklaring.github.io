@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 21
+
 1. EN ik zag een nieuwen hemel en een nieuwe aarde; want de eerste hemel en de eerste aarde was voorbijgegaan, en de zee was niet meer.
 2. En ik, Johannes, zag de heilige stad, het nieuwe Jeruzalem, nederdalende van God uit den hemel, toebereid als een bruid die voor haar man versierd is.
 3. En ik hoorde een grote stem uit den hemel, zeggende: Zie, de tabernakel Gods is bij de mensen, en Hij zal bij hen wonen, en zij zullen Zijn volk zijn, en God Zelf zal bij hen en hun God zijn.

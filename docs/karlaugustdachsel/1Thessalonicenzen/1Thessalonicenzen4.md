@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 4
+
 VERMANING TOT EEN HEILIGE WANDEL. VERTROOSTING IN DROEFHEID DOOR VOORSTELLING VAN DE OPSTANDING VAN DE DODEN
 
 C. De apostel had reeds in Hoofdstuk 3: 13 en 10 erop gewezen hoezeer de gemeente te Thessalonika, volgens hetgeen Timotheüs, behalve het goede, dat hem kon vertroosten, over de staat van zaken bij hem bericht had, behoefte had aan een volmaking van hun geloof. Nu gaat hij in het van hier volgende tweede gedeelte van zijn brief, dat vermaning en onderwijzing bevat, ertoe over, aan deze behoefte te voldoen. Vooral wil hij tegenover de verkeerde bekommerdheid, waarmee zij enkelen uit hun midden vóór de openbaring van Christus zagen wegsterven, zoals Timotheüs hun had meegedeeld, de uitgedrukte wens beantwoorden om onderrichting te ontvangen over de tijd van de dag van Christus, waarop hun gedachten zo vol verwachting waren gevestigd.

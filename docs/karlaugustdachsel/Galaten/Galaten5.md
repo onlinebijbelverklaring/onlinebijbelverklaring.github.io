@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 5
+
 VERMANING TOT HET RECHT GEBRUIKEN VAN DE CHRISTELIJKE VRIJHEID EN TOT GOEDE WERKEN
 
 D. Het derde paraenetische deel van de brief, dat zich ten nauwste aansluit aan het slotwoord van het vorige gedeelte, is streng genomen slechts in twee afdelingen te verdelen. Eensdeels handelt het over het staan in de door Christus verworvene vrijheid, aan de andere kant over het rechtmatig gebruik daarvan. Paulus kan zich reeds bij de eerste vermaning aan de Galaten, die op dit punt betrekking heeft, niet onthouden, hen als met geweld van de valse gehechtheid aan hun verleiders los te rukken en hen de verderfelijke invloed van deze te doen gevoelen. Bij de tweede vermaning, die het tweede punt aangaat, komt hij op deze verleiders terug, om het motief aan te wijzen, dat hen inwendig tot handelen dringt. Zo ligt het voor de hand minstens deze tweede uitval tegen de vijanden in een bijzondere afdeling te beschouwen.

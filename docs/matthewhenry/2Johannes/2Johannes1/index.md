@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Johannes 1
+
 1. De ouderling aan de uitverkoren vrouwe en aan haar kinderen, die ik in waarheid liefheb, en niet alleen ik, maar ook allen, die de waarheid gekend hebben; 
 2. Om der waarheid wil, die in ons blijft, en met ons zal zijn in der eeuwigheid: 
 3. Genade, barmhartigheid, vrede zij met ulieden van God de Vader, en van de Heere Jezus Christus, de Zoon des Vaders, in waarheid en liefde. 

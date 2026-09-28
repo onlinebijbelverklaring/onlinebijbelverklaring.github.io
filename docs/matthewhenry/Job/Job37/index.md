@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 37
+
 1. OOK beeft hierover mijn hart, en springt op uit zijn plaats.
 2. Hoort met aandacht de beweging Zijner stem, en het geluid dat uit Zijn mond uitgaat.
 3. Dat zendt Hij rechtuit onder den gansen hemel, en Zijn licht over de einden der aarde.

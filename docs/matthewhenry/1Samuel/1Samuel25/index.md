@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 25
+
 1. En Samuël stierf; en gans Israël vergaderde zich, en zij bedreven rouw over hem, en begroeven hem in zijn huis te Rama. En David maakte zich op, en toog af naar de woestijn Paran. 
 2. En er was een man te Maon, en zijn bedrijf was te Karmel; en die man was zeer groot, en hij had drie duizend schapen, en duizend geiten; en hij was in het scheren zijner schapen te Karmel. 
 3. En de naam des mans was Nabal, en de naam zijner huisvrouw was Abigaïl; en de vrouw was goed van verstand, en schoon van gedaante; maar de man was hard en boos van daden, en hij was een Kalebiet. 

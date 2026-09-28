@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 1
+
 DE MENS IS MET ZIJNE AARDSE WIJSHEID NIET GELUKKIG, MAAR ENKEL IJDELHEID.
 
 ***1. De woorden van den prediker 1), den zoon van David, den koning te Jeruzalem.***

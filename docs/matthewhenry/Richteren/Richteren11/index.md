@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 11
+
 1. Jeftha nu, de Gileadiet, was een strijdbaar held, maar hij was een hoerekind; doch Gilead had Jeftha gegenereerd. 
 2. Gileads huisvrouw baarde hem ook zonen; en de zonen dezer vrouw, groot geworden zijnde, stieten Jeftha uit, en zeiden tot hem: Gij zult in het huis onzes vaders niet erven, want gij zijt een zoon van een andere vrouw. 
 3. Toen vlood Jeftha voor het aangezicht zijner broederen, en woonde in het land Tob; en ijdele mannen vergaderden zich tot Jeftha, en togen met hem uit. 

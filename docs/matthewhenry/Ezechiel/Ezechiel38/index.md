@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 38
+
 1. WIJDERS geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen Gog, het land van Magog, den hoofdvorst van Mesech en Tubal, en profeteer tegen hem,
 3. En zeg: Zo zegt de Heere HEERE: Zie, Ik wil aan u, o Gog, gij hoofdvorst van Mesech en Tubal.

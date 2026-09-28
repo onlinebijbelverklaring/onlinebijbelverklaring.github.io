@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 15
+
 1. TOEN kwamen tot Jezus enige schriftgeleerden en farizeeën, die van Jeruzalem waren, zeggende:
 2. Waarom overtreden Uw discipelen de inzetting der ouden? Want zij wassen hun handen niet wanneer zij brood zullen eten.
 3. Maar Hij antwoordende zeide tot hen: Waarom overtreedt ook gij het gebod Gods door uw inzetting?

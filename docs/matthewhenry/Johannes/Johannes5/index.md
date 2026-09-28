@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 5
+
 1. NA dezen was een feest der Joden, en Jezus ging op naar Jeruzalem.
 2. En er is te Jeruzalem aan de Schaapspoort een badwater, hetwelk in het Hebreeuws toegenaamd wordt Bethesda, hebbende vijf zalen.
 3. In dezelve lag een grote menigte van kranken, blinden, kreupelen, verdorden, wachtende op de roering van het water.

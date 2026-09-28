@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Filemon
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN PHILEMON
 
 Deze brief van Filémon is geplaatst de laatste van de brieven, die de naam van Paulus bevatten; wellicht omdat hij de kortste is en een bijzonder onderwerp behandelt, dat zeer verschilt van die der andere brieven. Maar toch een onderwerp, waarvan de Geest Gods, die de brief ingaf, zag dat de behandeling zeer leerrijk en nuttig voor de gemeente zou zijn. De zaak was deze: Filémon, een man van aanzien en waarschijnlijk een dienaar in de gemeente te Colosse, een stad van Frygië, had een dienaar genaamd Onésimus, die hem bestal en vluchtte. Deze kwam op zijn omzwervingen te Rome, waar Paulus toen gevangen was om des Evangelies wil. Door Gods Voorzienigheid kwam hij daar onder diens prediking, en werd daardoor bekeerd door de zegen Gods. Daarna had hij een tijdlang de apostel in zijn banden gediend, en was hem waarschijnlijk verder nuttig geweest. Maar Paulus, te weten komende dat hij de dienstknecht van een ander was, wilde hem zonder diens toestemming niet bij zich houden, doch zond hem terug met een aanbevelingsbrief, waarin hij ernstig verzocht om vergeving en vriendelijke wederaanneming.

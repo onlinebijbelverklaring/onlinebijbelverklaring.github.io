@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 12
+
 1. Dezen nu zijn het, die tot David kwamen naar Ziklag, toen hij nog besloten was voor het aangezicht van Saul, de zoon van Kis; zij waren ook onder de helden, die tot dien krijg hielpen. 
 2. Gewapend met bogen, rechts en links met stenen werpende, en met pijlen schietende uit de boog; zij waren van de broederen van Saul, uit Benjamin. 
 3. Het hoofd was Ahiezer, en Joas, zonen van Semaa, de Gibeathiet; daarna Jeziel en Pelet, zonen van Azmaveth, en Beracha, en Jehu, de Anathothiet. 

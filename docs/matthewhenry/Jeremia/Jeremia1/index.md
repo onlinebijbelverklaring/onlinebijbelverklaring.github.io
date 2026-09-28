@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 1
+
 1. DE woorden van Jeremía, den zoon van Hilkía, uit de priesters die te Anathoth waren, in het land van Benjamin;
 2. Tot welken het woord des HEEREN geschiedde in de dagen van Josía, zoon van Amon, koning van Juda, in het dertiende jaar zijner regering.
 3. Ook geschiedde het tot hem in de dagen van Jójakim, zoon van Josía, koning van Juda, totdat voleind werd het elfde jaar van Zedekía, zoon van Josía, koning van Juda; totdat Jeruzalem gevankelijk werd weggevoerd in de vijfde maand.

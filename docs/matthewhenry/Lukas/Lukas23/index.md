@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 23
+
 1. EN de gehele menigte van hen stond op en leidde Hem tot Pilatus.
 2. En zij begonnen Hem te beschuldigen, zeggende: Wij hebben bevonden dat Deze het volk verkeert, en verbiedt den keizer schattingen te geven, zeggende dat Hij Zelf Christus, de Koning, is.
 3. En Pilatus vraagde Hem, zeggende: Zijt Gij de Koning der Joden? En Hij antwoordde hem en zeide: Gij zegt het.

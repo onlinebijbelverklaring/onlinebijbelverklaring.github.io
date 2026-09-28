@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Petrus 1
+
 HET GELOOF VRUCHTBAAR IN GOEDE WERKEN. LOF VAN DE HEILIGE SCHRIFT
 
 A. Op drievoudige wijze wijkt het opschrift van deze tweede brief van Petrus (Deel 6 Aanh. b. 4) van dat van de eerste af: ten eerste wat betreft de wijze, waarop de schrijver zichzelf voorstelt, want die zich vroeger alleen Petrus noemde, noemt zich nu vollediger Simon Petrus; zo ook de aanwijzing van het ambt; want in plaats van het "een apostel van Jezus Christus" vinden wij hier het meer uitgebreide "een dienstknecht en apostel van Jezus Christus. " Eindelijk wat betreft de benaming van de lezers, ontbreekt de aanwijzing van de woonplaats. De uitdrukkingen zijn echter zo gekozen, dat men hier reeds bemerkt, dat de brief gericht is aan hen, van wie de eerste reeds heeft aangewezen, dat het de ware genade van God is, waarin zij staan. De groet, uit de eerste brief herhaald, verkrijgt nu ook door een aangehechte bijvoeging een uitbreiding met het oog op hetgeen de apostel nu vooral bedoelt, namelijk dat hun kennis van God en Christus niet door nadelige ketterse invloeden aan het wankelen wordt gebracht, maar dat zij integendeel in de ware, zaligmakende kennis toenemen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 17
+
 1. In het twaalfde jaar van Achaz, de koning van Juda, werd Hosea, de zoon van Ela, koning over Israël te Samaria, en regeerde negen jaren. 
 2. En hij deed dat kwaad was in de ogen des HEEREN; evenwel niet, als de koningen van Israël, die voor hem geweest waren. 
 3. Tegen hem toog op Salmaneser, koning van Assyrië; en Hosea werd zijn knecht, dat hij hem een geschenk gaf. 

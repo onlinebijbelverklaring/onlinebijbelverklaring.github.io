@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 6
+
 AANSTELLING VAN ARMENVERZORGERS. AANKLACHT VAN STEFANUS.
 
 ### g. Vers 1-7 

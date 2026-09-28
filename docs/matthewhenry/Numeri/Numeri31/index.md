@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 31
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Neem de wraak der kinderen Israëls van de Midianieten; daarna zult gij verzameld worden tot uw volken. 
 3. Mozes dan sprak tot het volk, zeggende: Dat zich mannen uit u ten strijde toerusten, en dat zij tegen de Midianieten zijn, om de wraak des HEEREN te doen aan de Midianieten. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 28
+
 1. WEE de hovaardige kroon der dronkenen van Efraïm, welks heerlijk sieraad is een afvallende bloem, die daar is op het hoofd der zeer vette vallei, der geslagenen van den wijn.
 2. Zie, de Heere heeft een sterke en machtige, er is gelijk een hagelvloed, een poort des verderfs; gelijk een vloed der sterke wateren die overvloeien, zal hij ze ter aarde nederwerpen met de hand.
 3. De hovaardige kronen der dronkenen van Efraïm zullen met voeten vertreden worden.

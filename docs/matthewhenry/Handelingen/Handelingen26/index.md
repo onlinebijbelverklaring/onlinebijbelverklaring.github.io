@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 26
+
 1. EN Agrippa zeide tot Paulus: Het is u geoorloofd voor uzelven te spreken. Toen strekte Paulus de hand uit, en verantwoordde zich aldus:
 2. Ik acht mijzelven gelukkig, o koning Agrippa, dat ik mij heden voor u zal verantwoorden van alles waarover ik van de Joden beschuldigd word;
 3. Allermeest dewijl ik weet dat gij kennis hebt van alle gewoonten en vragen, die onder de Joden zijn. Daarom bid ik u dat gij mij lankmoediglijk hoort.

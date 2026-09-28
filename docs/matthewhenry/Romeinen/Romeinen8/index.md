@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 8
+
 1. ZO is er dan nu geen verdoemenis voor degenen die in Christus Jezus zijn, die niet naar het vlees wandelen, maar naar den Geest.
 2. Want de wet des Geestes des levens in Christus Jezus heeft mij vrijgemaakt van de wet der zonde en des doods.
 3. Want hetgeen der wet onmogelijk was, dewijl zij door het vlees krachteloos was, heeft God, Zijn Zoon zendende in gelijkheid des zondigen vleses, en dat voor de zonde, de zonde veroordeeld in het vlees;

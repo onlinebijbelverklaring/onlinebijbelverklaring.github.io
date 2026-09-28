@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 63
+
 1. EEN psalm van David, als hij was in de woestijn van Juda.
 2. O God, Gij zijt mijn God, ik zoek U in den dageraad; mijn ziel dorst naar U, mijn vlees verlangt naar U, in een land, dor en mat, zonder water.
 3. (Voorwaar, ik heb U in het heiligdom aanschouwd, ziende Uw sterkheid en Uw eer.)

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 3
+
 DE RECHTVAARDIGHEID VAN HET GELOOF BEVESTIGD, HET JUISTE GEBRUIK VAN DE WET AANGEWEZEN
 
 C. Het tweede, dogmatische deel van de brief, door de laatste afdeling van het eerste deel reeds voorbereid, ontwikkelt ook het thema van de rechtvaardiging van de mensen voor God zonder de werken van de wet, alleen door het geloof, evenals later de brief aan de Romeinen dit nog sterker doet en daarbij het wezen en de werkingen van de rechtvaardigheid van het geloof, in tegenstelling met het verderf van de zonde duidelijk op de voorgrond laat treden. Hier dient daarentegen deze leer meer tot bewijs voor de hoofdstelling van de brief, dat de Christenen niet verplicht zijn de Mozaïsche wet te houden, want dat was voornamelijk de zaak waarover bij de Galaten gehandeld werd.

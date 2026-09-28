@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 99
+
 1. DE HEERE regeert, dat de volken beven; Hij zit tussen de cherubs; de aarde bewege zich.
 2. De HEERE is groot in Sion, en Hij is hoog boven alle volken.
 3. Dat zij Uw groten en vreselijken Naam loven, die heilig is;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 22
+
 1. MANNEN broeders en vaders, hoort mijn verantwoording, die ik tegenwoordig tot u doen zal.
 2. (Als zij nu hoorden dat hij in de Hebreeuwse taal hen aansprak, hielden zij zich te meer stil. En hij zeide:)
 3. Ik ben een Joods man, en te Tarsen in Cilícië geboren, opgevoed in deze stad aan de voeten van Gamáliël, onderwezen naar de bescheidenste wijze der vaderlijke wet, zijnde een ijveraar Gods, gelijkerwijs gij allen heden zijt;

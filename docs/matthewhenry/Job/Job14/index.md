@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 14
+
 1. DE mens, van een vrouw geboren, is kort van dagen en zat van onrust.
 2. Hij komt voort als een bloem en wordt afgesneden; ook vlucht hij als een schaduw en bestaat niet.
 3. Nog doet Gij Uw ogen over zulk een open; en Gij betrekt mij in het gericht met U.

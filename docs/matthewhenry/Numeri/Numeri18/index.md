@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 18
+
 1. Zo zeide de HEERE tot Aäron: Gij, en uw zonen, en het huis uws vaders met u, zult dragen de ongerechtigheid des heiligdoms; en gij, en uw zonen met u, zult dragen de ongerechtigheid van uw priesterambt. 
 2. En ook zult gij uw broederen, de stam van Levi, de stam uws vaders, met u doen naderen, dat zij u bijgevoegd worden, en u dienen; maar gij, en uw zonen met u, zult zijn voor de tent der getuigenis. 
 3. En zij zullen uw wacht waarnemen, en de wacht der ganse tent; doch tot het gereedschap des heiligdoms en het altaar zullen zij niet naderen, opdat zij niet sterven, zo zij als gijlieden. 

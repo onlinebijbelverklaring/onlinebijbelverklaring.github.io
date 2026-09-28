@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 7
+
 1. Daarna zeide de HEERE tot Noach: Ga gij, en uw ganse huis in de ark; want u heb Ik gezien rechtvaardig voor Mijn aangezicht in dit geslacht. 
 2. Van alle rein vee zult gij tot u nemen zeven en zeven, het mannetje en zijn wijfje; maar van het vee, dat niet rein is, twee, het mannetje en zijn wijfje. 
 3. Ook van het gevogelte des hemels zeven en zeven, het mannetje en het wijfje, om zaad levend te houden op de ganse aarde. 

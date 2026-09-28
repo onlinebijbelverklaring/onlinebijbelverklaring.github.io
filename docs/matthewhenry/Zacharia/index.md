@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Zacharia
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET ZACHARIA
 
 Deze profeet was een tijdgenoot van de profeet Haggaï, en zijn medewerker in de bevordering van de bouw van de tweeden tempel, Ezra 5:1; want twee zijn beter dan een. Christus zond Zijne discipelen twee aan twee uit. Zacharia begon enigen tijd later dan Haggaï te profeteren. Maar hij bleef langer profetisch werkzaam, steeg hoger in visioenen en openbaringen, schreef meer, en profeteerde meer in ‘t bijzonder van Christus dan Haggaï had gedaan; zo zullen de laatsten de eersten zijn: de laatsten in tijdsorde blijken soms de eersten in rangorde. 

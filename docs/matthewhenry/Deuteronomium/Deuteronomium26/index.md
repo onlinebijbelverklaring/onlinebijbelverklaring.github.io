@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 26
+
 1. Voorts zal het geschieden, wanneer gij zult gekomen zijn in het land, dat u de HEERE, uw God, ten erve geven zal, en gij dat erfelijk zult bezitten, en daarin wonen; 
 2. Zo zult gij nemen van de eerstelingen van alle vrucht des lands, die gij opbrengen zult van uw land, dat u de HEERE, uw God, geeft, en zult ze in een korf leggen; en gij zult heengaan tot de plaats, die de HEERE, uw God, verkoren zal hebben, om Zijn Naam aldaar te doen wonen; 
 3. En gij zult komen tot de priester, dewelke in die dagen zijn zal, en tot hem zeggen: Ik verklaar heden voor de HEERE, uw God, dat ik gekomen ben in het land, hetwelk de HEERE onzen vaderen gezworen heeft ons te zullen geven. 

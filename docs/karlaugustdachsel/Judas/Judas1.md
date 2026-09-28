@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Judas 1
+
 AANMANING OM TE VOLHARDEN IN EEN ZUIVERE LEER EN EEN REIN LEVEN TEGENOVER DE VERLEIDERS
 
 A. In het opschrift ter begroeting stelt Judas, die deze brief aan het einde van het jaar 65 of in het begin van het volgende jaar opstelde, zichzelf voor, niet slechts, zoals Jakobus dat doet, als een dienstknecht van Jezus Christus, maar hij noemt zich ook diens "broeder", om zo duidelijk vanaf het begin erop te wijzen, dat het voor die lezers bestemd was, tot wie die zich vroeger had gewend en dat hij nu diens ambt voortzette, nadat deze was weggenomen. Hij noemt dan ook de lezers niet met name, noch duidt de woonplaats aan, maar evenals Petrus in zijn tweede brief, geeft hij slechts zodanige aanwijzing, die hun hun waarde en verheven ereplaats doet voelen. Vervolgens richt hij zijn groet aan hen in een vorm, die het hier dadelijk doet voelen, dat zij door grote gevaren voor hun genadestaat bedreigd waren en nu daar tegenover een des te rijkere mate van goddelijke genade nodig hadden.

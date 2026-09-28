@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 11
+
 1. EN mij werd een rietstok gegeven, een meetroede gelijk; en de Engel stond en zeide: Sta op, en meet den tempel Gods en het altaar, en degenen die daarin aanbidden.
 2. En laat het voorhof dat van buiten den tempel is, uit, en meet dat niet, want het is den heidenen gegeven; en zij zullen de heilige stad vertreden twee en veertig maanden.
 3. En Ik zal Mijn twee getuigen macht geven, en zij zullen profeteren duizend tweehonderd zestig dagen, met zakken bekleed.

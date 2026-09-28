@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 29
+
 1. Dit zijn de woorden des verbonds, dat de HEERE Mozes geboden heeft te maken met de kinderen Israëls, in het land van Moab, boven het verbond, dat Hij met hen gemaakt had aan Horeb. 
 2. En Mozes riep gans Israël, en zeide tot hen: Gij hebt gezien al wat de HEERE in Egypteland voor uw ogen gedaan heeft, aan Farao, en aan al zijn knechten, en aan zijn land; 
 3. De grote verzoekingen, die uw ogen gezien hebben, diezelve tekenen en grote wonderen. 

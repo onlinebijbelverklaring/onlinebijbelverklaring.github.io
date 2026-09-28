@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 5
+
 1. MIJN zoon, merk op mijn wijsheid; neig uw oor tot mijn verstand;
 2. Opdat gij alle bedachtzaamheid behoudt, en uw lippen wetenschap bewaren.
 3. Want de lippen der vreemde vrouw druppen honingzeem, en haar gehemelte is gladder dan olie;

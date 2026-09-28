@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jesaja
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET JESAJA
 
 Profeet is een titel, die een grote klank heeft in de oren van hen, die hem begrijpen, hoewel velen, die er mede geëerd waren, in de ogen der wereld zeer gering werden geacht. Een profeet is iemand, die zeer gemeenzaam is met de hemel en er een groten invloed heeft, en bijgevolg een zeer groot gezag heeft op aarde. Profetie wordt genomen voor alle Goddelijke openbaring, 2 Petrus 1:20, 21, want deze werd gemeenlijk het eerst door dromen, stemmen of visioenen aan de profeten bekend gemaakt, en door hen aan de kinderen der mensen, Numeri 12:6. Eenmaal heeft God zelf tot de duizenden van Israël gesproken van de top van de berg Sinaï, maar dit was zo schrikkelijk, zo ondraaglijk, dat zij smeekten dat God voortaan tot hen zou spreken, zoals Hij tevoren gedaan had, door mensen, gelijk zij zelf waren, wier verschrikking hen niet zou beroeren, en wier land over hen niet zwaar zou zijn, Job 33:7. God heeft het voorstel goedgekeurd. Het is allemaal goed wat zij gesproken hebben, zegt Hij, Deuteronomium 5:27. 28; en de zaak werd toen vastgesteld met toestemming van beide partijen, dat wij nooit meer moeten verwachten op die wijze van God te zullen horen, maar door profeten, die hun instructies onmiddellijk van God ontvingen met last om ze over te leveren aan zijn kerk. 

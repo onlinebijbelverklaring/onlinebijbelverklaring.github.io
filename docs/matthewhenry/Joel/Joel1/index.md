@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Joel 1
+
 1. Het woord des HEEREN, dat geschied is tot Joël, de zoon van Pethuel. 
 2. Hoort dit, gij oudsten! en neemt ter oren, alle inwoners des lands! Is dit geschied in uw dagen, of ook in de dagen uwer vaderen? 
 3. Vertelt uw kinderen daarvan, en laat het uw kinderen hun kinderen vertellen, en derzelver kinderen aan een ander geslacht. 

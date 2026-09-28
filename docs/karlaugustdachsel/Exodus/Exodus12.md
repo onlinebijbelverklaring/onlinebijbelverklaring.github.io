@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 12
+
 INSTELLING VAN HET PASCHA. DOOD VAN DE EERSTGEBORENEN. BEGIN VAN DE UITTOCHT.
 
 ## I. Vers 1-20 

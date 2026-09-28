@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 28
+
 1. EN als zij ontkomen waren, toen verstonden zij dat het eiland Melíte heette.
 2. En de barbaren bewezen ons geen gemene vriendelijkheid; want een groot vuur ontstoken hebbende, namen zij ons allen in om den regen die overkwam en om de koude.
 3. En als Paulus een hoop rijzen bijeengeraapt en op het vuur gelegd had, kwam er een adder uit door de hitte en vatte zijn hand.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 4
+
 1. NA dezen zag ik, en zie, een deur was geopend in den hemel; en de eerste stem die ik gehoord had, als van een bazuin met mij sprekende, zeide: Kom hier op, en Ik zal u tonen hetgeen na dezen geschieden moet.
 2. En terstond werd ik in den geest; en zie, er was een troon gezet in den hemel, en er zat Een op den troon.
 3. En Die daarop zat, was in het aanzien den steen jaspis en sardis gelijk; en een regenboog was rondom den troon, in het aanzien den steen smaragd gelijk.

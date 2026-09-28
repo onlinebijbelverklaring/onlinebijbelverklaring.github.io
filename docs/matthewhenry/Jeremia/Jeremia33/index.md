@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 33
+
 1. VOORTS geschiedde des HEEREN woord ten tweeden male tot Jeremía, als hij nog in het voorhof der bewaring was opgesloten, zeggende:
 2. Zo zegt de HEERE, Die het doet, de HEERE, Die dat formeert, opdat Hij het bevestige, HEERE is Zijn Naam:
 3. Roep tot Mij, en Ik zal u antwoorden; en Ik zal u bekendmaken grote en vaste dingen, die gij niet weet.

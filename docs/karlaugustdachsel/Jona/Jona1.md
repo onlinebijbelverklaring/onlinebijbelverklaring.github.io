@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 1
+
 JONA’S ROEPING, ONGEHOORZAAMHEID EN STRAF.
 
 Het Boek wordt volgens zijne hoofdstukken in 4 grote afdelingen verdeeld, van welke de 1e Jona’s roeping naar Ninevé, zijne vlucht en bestraffing, de 2e Jona’s redding, de 3e Jona’s boetprediking te Ninevé, de 4e zijne mismoedigheid en terechtwijzing verhaalt.

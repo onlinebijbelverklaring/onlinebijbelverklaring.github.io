@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 3
+
 1. En Salomo verzwagerde zich met Farao, de koning van Egypte; en nam de dochter van Farao, en bracht ze in de stad Davids totdat hij voleind zou hebben het bouwen van zijn huis en het huis des HEEREN, en de muur van Jeruzalem rondom. 
 2. Alleenlijk offerde het volk op de hoogten, want geen huis was de Naam des HEEREN gebouwd, tot die dagen toe. 
 3. En Salomo had de HEERE lief, wandelende in de inzettingen van zijn vader David; alleenlijk offerde hij en rookte op de hoogten. 

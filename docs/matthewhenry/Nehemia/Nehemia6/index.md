@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 6
+
 1. Voorts is het geschied, als van Sanballat, en Tobia, en van Gesem, de Arabier, en van onze andere vijanden gehoord was, dat ik de muur gebouwd had, en dat geen scheur daarin was overgelaten; ook had ik tot dezen tijd toe de deuren niet opgezet in de poorten;
 2. Zo zond Sanballat, en Gesem, tot mij, om te zeggen: Kom en laat ons te zamen vergaderen in de dorpen, in het dal Ono. Maar zij dachten mij kwaad te doen. 
 3. En ik zond boden tot hen, om te zeggen: Ik doe een groot werk, zodat ik niet zal kunnen afkomen; waarom zou dit werk ophouden, terwijl ik het zou nalaten, en tot ulieden afkomen? 

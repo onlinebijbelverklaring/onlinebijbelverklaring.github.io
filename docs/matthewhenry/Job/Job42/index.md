@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 42
+
 1. TOEN antwoordde Job den HEERE en zeide:
 2. Ik weet dat Gij alles vermoogt, en dat geen van Uw gedachten kan afgesneden worden.
 3. Wie is hij, zegt Gij, die den raad verbergt zonder wetenschap? Zo heb ik dan verhaald hetgeen ik niet verstond, dingen die voor mij te wonderbaarlijk waren, die ik niet wist.

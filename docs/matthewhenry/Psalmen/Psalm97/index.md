@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 97
+
 1. DE HEERE regeert, de aarde verheuge zich; dat vele eilanden zich verblijden.
 2. Rondom Hem zijn wolken en donkerheid, gerechtigheid en gericht zijn de vastigheid Zijns troons.
 3. Een vuur gaat voor Zijn aangezicht heen, en het steekt Zijn wederpartijen rondom aan brand.

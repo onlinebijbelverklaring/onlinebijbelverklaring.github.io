@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 10
+
 1. Daarna zeide de HEERE tot Mozes: Ga in tot Farao; want Ik heb zijn hart verzwaard, ook het hart zijner knechten, opdat Ik deze Mijn tekenen in het midden van hen zette; 
 2. En opdat gij voor de oren uwer kinderen en uwer kindskinderen moogt vertellen, wat Ik in Egypte uitgericht heb, en Mijn tekenen, die Ik onder hen gesteld heb; opdat gijlieden weet, dat Ik de HEERE ben. 
 3. Zo gingen Mozes en Aaron tot Farao, en zeiden tot hem: Zo zegt de HEERE, de God der Hebreen: Hoe lang weigert gij u voor Mijn aangezicht te verootmoedigen? Laat Mijn volk trekken, dat zij Mij dienen. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 103
+
 1. EEN psalm van David. Loof den HEERE, mijn ziel, en al wat binnen in mij is, Zijn heiligen Naam.
 2. Loof den HEERE, mijn ziel, en vergeet geen van Zijn weldaden;
 3. Die al uw ongerechtigheid vergeeft, Die al uw krankheden geneest;

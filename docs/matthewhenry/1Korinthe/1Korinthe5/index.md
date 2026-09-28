@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 5
+
 1. MEN hoort ganselijk dat er hoererij onder u is, en zodanige hoererij die ook onder de heidenen niet genaamd wordt, alzo dat er een zijns vaders huisvrouw heeft.
 2. En zijt gij nog opgeblazen, en hebt niet veelmeer leed gedragen, opdat hij uit het midden van u weggedaan worde, die deze daad begaan heeft?
 3. Doch ik, als wel met het lichaam afwezend, maar tegenwoordig zijnde met den geest, heb alrede, alsof ik tegenwoordig ware, dengene die dat alzo bedreven heeft, besloten,

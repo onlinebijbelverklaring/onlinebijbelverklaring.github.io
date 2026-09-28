@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 7
+
 1. HEEFT niet de mens een strijd op de aarde? En zijn zijn dagen niet als de dagen des dagloners?
 2. Gelijk de dienstknecht hijgt naar de schaduw, en gelijk de dagloner verwacht zijn werkloon,
 3. Alzo zijn mij maanden der ijdelheid ten erve geworden, en nachten der moeite zijn mij voorbereid.

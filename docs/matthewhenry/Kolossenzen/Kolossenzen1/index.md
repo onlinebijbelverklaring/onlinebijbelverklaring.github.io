@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 1
+
 1. PAULUS, een apostel van JEZUS CHRISTUS door den wil Gods, en Timótheüs, de broeder,
 2. Den heiligen en gelovigen broederen in Christus die te Kolosse zijn: Genade zij u en vrede van God onzen Vader en den Heere Jezus Christus.
 3. Wij danken den God en Vader van onzen Heere Jezus Christus, altijd voor u biddende;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 2
+
 WANNEER EN HOE HET GEBED DOOR MANNEN EN VROUWEN IN DE GEMEENTE MOET WORDEN GEDAAN
 
 ## II. Vers 1-15

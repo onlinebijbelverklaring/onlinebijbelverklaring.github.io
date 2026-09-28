@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 16
+
 DE SCHALEN VAN DE TOORN VAN GOD WORDEN DOOR DE ZEVEN ENGELEN UITGEGOTEN
 
 ## IV. Vers 1-21

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Habakuk 1
+
 1. De last, welken Habakuk, de profeet, gezien heeft. 
 2. HEERE! hoe lang schreeuw ik, en Gij hoort niet, hoe lang roep ik geweld, tot U, en Gij verlost niet! 
 3. Waarom laat Gij mij ongerechtigheid zien, en aanschouwt de kwelling? Want verwoesting en geweld is tegen mij over, en er is twist, en men neemt gekijf op. 

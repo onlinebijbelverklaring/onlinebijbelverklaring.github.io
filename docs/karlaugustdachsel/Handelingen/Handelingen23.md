@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 23
+
 PAULUS WORDT BIJ ZIJN VERANTWOORDING VOOR DE RAAD TE JERUZALEM GESLAGEN, DOOR DE HEERE GETROOST EN UIT GEVAAR GERED
 
 ***1. En toen Paulus zag dat niemand het woord nam om hem te verhoren, begon hij, de ogen met een vaste, vrije blik op de raad gericht, waaruit zijn bereidwilligheid ter verantwoording zich afspiegelde (1 Petrus 3: 15). Hij zei: mannen broeders, gij, die met mij tot één en hetzelfde volk behoort (hoofdstuk 2: 29; 3: 12 en 17; 13: 26; 15: 7). a) Ik heb, wat mijn verhouding tot de theocratie, mijn gedrag in de maatschappij van het godsrijk aangaat (Fil. 1: 27), met alle goed geweten vanaf mijn jeugd voor God gewandeld tot op deze dag.***

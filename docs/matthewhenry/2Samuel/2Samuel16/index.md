@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 16
+
 1. Als nu David een weinig van de hoogte was voortgegaan, ziet, toen ontmoette hem Ziba, Mefiboseths jongen, met een paar gezadelde ezelen, en daarop tweehonderd broden, met honderd stukken rozijnen, en honderd stukken zomervruchten, en een lederen zak wijns. 
 2. En de koning zei tot Ziba: Wat zult gij daarmede? En Ziba zeide: De ezels zijn voor het huis des konings, om op te rijden en het brood en de zomervruchten, om te eten voor de jongens; en de wijn, opdat de moeden in de woestijn drinken. 
 3. Toen zeide de koning: Waar is dan de zoon uws heren? En Ziba zeide tot de koning: Zie, hij blijft te Jeruzalem, want hij zeide: Heden zal mij het huis Israëls mijns vaders koninkrijk wedergeven. 

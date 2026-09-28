@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 6
+
 1. Toen gaf de koning Darius bevel; en zij zochten in de kanselarij, waar de schatten waren weggelegd, in Babel. 
 2. En te Achmetha, in de burcht, die in het landschap Medië is, werd een rol gevonden; en daarin was aldus geschreven: GEDACHTENIS; 
 3. In het eerste jaar van de koning Kores, gaf de koning Kores dit bevel: Het huis Gods te Jeruzalem, dat huis zal gebouwd worden, ter plaatse, waar zij offeranden offeren, en de fondamenten daarvan zullen zwaar zijn; zijn hoogte van zestig ellen, en zijn breedte van zestig ellen; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 31
+
 1. Daarna ging Mozes heen, en sprak deze woorden tot gans Israël, 
 2. En zeide tot hen: Ik ben heden honderd en twintig jaren oud; ik zal niet meer kunnen uitgaan en ingaan; daartoe heeft de HEERE tot mij gezegd: Gij zult over deze Jordaan niet gaan. 
 3. De HEERE, uw God, Die zal voor uw aangezicht overgaan; Die zal deze volken van voor uw aangezicht verdelgen, dat gij hen erfelijk bezit. Jozua zal voor uw aangezicht overgaan, gelijk als de HEERE gesproken heeft. 

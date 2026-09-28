@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 7
+
 1. Terwijl Ik Israël genees, zo wordt Efraïms ongerechtigheid ontdekt, mitsgaders de boosheden van Samaria; want zij werken valsheid; en de dief gaat er in, de bende der straatschenders stroopt daar buiten. 
 2. En zij zeggen niet in hun hart, dat Ik al hunner boosheid gedachtig ben; nu omsingelen hen hun handelingen, zij zijn voor Mijn aangezicht. 
 3. Zij verblijden de koning met hun boosheid, en de vorsten met hun leugenen. 

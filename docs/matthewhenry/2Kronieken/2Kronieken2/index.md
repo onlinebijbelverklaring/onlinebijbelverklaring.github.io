@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 2
+
 1. Salomo nu dacht voor de Naam des HEEREN een huis te bouwen, en een huis voor zijn koninkrijk. 
 2. En Salomo telde zeventig duizend lastdragende mannen, en tachtig duizend mannen, die houwen zouden in het gebergte; mitsgaders drie duizend en zeshonderd opzieners over dezelve. 
 3. En Salomo zond tot Huram, de koning van Tyrus, zeggende: Gelijk als gij met waren mijn vader David gedaan hebt, en hebt hem cederen gezonden, om voor hem een huis te bouwen, om daarin te wonen, zo doe ook met mij. 

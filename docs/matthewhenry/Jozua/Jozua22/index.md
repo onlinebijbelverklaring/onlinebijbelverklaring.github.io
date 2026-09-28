@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 22
+
 1. Toen riep Jozua de Rubenieten, en de Gadieten, en de halven stam van Manasse, 
 2. En hij zeide tot hen: Gijlieden hebt onderhouden alles, wat u Mozes, de knecht des HEEREN, geboden heeft; en gij zijt mijner stem gehoorzaam geweest in alles, wat ik u geboden heb. 
 3. Gij hebt uw broederen niet verlaten nu langen tijd, tot op dezen dag toe; maar gij hebt waargenomen de onderhouding der geboden van de HEERE, uw God. 

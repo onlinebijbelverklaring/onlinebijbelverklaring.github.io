@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 12
+
 1. Toen zeide Samuël tot gans Israël: Ziet, ik heb naar ulieder stem gehoord in alles, wat gij mij gezegd hebt, en ik heb een koning over u gezet. 
 2. En nu, ziet, daar trekt de koning voor uw aangezicht heen, en ik ben oud en grijs geworden, en ziet, mijn zonen zijn bij ulieden; en ik heb voor uw aangezichten gewandeld van mijn jeugd af tot dezen dag toe. 
 3. Ziet, hier ben ik, betuigt tegen mij voor de HEERE, en voor Zijn gezalfde, wiens os ik genomen heb, en wiens ezel ik genomen heb, en wien ik verongelijkt heb, wien ik onderdrukt heb, en van wiens hand ik een geschenk genomen heb, dat ik mijn ogen van hem zou verborgen hebben; zo zal ik het ulieden wedergeven. 

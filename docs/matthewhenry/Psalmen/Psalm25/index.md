@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 25
+
 1. EEN psalm van David. Aleph. Tot U, o HEERE, hef ik mijn ziel op.
 2. Beth. Mijn God, op U vertrouw ik, laat mij niet beschaamd worden; laat mijn vijanden niet van vreugde opspringen over mij.
 3. Gimel. Ja, allen die U verwachten, zullen niet beschaamd worden; zij zullen beschaamd worden, die trouwelooslijk handelen zonder oorzaak.

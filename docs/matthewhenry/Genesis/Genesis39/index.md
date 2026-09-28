@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 39
+
 1. Jozef nu werd naar Egypte afgevoerd; en Potifar, een hoveling van Farao, een overste der trawanten, een Egyptisch man, kocht hem uit de hand der Ismaëlieten, die hem derwaarts afgevoerd hadden. 
 2. En de HEERE was met Jozef, zodat hij een voorspoedig man was; en hij was in het huis van zijn Heere, de Egyptenaar. 
 3. Als nu zijn Heere zag, dat de HEERE met hem was, en dat de HEERE al wat hij deed, door zijn hand voorspoedig maakte; 

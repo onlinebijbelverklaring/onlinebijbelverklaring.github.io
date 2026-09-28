@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 3
+
 VERDEDIGING VAN HET AMBT VAN DE EVANGELIEPREDIKING
 
 ## II. Vers 1-Hoofdstuk 5:21

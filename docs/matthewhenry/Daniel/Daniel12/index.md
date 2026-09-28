@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 12
+
 1. EN te dien tijde zal Michaël opstaan, die grote vorst, die voor de kinderen uws volks staat; als het zulk een tijd der benauwdheid zijn zal, als er niet geweest is sinds dat er een volk geweest is tot op dienzelven tijd toe; en te dien tijde zal uw volk verlost worden, al wie gevonden wordt geschreven te zijn in het boek.
 2. En velen van hen die in het stof der aarde slapen, zullen ontwaken, dezen ten eeuwigen leven, en genen tot versmaadheden en tot eeuwige afgrijzing.
 3. De leraars nu zullen blinken als de glans des uitspansels, en die er velen rechtvaardigen, gelijk de sterren, altoos en eeuwiglijk.

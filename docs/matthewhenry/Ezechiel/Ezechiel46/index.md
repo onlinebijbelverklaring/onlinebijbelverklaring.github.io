@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 46
+
 1. ALZO zegt de Heere HEERE: De poort van het binnenste voorhof die naar het oosten ziet, zal de zes werkdagen gesloten zijn, maar op den sabbatdag zal ze geopend worden; ook zal ze geopend worden op den dag van de nieuwe maand.
 2. En de vorst zal ingaan door den weg van het voorhuis derzelver poort van buiten, en zal staan aan den post van de poort; en de priesters zullen zijn brandoffer en zijn dankoffers bereiden, en hij zal aanbidden aan den dorpel der poort en daarna uitgaan; doch de poort zal niet gesloten worden tot op den avond.
 3. Ook zal het volk des lands aanbidden voor de deur derzelver poort, op de sabbatten en op de nieuwe maanden, voor het aangezicht des HEEREN.

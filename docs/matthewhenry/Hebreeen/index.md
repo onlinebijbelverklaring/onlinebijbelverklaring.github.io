@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Hebreeen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN DE BRIEF AAN DE HEBREEËN.
 
 Ten aanzien van dezen brief moeten wij onderzoek doen, naar:  

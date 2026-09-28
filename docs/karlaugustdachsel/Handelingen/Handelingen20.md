@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 20
+
 REIS VAN PAULUS NAAR TROAS EN MILETE EN WAT HIJ DAAR GEDAAN HEEFT
 
 ***1. Nadat nu het oproer, door Demetrius veroorzaakt, gestild was door het verstandig handelen van de stadsschrijver en dus dat wat de in hoofdst. 19: 21v. voorgenomen reis verhinderde, was weggenomen, riep Paulus de discipelen tot zich en groette hen (hoofdst. 18: 18). a) Hij vertrok vervolgens omstreeks Pinksteren van het jaar 57 richting Troas, waar het een voortreffelijk arbeidsveld voor hem zou zijn geweest, indien het hem niet was te doen geweest bekend te wordenmet de toestanden te Korinthe. Daarom was het zijn voornemen om naar Macedonië te reizen.***

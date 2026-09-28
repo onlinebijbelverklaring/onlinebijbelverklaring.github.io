@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 2
+
 1. ZO legt dan af alle kwaadheid en alle bedrog en geveinsdheid en nijdigheid en alle achterklappingen;
 2. En als nieuwgeboren kinderkens, zijt zeer begerig naar de redelijke onvervalste melk, opdat gij door dezelve moogt opwassen;
 3. Indien gij anders gesmaakt hebt dat de Heere goedertieren is.

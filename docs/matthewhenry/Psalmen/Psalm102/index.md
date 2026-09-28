@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 102
+
 1. EEN gebed des verdrukten, als hij overstelpt is, en zijn klacht uitstort voor het aangezicht des HEEREN.
 2. O HEERE, hoor mijn gebed, en laat mijn geroep tot U komen.
 3. Verberg Uw aangezicht niet voor mij, neig Uw oor tot mij ten dage mijner benauwdheid; ten dage als ik roep, verhoor mij haastelijk.

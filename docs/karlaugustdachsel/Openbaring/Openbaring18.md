@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 18
+
 OVER de VAL EN DE STRAF VAN HET ANTICHRISTISCHE RIJK
 
 ## VI. Vers 1-24

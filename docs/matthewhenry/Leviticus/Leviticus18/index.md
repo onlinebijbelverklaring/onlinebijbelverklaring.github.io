@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 18
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls en zeg tot hen: Ik ben de HEERE, uw God! 
 3. Gij zult niet doen naar de werken des Egyptischen lands, waarin gij gewoond hebt; en naar de werken des lands Kanaan, waarheen Ik u brenge, zult gij niet doen, en zult in hun inzettingen niet wandelen. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 46
+
 1. EEN lied op Alámoth, voor den opperzangmeester, onder de kinderen van Korach.
 2. God is ons een Toevlucht en Sterkte; Hij is krachtiglijk bevonden een Hulp in benauwdheden.
 3. Daarom zullen wij niet vrezen, al veranderde de aarde haar plaats, en al werden de bergen verzet in het hart van de zeeën.

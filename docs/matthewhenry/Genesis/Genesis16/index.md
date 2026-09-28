@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 16
+
 1. Doch Sarai, Abrams huisvrouw, baarde hem niet; en zij had een Egyptische dienstmaagd, welker naam was Hagar. 
 2. Zo zeide Sarai tot Abram: Zie toch, de HEERE heeft mij toegesloten, dat ik niet bare; ga toch in tot mijn dienstmaagd, misschien zal ik uit haar gebouwd worden. En Abram hoorde naar de stem van Sarai. 
 3. Zo nam Sarai, Abrams huisvrouw, de Egyptische Hagar, haar dienstmaagd, ten einde van tien jaren, welke Abram in het land Kanaän gewoond had, en zij gaf haar aan Abram, haar man, hem tot een vrouw. 

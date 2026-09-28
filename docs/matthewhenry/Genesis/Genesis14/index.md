@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 14
+
 1. En het geschiedde in de dagen van Amrafel, de koning van Sinear, van Arioch, de koning van Ellasar, van Kedor-Laomer, de koning van Elam, en van Tideal, de koning der volken; 
 2. Dat zij krijg voerden met Bera, koning van Sodom, en met Birsa, koning van Gomorra, Sinab, koning van Adama, en Semeber, koning van Zeboim, en de koning van Bela, dat is Zoar. 
 3. Deze allen voegden zich samen in het dal Siddim, dat is de Zoutzee. 

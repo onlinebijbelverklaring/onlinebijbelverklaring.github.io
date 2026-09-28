@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 12
+
 1. Mirjam nu sprak, en Aäron, tegen Mozes, ter oorzake der vrouw, der Cuschietische, die hij genomen had; want hij had een Cuschietische ter vrouw genomen. 
 2. En zij zeiden: Heeft dan de HEERE maar alleen door Mozes gesproken? Heeft Hij ook niet door ons gesproken? En de HEERE hoorde het! 
 3. Doch de man Mozes was zeer zachtmoedig, meer dan alle mensen, die op de aardbodem waren. 

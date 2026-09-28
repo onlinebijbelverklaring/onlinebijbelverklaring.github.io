@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 2
+
 1. IK zeide in mijn hart: Nu welaan, ik zal u beproeven door vreugde; derhalve zie het goede aan. Maar zie, ook dat was ijdelheid.
 2. Tot het lachen zeide ik: Gij zijt onzinnig; en tot de vreugde: Wat maakt deze?
 3. Ik heb in mijn hart nagespeurd om mijn vlees op te houden in den wijn (nochtans leidende mijn hart in wijsheid) en om de dwaasheid vast te houden, totdat ik zou zien wat den kinderen der mensen het best ware, dat zij doen zouden onder den hemel, gedurende het getal der dagen huns levens.

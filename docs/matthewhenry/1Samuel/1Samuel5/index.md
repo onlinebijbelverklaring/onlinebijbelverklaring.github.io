@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 5
+
 1. De Filistijnen nu namen de ark Gods, en zij brachten ze van Eben-haezer tot Asdod. 
 2. En de Filistijnen namen de ark Gods, en zij brachten ze in het huis van Dagon, en stelden ze bij Dagon. 
 3. Maar als die van Asdod des anderen daags vroeg opstonden, ziet, zo was Dagon op zijn aangezicht ter aarde gevallen voor de ark des HEEREN. En zij namen Dagon en zetten hem weder op zijn plaats. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 30
+
 1. WIJDERS geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, profeteer en zeg: Zo zegt de Heere HEERE: Huilt: Ach die dag!
 3. Want de dag is nabij, ja, de dag des HEEREN is nabij, een wolkige dag, het zal der heidenen tijd zijn.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 45
+
 1. Toen kon zich Jozef niet bedwingen voor allen, die bij hem stonden, en hij riep: Doet alle man van mij uitgaan! En er stond niemand bij hem, als Jozef zich aan zijn broederen bekend maakte. 
 2. En hij verhief zijn stem met wenen, zodat het de Egyptenaren hoorden, en dat het Farao's huis hoorde. 
 3. En Jozef zeide tot zijn broederen: Ik ben Jozef! leeft mijn vader nog? En zijn broeders konden hem niet antwoorden; want zij waren verschrikt voor zijn aangezicht. 

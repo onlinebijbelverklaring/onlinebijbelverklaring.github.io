@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 17
+
 CHRISTUS’ GEBED VOOR ZICH - ZIJN DISCIPELEN - ZIJN KERK EN GEMEENTE
 
 ## III. Vers 1-26

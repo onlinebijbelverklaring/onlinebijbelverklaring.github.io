@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 1
+
 1. En het woord des HEEREN geschiedde tot Jona, de zoon van Amitthai, zeggende:
 2. Maak u op, ga naar de grote stad Nineve, en predik tegen haar; want hunlieder boosheid is opgeklommen voor Mijn aangezicht. 
 3. Maar Jona maakte zich op om te vluchten naar Tarsis, van het aangezicht des HEEREN; en hij kwam af te Jafo, en vond een schip, gaande naar Tarsis, en hij gaf de vracht daarvan, en ging neder in hetzelve, om met henlieden te gaan naar Tarsis, van het aangezicht des HEEREN. 

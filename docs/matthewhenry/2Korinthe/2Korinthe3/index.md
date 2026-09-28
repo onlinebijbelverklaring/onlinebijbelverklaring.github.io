@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 3
+
 1. BEGINNEN wij onszelven wederom u aan te prijzen? Of behoeven wij ook, gelijk sommigen, brieven van voorschrijving aan u, of brieven van voorschrijving van u?
 2. Gijlieden zijt onze brief, geschreven in onze harten, bekend en gelezen van alle mensen;
 3. Als die openbaar zijt geworden, dat gij een brief van Christus zijt, en door onzen dienst bereid, die geschreven is niet met inkt, maar door den Geest des levenden Gods, niet in stenen tafelen, maar in vlezen tafelen des harten.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 13
+
 1. Wanneer een profeet, of dromen-dromer, in het midden van u zal opstaan, en u geven een teken of wonder; 
 2. En dat teken of dat wonder komt, dat hij tot u gesproken had, zeggende: Laat ons andere goden, die gij niet gekend hebt, navolgen en hen dienen; 
 3. Gij zult naar de woorden van dien profeet, of naar dien dromen-dromer niet horen; want de HEERE, uw God, verzoekt ulieden, om te weten, of gij de HEERE, uw God, liefhebt met uw ganse hart en met uw ganse ziel. 

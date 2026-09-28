@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 11
+
 1. En het geschiedde met de wederkomst van het jaar, ter tijde als de koningen uittrekken, dat David Joab, en zijn knechten met hem, en gans Israël henenzond, dat zij de kinderen Ammons verderven, en Rabba belegeren zouden. Doch David bleef te Jeruzalem. 
 2. Zo geschiedde het tegen de avondtijd, dat David van zijn leger opstond, en wandelde op het dak van het koningshuis, en zag van het dak een vrouw, zich wassende; deze vrouw nu was zeer schoon van aanzien. 
 3. En David zond henen, en ondervraagde naar deze vrouw; en men zeide: Is dat niet Bathseba, de dochter van Eliam, de huisvrouw van Uria, de Hethiet? 

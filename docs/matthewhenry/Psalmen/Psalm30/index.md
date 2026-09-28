@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 30
+
 1. EEN psalm, een lied der inwijding van Davids huis.
 2. Ik zal U verhogen, HEERE, want Gij hebt mij opgetrokken, en mijn vijanden over mij niet verblijd.
 3. HEERE mijn God, ik heb tot U geroepen, en Gij hebt mij genezen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 37
+
 1. EEN psalm van David. Aleph. Ontsteek u niet over de boosdoeners; benijd hen niet die onrecht doen.
 2. Want als gras zullen zij haast worden afgesneden, en als de groene grasscheutjes zullen zij afvallen.
 3. Beth. Vertrouw op den HEERE en doe het goede; bewoon de aarde en voed u met getrouwheid.

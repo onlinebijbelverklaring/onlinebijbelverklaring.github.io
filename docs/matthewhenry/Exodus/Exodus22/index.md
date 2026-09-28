@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 22
+
 1. Wanneer iemand een os, of klein vee steelt, en slacht het, of verkoopt het, die zal vijf runderen voor een os wedergeven, en vier schapen voor een stuk klein vee. 
 2. Indien een dief gevonden wordt in het doorgraven, en hij wordt geslagen, dat hij sterft, het zal hem geen bloedschuld zijn. 
 3. Indien de zon over hem opgegaan is, zo zal het hem een bloedschuld zijn; hij zal het volkomen wedergeven; heeft hij niet, zo zal hij verkocht worden voor zijn dieverij. 

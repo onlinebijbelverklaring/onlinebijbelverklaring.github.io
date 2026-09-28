@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 15
+
 1. DE last van Moab. Zekerlijk, in den nacht is Ar-Moabs verwoest, zij is uitgeroeid; zekerlijk, in den nacht is Kir-Moabs verwoest, zij is uitgeroeid.
 2. Hij gaat op naar Baïth en Dibon en naar Bamoth om te wenen; over Nebo en over Médeba zal Moab huilen; op al haar hoofden is kaalheid, aller baard is afgesneden.
 3. Op haar wijken hebben zij zakken aangegord; op haar daken en op haar straten huilen zij altemaal, afgaande met geween.

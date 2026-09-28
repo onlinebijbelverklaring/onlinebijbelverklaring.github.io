@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 18
+
 1. Het geschiedde nu, als hij geëindigd had tot Saul te spreken, dat de ziel van Jonathan verbonden werd aan de ziel van David; en Jonathan beminde hem als zijn ziel. 
 2. En Saul nam hem te dien dage, en liet hem niet wederkeren tot zijns vaders huis. 
 3. Jonathan nu en David maakten een verbond, dewijl hij hem liefhad als zijn ziel. 

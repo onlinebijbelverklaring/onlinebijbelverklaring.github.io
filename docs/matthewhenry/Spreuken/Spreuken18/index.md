@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 18
+
 1. DIE zich afzondert, tracht naar wat begeerlijks; hij vermengt zich in alle bestendige wijsheid.
 2. De zot heeft geen lust in verstandigheid, maar daarin dat zijn hart zich ontdekt.
 3. Als de goddeloze komt, komt ook de verachting, en met schande versmaadheid.

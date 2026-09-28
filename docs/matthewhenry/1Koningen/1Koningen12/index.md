@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 12
+
 1. En Rehabeam toog naar Sichem, want het ganse Israël was te Sichem gekomen, om hem koning te maken. 
 2. Het geschiedde nu, als Jerobeam, de zoon van Nebat, dit hoorde, daar hij nog in Egypte was (want hij was van het aangezicht van de koning Salomo gevloden; en Jerobeam woonde in Egypte), 
 3. Dat zij henen zonden, en lieten hem roepen; en Jerobeam en de ganse gemeente van Israël kwamen en spraken tot Rehabeam, zeggende: 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 21
+
 1. Daarna ontsliep Jósafath met zijn vaderen, en werd begraven bij zijn vaderen in de stad Davids; en zijn zoon Joram werd koning in zijn plaats. 
 2. En hij had broederen, Jósafaths zonen, Azarja, en Jehiel, en Zecharja, en Azarjahu, en Michael, en Sefatja; deze allen waren zonen van Jósafath, de koning van Israël. 
 3. En hun vader had hun vele gaven gegeven van zilver, en van goud, en van kostelijkheden, met vaste steden in Juda; maar het koninkrijk gaf hij Joram, omdat hij de eerstgeborene was. 

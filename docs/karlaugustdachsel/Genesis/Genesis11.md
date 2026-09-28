@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 11
+
 TOREN TE BABEL, SPRAAKVERWARRING, GESLACHTEN VAN SEM.
 
 ## I. Vers 1-9

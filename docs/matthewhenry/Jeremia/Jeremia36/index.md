@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 36
+
 1. HET gebeurde ook in het vierde jaar van Jójakim, den zoon van Josía, den koning van Juda, dat dit woord tot Jeremía geschiedde van den HEERE, zeggende:
 2. Neem u een rol des boeks en schrijf daarop al de woorden die Ik tot u gesproken heb over Israël en over Juda en over al de volken, van den dag aan dat Ik tot u gesproken heb, van de dagen van Josía aan, tot op dezen dag.
 3. Misschien zullen die van het huis van Juda horen al het kwaad dat Ik hun gedenk te doen; opdat zij zich bekeren een iegelijk van zijn bozen weg, en Ik hun ongerechtigheid en hun zonde vergeve.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 4
+
 BEKERING VAN DE SAMARITANEN. GENEZING VAN DE ZOON VAN DE HOVELING
 
 ## II. Vers 1-42

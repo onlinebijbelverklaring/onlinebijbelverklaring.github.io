@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 9
+
 1. EN voorbijgaande, zag Hij een mens, blind van de geboorte af.
 2. En Zijn discipelen vraagden Hem, zeggende: Rabbi, wie heeft er gezondigd, deze of zijn ouders, dat hij blind zou geboren worden?
 3. Jezus antwoordde: Noch deze heeft gezondigd, noch zijn ouders, maar dit is geschied opdat de werken Gods in hem zouden geopenbaard worden.

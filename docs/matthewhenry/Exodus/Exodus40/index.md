@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 40
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Op de dag der eerste maand, te weten op de eersten der maand, zult gij de tabernakel, de tent der samenkomst, oprichten. 
 3. En gij zult aldaar zetten de ark der getuigenis; en gij zult de ark met de voorhang bedekken. 

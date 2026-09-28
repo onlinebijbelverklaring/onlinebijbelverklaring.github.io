@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 25
+
 1. DIT zijn ook spreuken van Sálomo, die de mannen van Hizkía, den koning van Juda, uitgeschreven hebben.
 2. Het is Gods eer een zaak te verbergen, maar de eer der koningen een zaak te doorgronden.
 3. Aan de hoogte des hemels, en aan de diepte der aarde, en aan het hart der koningen is geen doorgronding.

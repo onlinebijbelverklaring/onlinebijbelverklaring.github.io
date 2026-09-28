@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 22
+
 1. En de inwoners van Jeruzalem maakten Ahazia, zijn kleinsten zoon, koning in zijn plaats; want een bende, die met de Arabieren in het leger gekomen was, had al de eersten gedood. Ahazia dan, de zoon van Joram, de koning van Juda, regeerde. 
 2. Twee en veertig jaar was Ahazia oud, toen hij koning werd, en hij regeerde een jaar te Jeruzalem; en de naam zijner moeder was Athalia, een dochter van Omri. 
 3. Hij wandelde ook in de wegen van het huis van Achab; want zijn moeder was zijn raadgeefster, om goddeloos te handelen. 

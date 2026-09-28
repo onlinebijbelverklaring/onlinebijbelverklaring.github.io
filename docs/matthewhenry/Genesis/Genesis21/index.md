@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 21
+
 1. En de HEERE bezocht Sara, gelijk als Hij gezegd had; en de HEERE deed aan Sara, gelijk als Hij gesproken had. 
 2. En Sara werd bevrucht, en baarde Abraham een zoon in zijn ouderdom, ter gezetter tijd, dien hem God gezegd had. 
 3. En Abraham noemde de naam zijns zoons, die hem geboren was, dien hem Sara gebaard had, Izak. 

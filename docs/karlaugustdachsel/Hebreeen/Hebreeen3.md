@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 3
+
 CHRISTUS, DE VOORTREFFELIJKE LERAAR VAN HET NIEUWE TESTAMENT, MOET MEN HOREN
 
 ## II. Vers 1-hoofdstuk 4:16

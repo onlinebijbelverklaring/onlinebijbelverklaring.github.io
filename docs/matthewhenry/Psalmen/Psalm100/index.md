@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 100
+
 1. EEN lofpsalm. Gij ganse aarde, juicht den HEERE.
 2. Dient den HEERE met blijdschap; komt voor Zijn aanschijn met vrolijk gezang.
 3. Weet dat de HEERE is God; Hij heeft ons gemaakt (en niet wij), Zijn volk en de schapen Zijner weide.

@@ -1,3 +1,10 @@
+---
+icon: lucide/file-text
+---
+
+
+# Galaten 3
+
 ## Vers 1
 ***O, gij uitzinnige Galaten!*** Paulus ijvert met een apostolische bekommering en een brandende en aller- geestelijkste toegenegenheid en gemoedsbeweging; en onder het disputeren en weerleggen mengt hij er aanmoedigingen en bestraffingen tussen, volgens zijn stelregel: Predik het Woord, houd aan, tijdelijk, ontijdelijk, wederleg, bestraf, vermaan, 2 Tim. 4 : 2. Die zaak verleidt en ergert de [onvoorzichtige en] onbedachtzame lezer, zodat hij meent dat Paulus in het geheel geen schikking noch orde houdt in het onderwijzen. Naar de manier der redenaars volgt hij wel die niet, maar in de Geest volgt hij de fraaiste orde. Nadat hij derhalve aangetoond heeft en met de twee krachtigste bewijsredenen bevestigd, dat de Christelijke gerechtigheid niet uit de wet is, maar uit het geloof in Christus, en tegelijk de leer der valse apostelen heeft weerlegd, wendt hij, in het midden van deze bezigheid, zijn rede tot de Galaten, en bestraft hen: O, gij uitzinnige of dwaze Galaten, alsof hij zeide: Helaas, waartoe zijt gij vervallen, o ellendige Galaten! Ik heb u met alle voorzichtigheid onderwezen [en voorgesteld] de waarheid des Evangelies, die gij ook met grote genegenheid en [nauwkeurige] oplettendheid van mij ontvangen hebt. Hoe komt het dan nu, dat ge zo ras van die leer afgevallen zijt? Wie heeft u betoverd?
 

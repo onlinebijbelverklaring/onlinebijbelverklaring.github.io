@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 10
+
 1. Tot de verzegelingen nu waren: Nehémia Hattirsátha, zoon van Hachálja, en Zidkía,
 2. Serája, Azárja, Jeremía,
 3. Pashur, Amárja, Malchía,

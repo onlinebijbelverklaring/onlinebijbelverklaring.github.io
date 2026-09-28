@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 37
+
 1. EN Zedekía, zoon van Josía, regeerde, koning zijnde, in plaats van Chónia, Jójakims zoon, welken Zedekía Nebukadrézar, de koning van Babel, koning gemaakt had in het land van Juda.
 2. Maar hij hoorde niet, hij, noch zijn knechten, noch het volk des lands, naar de woorden des HEEREN, die Hij sprak door den dienst van den profeet Jeremía.
 3. Nochtans zond de koning Zedekía Juchal, den zoon van Selémja, en Zefánja, den zoon van Maäséja, den priester, tot den profeet Jeremía om te zeggen: Bid toch voor ons tot den HEERE onzen God.

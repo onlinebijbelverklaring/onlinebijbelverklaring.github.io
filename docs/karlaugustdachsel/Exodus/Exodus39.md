@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 39
+
 PRIESTERLIJKE KLEREN.
 
 ## I. Vers 1-31

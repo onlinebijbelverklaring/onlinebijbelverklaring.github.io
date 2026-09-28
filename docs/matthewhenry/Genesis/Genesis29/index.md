@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 29
+
 1. Toen hief Jakob zijn voeten op, en ging naar het land der kinderen van het Oosten. 
 2. En hij zag toe, en ziet, er was een put in het veld; en ziet, er waren drie kudden schapen nevens dien nederliggende; want uit dien put drenkten zij de kudden; en er was een grote steen op de mond van dien put. 
 3. En derwaarts werden al de kudden verzameld, en zij wentelden de steen van de mond des puts, en drenkten de schapen, en legden de steen weder op de mond van dien put, op zijn plaats. 

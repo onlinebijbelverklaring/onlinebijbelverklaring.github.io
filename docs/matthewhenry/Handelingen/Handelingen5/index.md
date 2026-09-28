@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 5
+
 1. EN een zeker man, met name Ananías, met Saffira, zijn vrouw, verkocht een have,
 2. En onttrok van den prijs, ook met medeweten van zijn vrouw, en bracht een zeker deel en legde dat aan de voeten der apostelen.
 3. En Petrus zeide: Ananías, waarom heeft de satan uw hart vervuld, dat gij den Heiligen Geest liegen zoudt en onttrekken van den prijs des lands?

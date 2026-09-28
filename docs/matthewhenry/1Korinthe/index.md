@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Korinthe
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE EERSTE BRIEF VAN DE APOSTEL PAULUS AAN DIE VAN CORINTHE.
 
 Corinthe was een voorname stad van Griekenland, in dat deel van het land, dat Achaje genoemd werd. Zij was gelegen op de isthmus (landtong) die de Peloponnesus met de rest van Griekenland verenigde, aan de zuidzijde; en had twee havens, dicht bij elkaar; de een aan het einde van de Corinthische Golf, genaamd Lechacum, niet ver van de stad, vanwaar de handel op Italië en verder westelijk gedreven werd; de andere aan het einde van de Sinus Saronicus, genaamd Cenchrea, op verdere afstand, voor de handel op Azië. Het is geen wonder, dat Corinthe door deze ligging een plaats van grote handel en weelde was; en als gevolg daarvan instaat was zich alle soorten overdaad te veroorloven; en evenmin wekt het bevreemding dat een stad, zo beroemd om haar welvaart en kunsten, berucht was om haar ondeugden. 

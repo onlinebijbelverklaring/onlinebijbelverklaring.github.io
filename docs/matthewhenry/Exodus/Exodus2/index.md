@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 2
+
 1. En een man van het huis van Levi ging, en nam een dochter van Levi. 
 2. En de vrouw werd zwanger, en baarde een zoon. Toen zij hem zag, dat hij schoon was, zo verborg zij hem drie maanden. 
 3. Doch als zij hem niet langer verbergen kon, zo nam zij voor hem een kistje van biezen, en belijmde het met lijm en met pek; en zij leide het knechtje daarin, en leide het in de biezen, aan de oever der rivier. 

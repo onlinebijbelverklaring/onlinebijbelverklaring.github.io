@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 1
+
 1. NADEMAAL velen ter hand genomen hebben om in orde te stellen een verhaal van de dingen die onder ons volkomen zekerheid hebben,
 2. Gelijk ons overgeleverd hebben die van den beginne zelven aanschouwers en dienaars des Woords geweest zijn;
 3. Zo heeft het ook mij goed gedacht, hebbende alles van voren aan naarstiglijk onderzocht, vervolgens aan u te schrijven, voortreffelijke Theófilus;

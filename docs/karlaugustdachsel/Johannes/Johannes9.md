@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 9
+
 DE BLINDGEBORENE WORDT DOOR CHRISTUS ZIENDE GEMAAKT
 
 ## II. Vers 1 - Hoofdstuk 10:42

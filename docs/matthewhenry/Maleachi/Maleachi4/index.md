@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Maleachi 4
+
 1. Want ziet, die dag komt, brandende als een oven, dan zullen alle hoogmoedigen, en al wie goddeloosheid doet, een stoppel zijn, en de toekomstige dag zal ze in vlam zetten, zegt de HEERE der heirscharen, Die hun noch wortel, noch tak laten zal. 
 2. Ulieden daarentegen, die Mijn Naam vreest, zal de Zon der gerechtigheid opgaan, en er zal genezing zijn onder Zijn vleugelen; en gij zult uitgaan, en toenemen, als mestkalveren. 
 3. En gij zult de goddelozen vertreden; want zij zullen as worden onder de zolen uwer voeten, te dien dage, dien Ik maken zal, zegt de HEERE der heirscharen. 

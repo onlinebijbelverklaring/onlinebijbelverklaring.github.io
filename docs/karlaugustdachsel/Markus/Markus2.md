@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 2
+
 DE VERLAMDE. ROEPING VAN MATTHEUS. CHRISTUS VERANTWOORDING TEGENOVER DE FARIZEEEN
 
 ## I. Vers 1-12

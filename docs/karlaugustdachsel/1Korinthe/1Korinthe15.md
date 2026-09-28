@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 15
+
 OVER DE OPSTANDING VAN DE DODEN
 
 D. Nadat Paulus in de acht voorgaande Hoofdstukken vier vragen hem gedaan, over het huwelijk, over het eten van afgodenoffer, over het sluieren van biddende of profeterende vrouwen en over het spreken met talen beantwoord heeft, voegt hij nu aan de beide overige delen in Hoofdstuk 15 nog een derde toe. Dit heeft ten doel die gemeenteleden terecht te wijzen, die loochenden dat er een opstanding van de doden was. Dit Hoofdstuk staat echter niet in verband met enig gedeelte van de brief van de Corinthische gemeente, noch hangt samen met mededelingen, die de apostel over hun gevoelens ten deel waren geworden, zoals dat bij de zes eerste hoofdstukken het geval was, maar met hetgeen de apostel in zijn onmiddellijke omgeving te Efeze (2 Tim. 2: 17 v. Vgl. 1 Tim. 1: 20) opmerkte. Nu wist hij dat datzelfde in beginselen ook bij de Corinthiërs was en hij probeert die twijfel nu dadelijk hij het eerste opkomen in de kiem te verstikken.

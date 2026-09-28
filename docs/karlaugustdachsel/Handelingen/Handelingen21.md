@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 21
+
 REIS VAN PAULUS VAN MILETE NAAR JERUZALEM EN WAT HIJ DAARBIJ HEEFT GEDAAN EN ONDERVONDEN
 
 ### e. Vers 1-16 

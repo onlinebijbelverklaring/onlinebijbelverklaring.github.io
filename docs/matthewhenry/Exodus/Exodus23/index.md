@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 23
+
 1. Gij zult geen vals gerucht opnemen; en stelt uw hand niet bij de goddeloze, om een getuige tot geweld te zijn. 
 2. Gij zult de menigte tot boze zaken niet volgen; en gij zult niet spreken in een twistige zaak, dat gij u neigt naar de menigte, om het recht te buigen. 
 3. Ook zult gij de geringe niet voortrekken en zijn twistige zaak. 

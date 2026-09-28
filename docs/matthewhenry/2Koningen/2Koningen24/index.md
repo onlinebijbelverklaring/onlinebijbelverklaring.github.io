@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 24
+
 1. In zijn dagen toog Nebukadnézar, de koning van Babel, op, en Jojakim werd zijn knecht drie jaren; daarna keerde hij zich om, en rebelleerde tegen hem. 
 2. En de HEERE zond tegen hem de benden der Chaldeeën, en de benden der Syriërs, en de benden der Moabieten, en de benden der kinderen Ammons, en zond hen tegen Juda, om dat te verderven, naar het woord des HEEREN, dat Hij gesproken had door de dienst Zijner knechten, de profeten. 
 3. Zekerlijk geschiedde dit naar het bevel des HEEREN tegen Juda, dat Hij hen van Zijn aangezicht wegdeed, om de zonden van Manasse, naar alles, wat hij gedaan had; 

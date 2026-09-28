@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 27
+
 1. BEROEM u niet over den dag van morgen, want gij weet niet wat de dag zal baren.
 2. Laat u een vreemde prijzen, en niet uw mond; een onbekende, en niet uw lippen.
 3. Een steen is zwaar en het zand gewichtig, maar de toornigheid des dwazen is zwaarder dan die beide.

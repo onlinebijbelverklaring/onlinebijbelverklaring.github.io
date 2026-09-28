@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 8
+
 1. WIE* is gelijk de wijze? En wie weet de uitlegging der dingen? De wijsheid des mensen verlicht zijn aangezicht en de stuursheid zijns aangezichts wordt daardoor veranderd.
 2. Ik zeg: Neem acht op den mond des konings, doch naar de gelegenheid van den eed Gods.
 3. Haast u niet weg te gaan van zijn aangezicht, blijf niet staande in een kwade zaak, want al wat hem lust, doet hij.

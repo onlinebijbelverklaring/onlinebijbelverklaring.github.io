@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 8
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Neem Aäron en zijn zonen met hem, en de klederen, en de zalfolie, daartoe de var des zondoffers, en de twee rammen, en de korf van de ongezuurde broden; 
 3. En verzamel de ganse vergadering aan de deur van de tent der samenkomst. 

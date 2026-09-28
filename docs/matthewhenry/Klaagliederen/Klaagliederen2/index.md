@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Klaagliederen 2
+
 1. ALEPH. Hoe heeft de Heere de dochter Sions in Zijn toorn bewolkt! Hij heeft de heerlijkheid van Israël van den hemel op de aarde nedergeworpen; en Hij heeft aan de voetbank Zijner voeten niet gedacht in den dag Zijns toorns.
 2. Beth. De Heere heeft al de woningen Jakobs verslonden en heeft ze niet verschoond; Hij heeft de vastigheden der dochter van Juda afgebroken in Zijn verbolgenheid, Hij heeft gemaakt dat zij de aarde raken; Hij heeft het koninkrijk en deszelfs vorsten ontheiligd.
 3. Gimel. Hij heeft in ontsteking des toorns den gehelen hoorn Israëls afgehouwen; Hij heeft Zijn rechterhand achterwaarts getrokken toen de vijand kwam; en Hij is tegen Jakob ontstoken als een vlammend vuur, dat rondom verteert.

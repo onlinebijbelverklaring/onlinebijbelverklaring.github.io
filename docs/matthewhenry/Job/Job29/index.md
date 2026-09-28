@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 29
+
 1. EN Job ging voort zijn spreuk op te heffen, en zeide:
 2. Och, of ik ware gelijk in de vorige maanden, gelijk in de dagen toen God mij bewaarde;
 3. Toen Hij Zijn lamp deed schijnen over mijn hoofd, en ik bij Zijn licht de duisternis doorwandelde;

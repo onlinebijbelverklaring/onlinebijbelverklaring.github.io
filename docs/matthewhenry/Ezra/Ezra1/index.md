@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 1
+
 1. In het eerste jaar nu van Kores, koning van Perzië, opdat volbracht wierd het woord des HEEREN, uit de mond van Jeremia, verwekte de HEERE de geest van Kores, koning van Perzië, dat hij een stem liet doorgaan door zijn ganse koninkrijk, zelfs ook in geschrift, zeggende: 
 2. Zo zegt Kores, koning van Perzië: De HEERE, de God des hemels, heeft mij alle koninkrijken der aarde gegeven; en Hij heeft mij bevolen Hem een huis te bouwen te Jeruzalem, hetwelk in Juda is. 
 3. Wie is onder ulieden van al Zijn volk? Zijn God zij met hem, en hij trekke op naar Jeruzalem, dat in Juda is, en hij bouwe het huis des HEEREN, des Gods van Israël; Hij is de God, Die te Jeruzalem woont. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 22
+
 1. Josia was acht jaren oud, toen hij koning werd, en regeerde een en dertig jaren te Jeruzalem; en de naam zijner moeder was Jedida, een dochter van Adaja, van Bozkath. 
 2. En hij deed dat recht was in de ogen des HEEREN; en hij wandelde in al de weg van zijn vader David, en week niet af ter rechter hand noch ter linkerhand. 
 3. Het geschiedde nu in het achttiende jaar van de koning Josia, dat de koning de schrijver Safan, de zoon van Azalia, de zoon van Mesullam, zond in het huis des HEEREN, zeggende: 

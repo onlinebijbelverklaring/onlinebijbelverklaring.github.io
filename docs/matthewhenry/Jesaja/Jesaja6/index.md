@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 6
+
 1. IN het jaar toen de koning Uzzia stierf, zo zag ik den Heere zittende op een hogen en verheven troon, en Zijn zomen vervullende den tempel.
 2. De serafs stonden boven Hem; een iegelijk had zes vleugelen: met twee bedekte ieder zijn aangezicht en met twee bedekte hij zijn voeten en met twee vloog hij.
 3. En de een riep tot den ander en zeide: Heilig, heilig, heilig is de HEERE der heirscharen; de ganse aarde is van Zijn heerlijkheid vol.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 5
+
 1. ROEP nu, zal er iemand zijn die u antwoorde? En tot wien van de heiligen zult gij u keren?
 2. Want den dwaze brengt de toornigheid om, en de ijver doodt den slechte.
 3. Ik heb gezien een dwaas wortelende, doch terstond vervloekte ik zijn woning.

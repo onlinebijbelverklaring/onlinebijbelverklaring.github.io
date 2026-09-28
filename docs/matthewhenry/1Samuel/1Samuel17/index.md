@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 17
+
 1. En de Filistijnen verzamelden hun heir ten strijde, en verzamelden zich te Socho, dat in Juda is; en zij legerden zich tussen Socho en tussen Azeka, aan het einde van Dammim. 
 2. Doch Saul en de mannen van Israël verzamelden zich, en legerden zich in het eikendal; en stelden de slagorde tegen de Filistijnen aan. 
 3. De Filistijnen nu stonden aan een berg aan gene, en de Israëlieten stonden aan een berg aan deze zijde; en de vallei was tussen hen. 

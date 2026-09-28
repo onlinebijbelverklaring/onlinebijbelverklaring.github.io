@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 21
+
 1. DES konings hart is in de hand des HEEREN, als waterbeken; Hij neigt het tot al wat Hij wil.
 2. Alle weg des mensen is recht in zijn ogen, maar de HEERE weegt de harten.
 3. Gerechtigheid en recht te doen is bij den HEERE uitgelezener dan offer.

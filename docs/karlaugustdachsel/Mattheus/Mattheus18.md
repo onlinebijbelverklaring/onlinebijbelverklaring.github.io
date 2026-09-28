@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 18
+
 VAN DE ERGERNIS, DE MACHT VAN DE SLEUTELS EN DE BROEDERLIJKE VERZOENING.
 
 ## V. Vers 1-20

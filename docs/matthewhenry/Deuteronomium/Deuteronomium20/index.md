@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 20
+
 1. Wanneer gij zult uittrekken tot de strijd tegen uw vijanden, en zult zien paarden en wagenen, een volk, meerder dan gij, zo zult gij voor hen niet vrezen; want de HEERE, uw God, is met u, Die u uit Egypteland heeft opgevoerd. 
 2. En het zal geschieden, als gijlieden tot de strijd nadert, zo zal de priester toetreden, en tot het volk spreken. 
 3. En tot hen zeggen: Hoort, Israël! gijlieden zijt heden na aan de strijd tegen uw vijanden; uw hart worde niet week, vreest niet, en beeft niet, en verschrikt niet voor hun aangezicht. 

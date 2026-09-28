@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 32
+
 1. Jakob toog ook zijns weegs; en de engelen Gods ontmoetten hem. 
 2. En Jakob zeide, met dat hij hen zag: Dit is een heirleger Gods! en hij noemde de naam derzelver plaats Mahanaim. 
 3. En Jakob zond boden uit voor zijn aangezicht tot Ezau, zijn broeder, naar het land Seir, de landstreek van Edom. 

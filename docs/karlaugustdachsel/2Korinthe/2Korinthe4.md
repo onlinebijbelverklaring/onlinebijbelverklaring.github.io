@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 4
+
 HEERLIJKE VRUCHTEN VAN HET EVANGELIE BIJ DE GELOVIGEN, DIE ONDER HET KRUIS STRIJDEN
 
 ***1. Daarom omdat wij deze bediening hebben, die in vs. 7-11 is beschreven, naar de barmhartigheid, die ons geschied is in onze roeping, om predikers van het Evangelie te zijn (1 Kor. 15: 9. Efeze. 3: 8. 1 Tim. 1: 12 vv., zo vertragen wij niet alles te doen om getrouw bevonden te worden. Wij doen wat ons ambt ons oplegt en laten het niet ontbreken aan een wandel, de apostel waardig.***

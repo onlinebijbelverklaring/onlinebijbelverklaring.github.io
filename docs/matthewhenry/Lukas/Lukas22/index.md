@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 22
+
 1. EN het feest der ongehevelde broden, genaamd pascha, was nabij.
 2. En de overpriesters en de schriftgeleerden zochten hoe zij Hem ombrengen zouden; want zij vreesden het volk.
 3. En de satan voer in Judas, die toegenaamd was Iskáriot, zijnde uit het getal der twaalve.

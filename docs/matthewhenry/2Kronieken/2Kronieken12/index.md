@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 12
+
 1. Het geschiedde nu, als Rehabeam het koninkrijk bevestigd had, en hij sterk geworden was, dat hij de wet des HEEREN verliet, en gans Israël met hem. 
 2. Daarom geschiedde het, in het vijfde jaar van de koning Rehabeam, dat Sisak, de koning van Egypte, tegen Jeruzalem optoog (want zij hadden overtreden tegen de HEERE), 
 3. Met duizend en tweehonderd wagenen, en met zestig duizend ruiteren; en des volks was geen getal, dat met hem kwam uit Egypte, Libyers, Suchieten en Moren; 

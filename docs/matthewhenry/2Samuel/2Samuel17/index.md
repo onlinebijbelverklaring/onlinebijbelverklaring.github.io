@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 17
+
 1. Voorts zeide Achitofel tot Absalom: Laat mij nu twaalf duizend mannen uitlezen, dat ik mij opmake en David dezen nacht achterna jage. 
 2. Zo zal ik over hem komen, daar hij moede en slap van handen is, en zal hem verschrikken, en al het volk, dat met hem is, zal vluchten; dan zal ik de koning alleen slaan. 
 3. En ik zal al het volk tot u doen wederkeren; de man, dien gij zoekt, is gelijk het wederkeren van allen; zo zal al het volk in vrede zijn. 

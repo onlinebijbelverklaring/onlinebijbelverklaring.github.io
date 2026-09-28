@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 1
+
 1. PAULUS, een apostel van JEZUS CHRISTUS door den wil Gods, en Timótheüs, de broeder, aan de gemeente Gods die te Korinthe is, met al de heiligen die in geheel Acháje zijn:
 2. Genade zij u en vrede van God onzen Vader en den Heere Jezus Christus.
 3. Geloofd zij de God en Vader van onzen Heere Jezus Christus, de Vader der barmhartigheden en de God aller vertroosting,

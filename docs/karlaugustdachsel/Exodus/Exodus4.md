@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 4
+
 MOZES   WORDT   IN   ZIJN   ROEPING   DOOR   DE   GAVE   VAN   WONDERKRACHT GESTERKT.
 
 ***1. Toen antwoordde 1) Mozes en zei, Maar zie, zij zullen mij niet geloven, noch mijn stem horen, want zij zullen zeggen: De HEERE is u niet verschenen. 2)***

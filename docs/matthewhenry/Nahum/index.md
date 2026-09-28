@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Nahum
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET NAHUM
 
 De naam van deze profeet betekent Trooster; want het was een last, aan alle profetie gegeven: Troost, troost Mijn volk; en ook deze profeet, hoewel hij geheel opgaat in de voorspelling van de verwoesting van Ninevé, die vol verschrikking is voor de Assyriërs, is zelfs daarin een trooster voor de tien stammen van Israël’s, die nu waarschijnlijk kort geleden gevankelijk naar Assyrië waren gevoerd. 

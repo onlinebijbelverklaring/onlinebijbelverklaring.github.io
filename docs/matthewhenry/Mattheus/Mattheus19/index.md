@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 19
+
 1. EN het geschiedde toen Jezus deze woorden geëindigd had, dat Hij vertrok van Galiléa en kwam over de Jordaan in de landpalen van Judéa.
 2. En vele scharen volgden Hem, en Hij genas hen aldaar.
 3. En de farizeeën kwamen tot Hem, verzoekende Hem en zeggende tot Hem: Is het een mens geoorloofd zijn vrouw te verlaten om allerlei oorzaak?

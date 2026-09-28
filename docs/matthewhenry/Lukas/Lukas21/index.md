@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 21
+
 1. EN opziende, zag Hij de rijken hun gaven in de schatkist werpen.
 2. En Hij zag ook een zekere arme weduwe twee kleine penningskens daarin werpen.
 3. En Hij zeide: Waarlijk Ik zeg u, dat deze arme weduwe meer dan allen heeft ingeworpen.

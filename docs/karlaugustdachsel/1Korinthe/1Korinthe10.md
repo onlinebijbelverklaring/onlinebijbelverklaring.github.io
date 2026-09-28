@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 10
+
 VLESELIJKE GERUSTHEID TE MIJDEN
 
 ***1. En ik wil niet, broeders, om u de zo-even besproken waarheid, dat wel vele geroepenen maar weinigen uitverkorenen zijn, uit het leven van Israël duidelijk te maken, dat u onwetend bent (Rom. 1: 13; 11: 25), dat onze vaders allen onder de wolk waren, die hen beschermde tegen Egypte’s koning en leger en b) allen door de zee doorgegaan zijn, waarvan het water ter rechter en linker kant als muren stond (Ex. 14: 19 vv.).***

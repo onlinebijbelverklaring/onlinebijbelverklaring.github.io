@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 147
+
 1. LOOFT den HEERE, want onzen God te psalmzingen is goed, dewijl Hij lieflijk is; de lof is betamelijk.
 2. De HEERE bouwt Jeruzalem; Hij vergadert Israëls verdrevenen.
 3. Hij geneest de gebrokenen van hart, en Hij verbindt hen in hun smarten.

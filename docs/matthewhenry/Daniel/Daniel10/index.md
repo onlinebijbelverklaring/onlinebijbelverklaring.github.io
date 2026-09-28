@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 10
+
 1. IN het derde jaar van Kores, den koning van Perzië, werd aan Daniël, wiens naam genoemd werd Béltsazar, een zaak geopenbaard; en die zaak is de waarheid, doch in een gezetten groten tijd; en hij verstond die zaak en hij had verstand van het gezicht.
 2. In die dagen was ik, Daniël, treurende drie weken der dagen.
 3. Begeerlijke spijze at ik niet, en vlees noch wijn kwam in mijn mond; ook zalfde ik mij gans niet, totdat die drie weken der dagen vervuld waren.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 2
+
 1. IN het tweede jaar nu des koninkrijks van Nebukadnézar droomde Nebukadnézar dromen; daarvan werd zijn geest verslagen en zijn slaap werd in hem gebroken.
 2. Toen zeide de koning dat men roepen zou de tovenaars en de sterrenkijkers en de guichelaars en de Chaldeeën, om den koning zijn dromen te kennen te geven; zij nu kwamen en stonden voor het aangezicht des konings.
 3. En de koning zeide tot hen: Ik heb een droom gedroomd; en mijn geest is ontsteld, om dien droom te weten.

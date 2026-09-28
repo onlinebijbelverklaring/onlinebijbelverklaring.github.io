@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 17
+
 ARBEID EN LOTGEVALLEN VAN PAULUS TE THESSALONICA, BEREA EN ATHENE
 
 ### d. Vsers 1-15

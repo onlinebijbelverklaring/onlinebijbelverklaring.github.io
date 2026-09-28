@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 23
+
 1. Toen zeide Bileam tot Balak: Bouw mij hier zeven altaren, en bereid mij hier zeven varren en zeven rammen. 
 2. Balak nu deed, gelijk als Bileam gesproken had; en Balak en Bileam offerden een var en een ram, op elk altaar. 
 3. Toen zeide Bileam tot Balak: Blijf staan bij uw brandoffer, en ik zal heengaan; misschien zal de HEERE mij tegemoet komen; en hetgeen Hij wijzen zal, dat zal ik u bekend maken. Toen ging hij op de hoogte. 

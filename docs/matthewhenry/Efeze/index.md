@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Efeze
+
 ## EEN VERKLARING EN PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN DIE VAN EFÉZE.
 
 Sommigen menen dat deze brief aan de Efeziërs een rondgaand schrijven was, gericht meerdere gemeenten; en dat het afschrift, voor de Efeziërs bestemd, in de canon opgenomen, zodat daardoor de brief dit opschrift draagt. En zij worden er des te eer toe geleid om te denken, omdat deze de enige van de brieven van Paulus is, die niets bevat, dat toegepast worden op de bijzondere toestand van die gemeente, maar de gehele inhoud is van algemeen belang voor alle Christenen en voornamelijk voor hen, die vroeger heidenen zijnde, tot tot het Christendom bekeerd waren. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 26
+
 HET JOODSE VOLK WORDT OPNIEUW GETELD.
 
 ## I. Vers 1-65

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 40
+
 1. DAVIDS psalm, voor den opperzangmeester.
 2. Ik heb den HEERE lang verwacht; en Hij heeft Zich tot mij geneigd en mijn geroep gehoord.
 3. En Hij heeft mij uit een ruisenden kuil, uit modderig slijk opgehaald, en heeft mijn voeten op een rotssteen gesteld, Hij heeft mijn gangen vastgemaakt.

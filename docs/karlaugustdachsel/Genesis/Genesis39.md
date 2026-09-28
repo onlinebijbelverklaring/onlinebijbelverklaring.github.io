@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 39
+
 JOZEFS DIENST, KUISHEID EN GEVANGENIS.
 
 ## I. Vers 1-6

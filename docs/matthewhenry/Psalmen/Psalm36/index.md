@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 36
+
 1. EEN psalm van David, den knecht des HEEREN, voor den opperzangmeester.
 2. De overtreding des goddelozen spreekt in het binnenste van mijn hart: Er is geen vreze Gods voor zijn ogen.
 3. Want hij vleit zichzelven in zijn ogen, als men zijn ongerechtigheid bevindt, die te haten is.

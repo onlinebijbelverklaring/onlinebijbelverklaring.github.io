@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 14
+
 NOODZAKELIJKHEID VAN JEZUS HEENGAAN. OVER GELOOF EN LIEFDE, GEBED, DE HEILIGE GEEST EN de WARE VREDE
 
 ## II. Vers 1 - Hoofdst 16:33 

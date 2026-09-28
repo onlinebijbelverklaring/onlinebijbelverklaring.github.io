@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Habakuk 3
+
 1. Een gebed van Habakuk, de profeet, op Sjigjonoth. 
 2. HEERE! als ik Uw rede gehoord heb, heb ik gevreesd; Uw werk, o HEERE! behoud dat in het leven in het midden der jaren, maak het bekend in het midden der jaren; in de toorn gedenk des ontfermens. 
 3. God kwam van Theman, en de Heilige van de berg Paran. Sela. Zijn heerlijkheid bedekte de hemelen, en het aardrijk was vol van Zijn lof. 

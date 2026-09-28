@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 38
+
 1. En het geschiedde ten zelven tijde, dat Juda van zijn broederen aftoog, en hij keerde in tot een man van Adullam, wiens naam was Hira. 
 2. En Juda zag aldaar de dochter van een Kanaänietisch man, wiens naam was Sua; en hij nam haar, en ging tot haar in. 
 3. En zij werd bevrucht, en baarde een zoon, en hij noemde zijn naam Er. 

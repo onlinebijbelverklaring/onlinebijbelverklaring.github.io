@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 138
+
 1. EEN psalm van David. Ik zal U loven met mijn gehele hart; in de tegenwoordigheid der goden zal ik U psalmzingen.
 2. Ik zal mij nederbuigen naar het paleis Uwer heiligheid, en ik zal Uw Naam loven, om Uw goedertierenheid en om Uw waarheid; want Gij hebt vanwege Uw gansen Naam Uw woord groot gemaakt.
 3. Ten dage als ik riep, zo hebt Gij mij verhoord; Gij hebt mij versterkt met kracht in mijn ziel.

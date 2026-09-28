@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 19
+
 CHRISTUS’ GESELING, KRUISIGING, DOOD EN BEGRAFENIS
 
 ***1. Toen nu verder had plaats gehad wat in MATTHEUS. 27: 22-26. Mark. 15: 12-15. Luk. 23: 20-25 is meegedeeld en Barabbas volgens de wil van het volk was losgelaten, nam Pilatus dan Jezus, die in de plaats van de moordenaar de kruisdood zou lijden en geselde Hem. Hij liet Hem door zijn krijgsknechten dadelijk voor het rechthuis voor het aangezicht van de overpriesters en van het volk met geselen kastijden en wijdde Hem zo meteen tot de kruisiging in. Hierbij dacht hij voor zich echter nog, dat hij de kruisiging zelf zou kunnen afwenden.***

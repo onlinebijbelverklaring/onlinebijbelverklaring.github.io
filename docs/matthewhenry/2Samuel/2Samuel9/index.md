@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 9
+
 1. En David zeide: Is er nog iemand die overgebleven is van het huis van Saul, dat ik weldadigheid aan hem doe, om Jonathans wil? 
 2. Het huis van Saul nu had een knecht, wiens naam was Ziba; en zij riepen hem tot David. En de koning zeide tot hem: Zijt gij Ziba? En hij zeide: Uw knecht. 
 3. En de koning zeide: Is er nog iemand van het huis van Saul, dat ik Gods weldadigheid bij hem doe? Toen zeide Ziba tot de koning: Er is nog een zoon van Jonathan, die geslagen is aan beide voeten. 

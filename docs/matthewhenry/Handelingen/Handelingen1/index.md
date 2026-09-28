@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 1
+
 1. HET eerste boek heb ik gemaakt, o Theófilus, van al hetgeen dat JEZUS begonnen heeft beide te doen en te leren,
 2. Tot op den dag in welken Hij opgenomen is, nadat Hij door den Heiligen Geest aan de apostelen, die Hij uitverkoren had, bevelen had gegeven;
 3. Aan welke Hij ook, nadat Hij geleden had, Zichzelven levend vertoond heeft, met vele gewisse kentekenen, veertig dagen lang, zijnde van hen gezien, en sprekende van de dingen die het Koninkrijk Gods aangaan.

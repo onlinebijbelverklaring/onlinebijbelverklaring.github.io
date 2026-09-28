@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 2
+
 DE ELLENDE VAN DE MENSEN BUITEN CHRISTUS EN ZIJN ZALIGE STAAT IN CHRISTUS
 
 ## II. Vers 1-22

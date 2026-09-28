@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 21
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. O HEERE, de koning is verblijd over Uw sterkte, en hoezeer is hij verheugd over Uw heil!
 3. Gij hebt hem zijns harten wens gegeven, en de uitspraak zijner lippen hebt Gij niet geweerd. Sela.

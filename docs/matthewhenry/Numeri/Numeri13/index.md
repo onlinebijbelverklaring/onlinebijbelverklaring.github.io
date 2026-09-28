@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 13
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Zend u mannen uit: die het land Kanaan verspieden, hetwelk Ik de kinderen Israëls geven zal; van elken stam zijner vaderen zult gijlieden een man zenden, zijnde ieder een overste onder hen. 
 3. Mozes dan zond hen uit de woestijn van Paran, naar de mond des HEEREN; al die mannen waren hoofden der kinderen Israëls. 

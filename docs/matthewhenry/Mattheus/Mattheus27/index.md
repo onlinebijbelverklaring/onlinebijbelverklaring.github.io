@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 27
+
 1. ALS het nu morgenstond geworden was, hebben al de overpriesters en de ouderlingen des volks tezamen raad genomen tegen Jezus, dat zij Hem doden zouden.
 2. En Hem gebonden hebbende, leidden zij Hem weg en gaven Hem over aan Pontius Pilatus, den stadhouder.
 3. Toen heeft Judas, die Hem verraden had, ziende dat Hij veroordeeld was, berouw gehad, en heeft de dertig zilveren penningen den overpriesters en den ouderlingen wedergebracht,

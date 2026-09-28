@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 7
+
 1. EN tot Hem vergaderden de farizeeën en sommigen der schriftgeleerden, die van Jeruzalem gekomen waren;
 2. En ziende dat sommigen van Zijn discipelen met onreine, dat is met ongewassen handen brood aten, berispten zij hen.
 3. Want de farizeeën en al de Joden eten niet, tenzij dat zij eerst de handen dikmaals wassen, houdende de inzetting der ouden.

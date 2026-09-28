@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 84
+
 1. VOOR den opperzangmeester, op de Gittith; een psalm voor de kinderen van Korach.
 2. Hoe lieflijk zijn Uw woningen, o HEERE der heirscharen!
 3. Mijn ziel is begerig en bezwijkt ook van verlangen naar de voorhoven des HEEREN; mijn hart en mijn vlees roepen uit tot den levenden God.

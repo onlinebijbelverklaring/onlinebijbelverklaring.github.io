@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 14
+
 ABRAHAM REDT LOT EN WORDT DOOR MELCHIZEDEK GEZEGEND.
 
 ## I. Vers 1-16

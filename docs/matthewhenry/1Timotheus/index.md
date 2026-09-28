@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Timotheus
+
 ## EEN VERKLARING PRACTISCHE OPMERKINGEN VAN DE EERSTE BRIEF VAN DE APOSTEL PAULUS AAN TIMOTHEÜS
 
 De brieven, welke wij totnogtoe gelezen hebben, waren door Paulus aan gemeenten ge¬ven; thans volgen enige aan bijzondere personen; en wel: twee aan Timotheüs, een aan Titus en een aan Philemon, allen dienaren. 

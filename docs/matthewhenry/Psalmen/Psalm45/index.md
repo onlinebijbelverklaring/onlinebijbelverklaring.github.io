@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 45
+
 1. EEN onderwijzing, een lied der liefden, voor den opperzangmeester, onder de kinderen van Korach, op Schóschannim.
 2. Mijn hart geeft een goede rede op; ik zeg mijn gedichten uit van een Koning; mijn tong is een pen eens vaardigen schrijvers.
 3. Gij zijt veel schoner dan de mensenkinderen; genade is uitgestort in Uw lippen; daarom heeft U God gezegend in eeuwigheid.

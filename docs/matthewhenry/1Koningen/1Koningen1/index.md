@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 1
+
 1. De koning David nu was oud, wel bedaagd; en zij dekten hem met klederen, doch hij kreeg gene warmte. 
 2. Toen zeiden zijn knechten tot hem: Laat ze mijn heer de koning een jonge dochter, een maagd zoeken, die voor het aangezicht des konings sta, en hem koestere; en zij slape in uw schoot, dat mijn heer de koning warm worde. 
 3. Zo zochten zij een schone jonge dochter in alle landpalen van Israël; en zij vonden Abisag, een Sunamietische, en brachten ze tot de koning. 

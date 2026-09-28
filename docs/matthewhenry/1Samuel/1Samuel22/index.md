@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 22
+
 1. Toen ging David van daar, en ontkwam in de spelonk van Adullam. En zijn broeders hoorden het, en het ganse huis zijns vaders, en kwamen derwaarts tot hem af. 
 2. En tot hem vergaderde alle man, die benauwd was, en alle man, die een schuldeiser had, en alle man, wiens ziel bitterlijk bedroefd was, en hij werd tot overste over hen; zodat bij hem waren omtrent vierhonderd mannen. 
 3. En David ging van daar naar Mizpa der Moabieten; en hij zeide tot de koning der Moabieten: Laat toch mijn vader en mijn moeder bij ulieden uitgaan, totdat ik weet, wat God mij doen zal. 

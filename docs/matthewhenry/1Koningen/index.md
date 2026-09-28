@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Koningen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EERSTE BOEK DER KONINGEN
 
 Vele geschiedenissen zijn boeken van koningen en hun regering, waartoe de zaken van hun koninkrijk teruggebracht zijn, dat is een eer, die gewoonlijk aan gekroonde hoofden bewezen wordt. De Heilige Schrift is de geschiedenis van het koninkrijk Gods onder de mensen, zoals het onderscheidenlijk bestuurd is geworden, maar de Koning is een, en Zijn naam is een. De bijzondere geschiedenis, die nu voor ons ligt, verhaalt de zaken en aangelegenheden van de koninkrijken van Juda en Israël, maar voornamelijk met betrekking tot het koninkrijk Gods onder hen, want het is nog altijd gewijde geschiedenis, veel meer leerrijk en niet minder onderhoudend dan enigerlei geschiedenis van de koningen der aarde, aan welke zij voorafgaat in tijd, (tenminste aan die, waarvoor enige zekerheid bestaat); wèl waren er koningen van Edom, voordat er een koning was in Israël, Genesis 36:31, (in dit opzicht hebben vreemden de voorrang gehad) maar de geschiedenis van de koningen van Israël leeft, en zal leven in de Heilige Schrift, tot aan het einde der wereld, terwijl die van de koningen van Edom reeds lang in vergetelheid is begraven; want de eer, die van God komt, is duurzaam, terwijl de eer der wereld is als een paddestoel, die in een nacht opkomt en in een nacht vergaat. 

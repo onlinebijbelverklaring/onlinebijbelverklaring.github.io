@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 13
+
 1. ALLE ziel zij den machten over haar gesteld, onderworpen; want er is geen macht dan van God, en de machten die er zijn, die zijn van God geordineerd.
 2. Alzo dat die zich tegen de macht stelt, de ordinantie Gods wederstaat; en die ze wederstaan, zullen over zichzelven een oordeel halen.
 3. Want de oversten zijn niet tot een vrees den goeden werken, maar den kwaden. Wilt gij nu de macht niet vrezen, doe het goede, en gij zult lof van haar hebben;

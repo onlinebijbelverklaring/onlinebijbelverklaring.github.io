@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 2
+
 1. Twist tegen ulieder moeder, twist, omdat zij Mijn vrouw niet is, en Ik haar Man niet ben; en laat ze haar hoererijen van haar aangezicht, en haar overspelerijen van tussen haar borsten wegdoen. 
 2. Opdat Ik ze niet naakt uitstrope, en zette ze als ten dage, toen zij geboren werd; ja, make ze als een woestijn, en zette ze als een dor land, en dode ze door dorst; 
 3. En Mij harer kinderen niet ontferme, omdat zij kinderen der hoererijen zijn. 

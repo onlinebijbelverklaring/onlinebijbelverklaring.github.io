@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 16
+
 1. Toen zij de ark Gods inbrachten, zo stelden zij ze in het midden der tent, welke David voor haar gespannen had; en zij offerden brandofferen en dankofferen voor het aangezicht Gods. 
 2. Als David het brandoffer en de dankofferen geëindigd had te offeren, zo zegende hij het volk in de Naam des HEEREN. 
 3. En hij deelde een iegelijk in Israël, van de man tot de vrouw, een iegelijk een bol broods, en een schoon stuk vlees, en een fles wijn. 

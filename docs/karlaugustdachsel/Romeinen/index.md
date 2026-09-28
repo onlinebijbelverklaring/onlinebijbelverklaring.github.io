@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Romeinen
+
 ## DE ZENDBRIEF VAN DEN APOSTEL PAULUS AAN DE ROMEINEN
 
 !!! note "Gedeelte mist in digitale bronnen"

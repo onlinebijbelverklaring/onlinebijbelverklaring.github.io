@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Thessalonicenzen 2
+
 1. EN wij bidden u, broeders, door de toekomst van onzen Heere Jezus Christus en onze toevergadering tot Hem,
 2. Dat gij niet haastelijk bewogen wordt van verstand, of verschrikt, noch door geest, noch door woord, noch door zendbrief als van ons geschreven, alsof de dag van Christus aanstaande ware.
 3. Dat u niemand verleide in enigerlei wijze; want die komt niet tenzij dat eerst de afval gekomen is, en dat geopenbaard is de mens der zonde, de zoon des verderfs,

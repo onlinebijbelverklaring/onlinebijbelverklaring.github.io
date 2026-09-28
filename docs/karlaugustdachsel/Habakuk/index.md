@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Habakuk
+
 ## DE PROFEET HABAKUK.
  
 Het Boek der Profetieën van Habakuk bevat de voorspelling omtrent de opkomst van de tweede wereldmacht, Babel, die, als tuchtroede in de hand Gods, Juda zou kastijden, maar ook, hoe tot troost van het volk deze macht ten leste weer zou vernietigd worden.

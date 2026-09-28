@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 21
+
 1. Toen stond de satan op tegen Israël, en hij porde David aan, dat hij Israël telde. 
 2. En David zeide tot Joab en tot de oversten des volks: Gaat heen, telt Israël van Ber-seba tot Dan toe, en brengt hen tot mij, dat ik hun getal wete. 
 3. Toen zeide Joab: De HEERE doe tot Zijn volk, gelijk zij nu zijn, honderdmaal meer; zijn zij niet allen, o mijn heer koning, mijn heer tot knechten? Waarom verzoekt mijn heer dit? Waarom zou het Israël tot schuld worden? 

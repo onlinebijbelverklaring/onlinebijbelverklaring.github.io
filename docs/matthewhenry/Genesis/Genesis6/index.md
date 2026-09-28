@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 6
+
 1. En het geschiedde, als de mensen op de aardbodem begonnen te vermenigvuldigen, en hun dochters geboren werden, 
 2. Dat Gods zonen de dochteren der mensen aanzagen, dat zij schoon waren, en zij namen zich vrouwen uit allen, die zij verkozen hadden. 
 3. Toen zeide de HEERE: Mijn Geest zal niet in eeuwigheid twisten met de mens, dewijl hij ook vlees is; doch zijn dagen zullen zijn honderd en twintig jaren. 

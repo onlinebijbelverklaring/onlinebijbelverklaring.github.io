@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 1
+
 1. En Salomo, de zoon van David, werd versterkt in zijn koninkrijk, want de HEERE, zijn God, was met hem, en maakte hem ten hoogste groot. 
 2. En Salomo sprak tot het ganse Israël, tot de oversten der duizenden en der honderden, en tot de richteren, en tot alle oversten in gans Israël, de hoofden der vaderen; 
 3. En zij gingen henen, Salomo en de ganse gemeente met hem, naar de hoogte, die te Gibeon was; want daar was de tent der samenkomst Gods, die Mozes, de knecht des HEEREN, in de woestijn gemaakt had. 

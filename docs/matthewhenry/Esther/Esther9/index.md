@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 9
+
 1. IN de twaalfde maand nu (dezelve is de maand Adar), op den dertienden dag derzelve, toen des konings woord en zijn wet nabijgekomen was, dat men het doen zou; ten dage als de vijanden der Joden hoopten over hen te heersen, zo is het omgekeerd, want de Joden heersten zelven over hun haters.
 2. Want de Joden vergaderden zich in hun steden, in al de landschappen van den koning Ahasvéros, om de hand te slaan aan degenen die hun verderf zochten; en niemand bestond voor hen, want hunlieder schrik was op al die volken gevallen.
 3. En al de oversten der landschappen en de stadhouders en landvoogden en die het werk des konings deden, verhieven de Joden; want de vreze van Mórdechai was op hen gevallen.

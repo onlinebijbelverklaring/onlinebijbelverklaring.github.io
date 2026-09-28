@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 6
+
 1. EN wij als medearbeidende, bidden u ook, dat gij de genade Gods niet tevergeefs moogt ontvangen hebben.
 2. Want Hij zegt: In den aangenamen tijd heb Ik U verhoord, en in den dag der zaligheid heb Ik U geholpen. Zie, nu is het de welaangename tijd, zie, nu is het de dag der zaligheid.
 3. Wij geven geen aanstoot in enig ding, opdat de bediening niet gelasterd worde;

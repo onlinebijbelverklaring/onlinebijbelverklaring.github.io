@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 2
+
 1. Mijn kinderkens, ik schrijf u deze dingen, opdat gij niet zondigt. En indien iemand gezondigd heeft, wij hebben een Voorspraak bij de Vader, Jezus Christus, de Rechtvaardige; 
 2. En Hij is een verzoening voor onze zonden; en niet alleen voor de onze, maar ook voor de zonden der gehele wereld. 
 3. En hieraan kennen wij, dat wij Hem gekend hebben, zo wij Zijn geboden bewaren. 

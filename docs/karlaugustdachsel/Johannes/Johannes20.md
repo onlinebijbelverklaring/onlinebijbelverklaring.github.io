@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 20
+
 ## II. Vers 1-29
 Jezus’ opstanding, door uitwendige tekenen bewezen en twee verschijningen van de Opgestane nog op de dag van de opstanding zelf aan de Zijnen bekend gemaakt en acht dagen later ook duidelijk geworden aan die discipel, die zich van de overigen had afgezonderd.
 

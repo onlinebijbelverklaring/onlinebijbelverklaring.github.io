@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 38
+
 1. Hij maakte ook het brandofferaltaar van sittimhout; vijf ellen was deszelfs lengte, en vijf ellen zijn breedte, vierkant, en drie ellen zijn hoogte. 
 2. En hij maakte deszelfs hoornen op zijn vier hoeken; uit hetzelve waren zijn hoornen; en hij overtrok het met koper. 
 3. Hij maakte ook al het gereedschap des altaars, de potten, en de schoffelen, en de besprengbekkens, en de krauwelen, en de koolpannen; al zijn vaten maakte hij van koper. 

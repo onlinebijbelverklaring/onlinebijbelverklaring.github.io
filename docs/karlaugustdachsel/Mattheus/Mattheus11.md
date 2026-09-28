@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 11
+
 ***1. En het is geschied, toen Jezus geëindigd had Zijn twaalf discipelen bevelen te geven, dat Hij van daar voortging (MATTHEUS. 9: 27), terwijl zij zich werkelijk op de hun aangewezen weg begaven en hun werk verrichtten (Mark. 6: 12vv. Luk. 9: 6), alleen vergezeld door Zijn discipelen in de ruimere zin van het woord om te leren en te prediken in hun steden, de steden van Galilea, waaruit de meeste apostelen afkomstig waren.***
 
 Naar onze mening wendden zich de twaalven meer oostwaarts en hielden zich aan de gewone reisweg van hen, die naar Jeruzalem tot het paasfeest opgingen, het Jordaandal door; de Heere zelf trok daarentegen met Zijn geleide naar het westen in het midden van het Galilese land. In Luk. 7: 11vv. welke geschiedenis gedurende de afwezigheid van de twaalven plaatsvond (waarom zij slechts door Lukas wordt verteld, die haar vernomen heeft van iemand, die toen in Jezus’ gezelschap was) vinden wij Hem te Naïn, niet ver van de kleine Hermon. Aan diezelfde landstreek (ten westen van de Jordaan) en in diezelfde tijd (gedurende de afwezigheid van de twaalven) moeten wij ook denken bij de volgende geschiedenis van het gezantschap van de Doper. Lang zijn zeker de Apostelen met hun zendingsreis niet bezig geweest, wel niet slechts één dag, zoals Wieseler stelt, maar toch ook geenszins verscheidene maanden, zoals Krafft uitrekent. Het nadere zal later blijken, wanneer wij de volgende geschiedenis beschouwd zullen hebben.

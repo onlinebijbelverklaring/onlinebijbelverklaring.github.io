@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 6
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Als een mens gezondigd, en tegen de HEERE door overtreding overtreden zal hebben, dat hij aan zijn naaste zal gelogen hebben van hetgeen hem in bewaring gegeven, of ter hand gesteld was, of van roof, of dat hij met geweld zijn naaste onthoudt; 
 3. Of dat hij het verlorene gevonden, en daarover gelogen, en met valsheid gezworen zal hebben; over iets van alles, dat de mens doet, daarin zondigende. 

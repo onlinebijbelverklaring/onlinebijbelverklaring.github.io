@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 29
+
 1. IN het tiende jaar, in de tiende maand, op den twaalfde der maand, geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen Farao, den koning van Egypte, en profeteer tegen hem, en tegen het ganse Egypte.
 3. Spreek en zeg: Zo zegt de Heere HEERE: Zie, Ik wil aan u, o Farao, koning van Egypte, dien groten zeedraak, die in het midden zijner rivieren ligt; die daar zegt: Mijn rivier is mijne, en ik heb die voor mij gemaakt.

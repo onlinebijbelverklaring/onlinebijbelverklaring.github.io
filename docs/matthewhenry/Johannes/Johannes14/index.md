@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 14
+
 1. UW hart worde niet ontroerd; gijlieden gelooft in God, gelooft ook in Mij.
 2. In het huis Mijns Vaders zijn vele woningen; anderszins zo zou Ik het u gezegd hebben; Ik ga heen om u plaats te bereiden.
 3. En zo wanneer Ik heen zal gegaan zijn en u plaats zal bereid hebben, zo kom Ik weder en zal u tot Mij nemen, opdat gij ook zijn moogt waar Ik ben.

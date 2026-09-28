@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 23
+
 1. Toen zond de koning henen, en tot hem verzamelden al die oudsten van Juda en Jeruzalem. 
 2. En de koning ging op in het huis des HEEREN, en met hem alle man van Juda, en alle inwoners van Jeruzalem, en de priesters en de profeten, en al het volk, van de minste tot de meeste; en hij las voor hun oren al de woorden van het boek des verbonds, dat in het huis des HEEREN gevonden was. 
 3. De koning nu stond aan de pilaar, en maakte een verbond voor des HEEREN aangezicht, om de HEERE na te wandelen, en Zijn geboden, en Zijn getuigenissen, en Zijn inzettingen met ganser harte en met ganser ziele te houden, bevestigende de woorden dezes verbonds, die in dit boek geschreven zijn. En het ganse volk stond in dit verbond. 

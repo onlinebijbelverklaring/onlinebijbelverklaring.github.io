@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 5
+
 1. BESTRAF een ouden man niet hardelijk, maar vermaan hem als een vader, de jonge als broeders;
 2. De oude vrouwen als moeders, de jonge als zusters, in alle reinheid.
 3. Eer de weduwen die waarlijk weduwen zijn.

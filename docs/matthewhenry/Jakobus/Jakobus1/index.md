@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 1
+
 1. JAKOBUS, een dienstknecht van God en van den Heere JEZUS CHRISTUS, aan de twaalf stammen die in de verstrooiing zijn: Zaligheid.
 2. Acht het voor grote vreugde, mijne broeders, wanneer gij in velerlei verzoekingen valt;
 3. Wetende dat de beproeving uws geloofs lijdzaamheid werkt.

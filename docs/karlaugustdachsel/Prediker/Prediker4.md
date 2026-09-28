@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 4
+
 NADERE ONDERWIJZING, WAARIN DE WARE GELUKZALIGHEID NIET BESTAAT.
 
 ## II. Vers 1-16

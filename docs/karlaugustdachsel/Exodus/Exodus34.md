@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 34
+
 NIEUWE TAFELEN VAN DE WET. VERBOND VAN GOD. MOZES’ GLINSTEREND GEZICHT.
 
 ## I. Vers 1-28

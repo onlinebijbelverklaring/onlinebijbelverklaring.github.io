@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 1
+
 1. IN het derde jaar des koninkrijks van Jójakim, den koning van Juda, kwam Nebukadnézar, de koning van Babel, te Jeruzalem en belegerde haar.
 2. En de Heere gaf Jójakim, den koning van Juda, in zijn hand, en een deel der vaten van het huis Gods; en hij bracht ze in het land Sínear, in het huis zijns gods; en de vaten bracht hij in het schathuis zijns gods.
 3. En de koning zeide tot Aspenaz, den overste zijner kamerlingen, dat hij voorbrengen zou enigen uit de kinderen Israëls, te weten uit het koninklijk zaad en uit de prinsen;

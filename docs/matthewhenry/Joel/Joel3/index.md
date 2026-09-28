@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Joel 3
+
 1. Want ziet, in die dagen en te dier tijd, als Ik de gevangenis van Juda en Jeruzalem zal wenden; 
 2. Dan zal Ik alle heidenen vergaderen, en zal hen afvoeren in het dal van Josafat; en Ik zal met hen aldaar richten, vanwege Mijn volk en Mijn erfdeel Israël, dat zij onder de heidenen hebben verstrooid, en Mijn land gedeeld; 
 3. En hebben het lot over Mijn volk geworpen en een knechtje gegeven om een hoer, en een meisje verkocht om wijn, dat zij mochten drinken. 

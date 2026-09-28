@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 12
+
 ***1. En wilt gij nu ware vreugde in uw hart smaken, zo kunt gij dit slechts in gemeenschap met Hem, die de bron van alle vreugde is: gedenkdaarom steeds met gebed, lof en dankzegging aan uwen Schepper 1) reeds in de dagen uwer jongelingschap 2), eer dat de kwade dagen komen, waarin gij wellicht niet meer zo gemakkelijk tot de kennis en vreze Gods komen zult, en de jaren naderen, van welke gij zeggen zult: Ik heb geen lust in deze.***
 
 1) Door dit woord wordt hier meer uitgedrukt, dan wanneer de Prediker het woord God gebruikt had. Want hierdoor wordt duidelijk aangewezen, dat God recht op den mens heeft, die daarom en om de weldaden, die hij van God ontvangen heeft, geheel van Hem afhankelijk is en zich ook als zodanig moet gevoelen. Wend u daarom reeds in den schonen tijd uwer jeugd tot God, en besteed niet uwe beste krachten in den dienst des duivels, om daarna als gij oud en krachteloos geworden zult zijn, u te bekeren en in den dienst van God over te gaan.

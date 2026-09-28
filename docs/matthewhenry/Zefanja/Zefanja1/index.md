@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zefanja 1
+
 1. Het woord des HEEREN, hetwelk geschied is tot Zefanja, de zoon van Cuschi, de zoon van Gedalja, de zoon van Amarja, de zoon van Hizkia; in de dagen van Josia, de zoon van Amon, de koning van Juda. 
 2. Ik zal ganselijk alles wegrapen uit dit land, spreekt de HEERE. 
 3. Ik zal wegrapen mensen en beesten; Ik zal wegrapen de vogelen des hemels, en de vissen der zee, en de ergernissen met de goddelozen; ja, Ik zal de mensen uit dit land uitroeien, spreekt de HEERE. 

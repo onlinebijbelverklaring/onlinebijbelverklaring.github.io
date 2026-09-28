@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 3
+
 1. EN Hij ging wederom in de synagoge; en aldaar was een mens, hebbende een verdorde hand.
 2. En zij namen Hem waar, of Hij op den sabbat hem genezen zou, opdat zij Hem beschuldigen mochten.
 3. En Hij zeide tot den mens die de verdorde hand had: Sta op in het midden.

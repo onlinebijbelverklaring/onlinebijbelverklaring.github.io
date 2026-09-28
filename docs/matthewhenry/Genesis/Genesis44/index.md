@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 44
+
 1. En hij gebood dengene, die over zijn huis was, zeggende: Vul de zakken dezer mannen met spijze, naar dat zij zullen kunnen dragen, en leg ieders mans geld in de mond van zijn zak; 
 2. En mijn beker, de zilveren beker, zult gij leggen in de mond van de zak des kleinsten, met het geld van zijn koren. En hij deed naar Jozefs woord, hetwelk hij gesproken had. 
 3. Des morgens, als het licht werd, zo liet men deze mannen trekken, hen en hun ezelen. 

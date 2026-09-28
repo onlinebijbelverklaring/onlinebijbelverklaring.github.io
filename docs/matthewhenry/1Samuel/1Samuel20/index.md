@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 20
+
 1. Toen vluchtte David van Najoth bij Rama, en hij kwam, en zeide voor het aangezicht van Jonathan: Wat heb ik gedaan, wat is mijn misdaad, en wat is mijn zonde voor het aangezicht uws vaders, dat hij mijn ziel zoekt? 
 2. Hij daarentegen zeide tot hem: Dat zij verre, gij zult niet sterven. Zie, mijn vader doet geen grote zaak, en geen kleine zaak, die hij voor mijn oor niet openbaart; waarom zou dan mijn vader deze zaak van mij verbergen? Dat is niet. 
 3. Toen zwoer David verder, en zeide: Uw vader weet zeer wel, dat ik genade in uw ogen gevonden heb; daarom heeft hij gezegd: Dat Jonathan dit niet wete, opdat hij zich niet bekommere; en zekerlijk, zo waarachtig als de HEERE leeft, en uw ziel leeft, er is maar als een schrede tussen mij en tussen de dood! 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 13
+
 1. Te dien dage werd er gelezen in het boek van Mozes voor de oren des volks; en daarin werd geschreven gevonden, dat de Ammonieten en Moabieten niet zouden komen in de gemeente Gods tot in eeuwigheid;
 2. Omdat zij den kinderen Israëls niet waren tegengekomen met brood en met water, ja, Bíleam tegen hem gehuurd hadden om hem te vloeken, hoewel onze God den vloek omkeerde in een zegen.
 3. Zo geschiedde het als zij deze wet hoorden, dat zij alle vermengeling van Israël afscheidden.

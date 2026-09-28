@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 8
+
 1. MAAR Jezus ging naar den Olijfberg.
 2. En des morgens vroeg kwam Hij wederom in den tempel, en al het volk kwam tot Hem; en nedergezeten zijnde, leerde Hij hen.
 3. En de schriftgeleerden en de farizeeën brachten tot Hem een vrouw, in overspel gegrepen.

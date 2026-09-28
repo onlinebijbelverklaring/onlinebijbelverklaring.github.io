@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 5
+
 DE BERGREDE VAN DE HEERE OVER DE ZALIGHEID VAN DE CHRISTENEN EN HET JUIST BEGRIP VAN DE WET.
 
 ## I. Vers 1 en 2

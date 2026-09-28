@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 10
+
 1. EN er was een zeker man te Cesaréa, met name Cornelius, een hoofdman over honderd, uit de bende genaamd de Italiaanse,
 2. Godzalig en vrezende God, met geheel zijn huis, en doende vele aalmoezen aan het volk, en God geduriglijk biddende.
 3. Deze zag in een gezicht klaarlijk, omtrent de negende ure des daags, een engel Gods tot hem inkomen, en tot hem zeggende: Cornelius.

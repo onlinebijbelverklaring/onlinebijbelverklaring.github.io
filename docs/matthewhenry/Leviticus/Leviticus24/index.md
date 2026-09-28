@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 24
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Gebied de kinderen Israëls, dat zij tot u brengen zuivere gestoten olijfolie, voor de luchter, om de lampen gedurig aan te steken. 
 3. Aäron zal die voor het aangezicht des HEEREN gedurig toerichten, van de avond tot de morgen, buiten de voorhang van de getuigenis, in de tent der samenkomst; het is een eeuwige inzetting voor uw geslachten. 

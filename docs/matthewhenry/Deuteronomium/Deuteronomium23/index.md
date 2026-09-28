@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 23
+
 1. Die door plettering verwond of uitgesneden is aan de mannelijkheid, zal in de vergadering des HEEREN niet komen. 
 2. Geen bastaard zal in de vergadering des HEEREN komen; zelfs zijn tiende geslacht zal in de vergadering des HEEREN niet komen. 
 3. Geen Ammoniet, noch Moabiet zal in de vergadering des HEEREN komen; zelfs hun tiende geslacht zal in de vergadering des HEEREN niet komen tot in eeuwigheid. 

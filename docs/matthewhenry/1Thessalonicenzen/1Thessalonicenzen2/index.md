@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 2
+
 1. WANT gij weet zelven, broeders, onzen ingang tot u, dat die niet ijdel is geweest;
 2. Maar hoewel wij tevoren geleden hadden, en ook ons smaadheid aangedaan was, gelijk gij weet, te Filippi, zo hebben wij nochtans vrijmoedigheid gebruikt in onzen God, om het Evangelie Gods tot u te spreken in veel strijd.
 3. Want onze vermaning is niet geweest uit verleiding, noch uit onreinheid, noch met bedrog;

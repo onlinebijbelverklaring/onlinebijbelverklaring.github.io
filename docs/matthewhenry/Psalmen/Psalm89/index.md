@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 89
+
 1. EEN onderwijzing van Ethan, den Ezrahiet.
 2. Ik zal de goedertierenheden des HEEREN eeuwiglijk zingen; ik zal Uw waarheid met mijn mond bekendmaken van geslacht tot geslacht.
 3. Want ik heb gezegd: Uw goedertierenheid zal eeuwiglijk gebouwd worden; in de hemelen zelve hebt Gij Uw waarheid bevestigd, zeggende:

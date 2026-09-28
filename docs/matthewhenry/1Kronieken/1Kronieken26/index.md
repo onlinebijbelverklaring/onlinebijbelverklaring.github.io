@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 26
+
 1. Aangaande de verdelingen der poortiers: van de Korahieten was Meselemja, de zoon van Kore, van de kinderen van Asaf. 
 2. Meselemja nu had kinderen; Zecharja was de eerstgeborene, Jediael de tweede, Zebadja de derde, Jathniel de vierde, 
 3. Elam de vijfde, Johanan de zesde, Eljeoenai de zevende. 

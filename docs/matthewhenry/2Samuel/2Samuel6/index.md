@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 6
+
 1. Daarna verzamelde David wederom alle uitgelezenen in Israël, dertig duizend. 
 2. En David maakte zich op, en ging heen met al het volk, dat bij hem was, van Baalim-Juda, om van daar op te brengen de ark Gods, bij dewelke de Naam wordt aangeroepen, de Naam van de HEERE der heirscharen, Die daarop woont tussen de cherubim. 
 3. En zij voerden de ark Gods op een nieuwen wagen, en haalden ze uit het huis van Abinadab, dat op een heuvel is; en Uza en Ahio, zonen van Abinadab, leidden de nieuwen wagen. 

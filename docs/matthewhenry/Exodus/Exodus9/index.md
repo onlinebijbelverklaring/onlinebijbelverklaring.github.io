@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 9
+
 1. Daarna zeide de HEERE tot Mozes: Ga in tot Farao, en spreek tot hem: Alzo zegt de HEERE, de God der Hebreeën: Laat Mijn volk trekken, dat het Mij diene. 
 2. Want zo gij hen weigert te laten trekken, en gij hen nog met geweld ophoudt, 
 3. Zie, de hand des HEEREN zal zijn over uw vee, dat in het veld is, over de paarden, over de ezelen, over de kemelen, over de runderen, en over het klein vee, door een zeer zware pestilentie. 

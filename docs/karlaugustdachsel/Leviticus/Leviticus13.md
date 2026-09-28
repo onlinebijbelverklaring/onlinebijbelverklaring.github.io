@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 13
+
 KENTEKENEN VAN DE MELAATSHEID AAN DE MENS EN DE KLEREN.
 
 ## I. Vers 1-46

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 30
+
 VAN HET REUKALTAAR, DE BELASTING, HET WASVAT, DE ZALFOLIE EN HET REUKWERK.
 
 ## I. Vers 1-10

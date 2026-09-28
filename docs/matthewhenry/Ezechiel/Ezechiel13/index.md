@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 13
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, profeteer tegen de profeten Israëls, die profeteren, en zeg tot degenen die uit hun hart profeteren: Hoort des HEEREN woord.
 3. Zo zegt de Heere HEERE: Wee over die dwaze profeten, die hun geest nawandelen, en hetgeen zij niet gezien hebben!

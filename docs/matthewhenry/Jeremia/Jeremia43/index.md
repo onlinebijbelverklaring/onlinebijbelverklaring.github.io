@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 43
+
 1. EN het geschiedde als Jeremía geëindigd had tot het ganse volk te spreken al de woorden des HEEREN huns Gods, met dewelke hem de HEERE hun God tot hen gezonden had, te weten al die woorden,
 2. Zo sprak Azária, de zoon van Hosája, en Jóhanan, de zoon van Karéah, en al de trotse mannen, zeggende tot Jeremía: Gij spreekt leugen; de HEERE onze God heeft u niet gezonden om te zeggen: Gijlieden zult niet gaan in Egypte om aldaar als vreemdelingen te verkeren.
 3. Maar Baruch, de zoon van Neríja, hitst u tegen ons op, opdat hij ons overgeve in de hand der Chaldeeën, dat zij ons doden en ons gevankelijk naar Babel wegvoeren.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 15
+
 ENIGE WETTEN NADER AANGEVULD OF NADER OMSCHREVEN EN DE ONTHEILIGING VAN DE SABBAT GESTRAFT.
 
 ## I. Vers 1-31

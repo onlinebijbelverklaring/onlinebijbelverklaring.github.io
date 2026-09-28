@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 55
+
 1. O alle gij dorstigen, komt tot de wateren, en gij die geen geld hebt, komt, koopt en eet, ja, komt, koopt zonder geld en zonder prijs, wijn en melk.
 2. Waarom weegt gijlieden geld uit voor hetgeen dat geen brood is, en uw arbeid voor hetgeen dat niet verzadigen kan? Hoort aandachtiglijk naar Mij en eet het goede, en laat uw ziel in vettigheid zich verlustigen.
 3. Neigt uw oor en komt tot Mij, hoort en uw ziel zal leven; want Ik zal met u een eeuwig verbond maken en u geven de gewisse weldadigheden Davids.

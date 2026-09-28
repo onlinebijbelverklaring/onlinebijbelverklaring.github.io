@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 10
+
 1. Als Ezra alzo bad, en als hij deze belijdenis deed, wenende en zich voor Gods huis nederwerpende, verzamelde zich tot hem uit Israël een zeer grote gemeente van mannen, en vrouwen, en kinderen; want het volk weende met groot geween. 
 2. Toen antwoordde Sechanja, de zoon van Jehiel, een van de zonen van Elam, en zeide tot Ezra: Wij hebben overtreden tegen onzen God, en wij hebben vreemde vrouwen van de volken des lands bij ons doen wonen; maar nu, er is hope voor Israël, dezen aangaande. 
 3. Laat ons dan nu een verbond maken met onze God, dat wij al die vrouwen, en wat van haar geboren is, zullen doen uitgaan, naar de raad des HEEREN, en dergenen, die beven voor het gebod onzes Gods; en laat er gedaan worden naar de wet. 

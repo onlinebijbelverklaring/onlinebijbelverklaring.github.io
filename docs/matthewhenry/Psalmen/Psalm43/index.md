@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 43
+
 1. DOE mij recht, o God, en twist Gij mijn twistzaak; bevrijd mij van het ongoedertieren volk, van den man des bedrogs en des onrechts.
 2. Want Gij zijt de God mijner sterkte; waarom verstoot Gij mij dan? Waarom ga ik steeds in het zwart vanwege des vijands onderdrukking?
 3. Zend Uw licht en Uw waarheid, dat die mij leiden, dat zij mij brengen tot den berg Uwer heiligheid en tot Uw woningen;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 17
+
 1. EN Hij zeide tot de discipelen: Het kan niet wezen dat er geen ergernissen komen; doch wee hem door welken zij komen.
 2. Het zou hem nutter zijn dat een molensteen om zijn hals gedaan ware en hij in de zee geworpen, dan dat hij een van deze kleinen zou ergeren.
 3. Wacht uzelven. En indien uw broeder tegen u zondigt, zo bestraf hem; en indien het hem leed is, zo vergeef het hem.

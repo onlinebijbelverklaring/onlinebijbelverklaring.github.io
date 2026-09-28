@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 44
+
 1. TOEN deed Hij mij wederkeren den weg naar de poort van het buitenste heiligdom die naar het oosten zag; en die was toegesloten.
 2. En de HEERE zeide tot mij: Deze poort zal toegesloten zijn, zij zal niet geopend worden, noch iemand door dezelve ingaan, omdat de HEERE, de God Israëls, door dezelve is ingegaan; daarom zal zij toegesloten zijn.
 3. De vorst, de vorst, die zal in dezelve zitten om brood te eten voor het aangezicht des HEEREN; door den weg van het voorhuis der poort zal hij ingaan en door den weg van hetzelve zal hij uitgaan.

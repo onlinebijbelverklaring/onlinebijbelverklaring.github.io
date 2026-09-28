@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 1
+
 1. Het woord des HEEREN, dat geschied is tot Micha, de Morastiet, in de dagen van Jotham, Achaz en Jehizkia, koningen van Juda; dat hij gezien heeft over Samaria en Jeruzalem. 
 2. Hoort, gij volken altemaal! merk op, gij aarde, mitsgaders derzelver volheid! de Heere HEERE nu zal tot een getuige zijn tegen ulieden, de Heere uit de tempel Zijner heiligheid. 
 3. Want ziet, de HEERE gaat uit van Zijn plaats, en Hij zal nederdalen en treden op de hoogten der aarde. 

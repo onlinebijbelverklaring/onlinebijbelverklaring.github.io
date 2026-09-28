@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 2 Thessalonicenzen
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE TWEEDE BRIEF VAN DE APOSTEL PAULUS AAN DE THESSALONICENSEN
 
 Deze tweede brief werd geschreven kort na de eerste, en schijnt te hebben moeten dienen om een misverstand weg te nemen, dat ontstaan was naar aanleiding van sommige uitdrukkingen in de eerste brief, betreffende de wederkomst van Christus, alsof die aanstaande ware.

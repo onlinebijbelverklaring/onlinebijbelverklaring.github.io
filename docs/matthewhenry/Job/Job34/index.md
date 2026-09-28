@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 34
+
 1. VERDER antwoordde Elihu en zeide:
 2. Hoort, gij wijzen, mijn woorden, en gij verstandigen, neigt de oren naar mij.
 3. Want het oor proeft de woorden, gelijk het gehemelte de spijze smaakt.

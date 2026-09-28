@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Klaagliederen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN DE KLAAGLIEDEREN VAN JEREMIA
 
 Sinds wat Salomo zegt, zeker waar is, hoewel in strijd met de algemene wereldse mening, dat het treuren beter is dan het lachen, en, dat het beter is te gaan in het klaaghuis dan te gaan in het huis des maaltijds, behoren wij tot het lezen en beschouwen van de treurige hoofdstukken van dit boek over te gaan, niet alleen bereidwillig, maar in de zekere verwachting er door gesticht te zullen worden; en om ons daartoe voor te bereiden, moeten wij ons schikken tot ene heilige droefheid en besluiten te wenen met de wenende profeet. Laat ons dan beschouwen:

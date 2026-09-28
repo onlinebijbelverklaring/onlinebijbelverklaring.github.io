@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 7
+
 1. Toen zeide de HEERE tot Mozes: Zie, Ik heb u tot een God gezet over Farao; en Aaron, uw broeder, zal uw profeet zijn. 
 2. Gij zult spreken alles, wat Ik u gebieden zal; en Aaron, uw broeder, zal tot Farao spreken, dat hij de kinderen Israëls uit zijn land trekken laat. 
 3. Doch Ik zal Farao's hart verharden; en Ik zal Mijn tekenen en Mijn wonderheden in Egypteland vermenigvuldigen. 

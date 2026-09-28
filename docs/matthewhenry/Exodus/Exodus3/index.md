@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 3
+
 1. En Mozes hoedde de kudde van Jethro, zijn schoonvader, de priester in Midian; en hij leidde de kudde achter de woestijn, en hij kwam aan de berg Gods, aan Horeb. 
 2. En de Engel des HEEREN verscheen hem in een vuurvlam uit het midden van een braambos; en hij zag, en ziet, het braambos brandde in het vuur, en het braambos werd niet verteerd. 
 3. En Mozes zeide: Ik zal mij nu daarheen wenden, en bezien dat grote gezicht, waarom het braambos niet verbrandt. 

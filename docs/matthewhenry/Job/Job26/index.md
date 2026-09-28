@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 26
+
 1. MAAR Job antwoordde en zeide:
 2. Hoe hebt gij geholpen dien die zonder kracht is, en behouden den arm die zonder sterkte is!
 3. Hoe hebt gij hem geraden die geen wijsheid heeft, en de zaak alzo zij is, ten volle bekendgemaakt!

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 29
+
 1. Verder zeide de koning David tot de ganse gemeente: God heeft mijn zoon Salomo alleen verkoren, een jongeling en teder; dit werk daarentegen is groot, want het is geen paleis voor een mens, maar voor God, de HEERE. 
 2. Ik heb nu uit al mijn kracht bereid tot het huis mijns Gods, goud tot gouden, en zilver tot zilveren, en koper tot koperen, ijzer tot ijzeren, en hout tot houten werken; sardonixstenen en vervullende stenen, versierstenen en borduursel, en allerlei kostelijke stenen, en marmerstenen in menigte. 
 3. En daartoe, uit mijn welgevallen tot het huis mijns Gods, geef ik het bijzonder goud en zilver, dat ik heb, tot het huis mijns Gods daarenboven, behalve al wat ik ten huize des heiligdoms bereid heb; 

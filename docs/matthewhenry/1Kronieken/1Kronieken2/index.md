@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 2
+
 1. Dezen zijn de kinderen van Israël: Ruben, Simeon, Levi en Juda, Issaschar en Zebulon, 
 2. Dan, Jozef en Benjamin, Nafthali, Gad en Aser. 
 3. De kinderen van Juda zijn: Er, en Onan, en Sela; drie zijn er hem geboren van de dochter van Sua, de Kanaanietische; en Er, de eerstgeborene van Juda, was kwaad in de ogen des HEEREN; daarom doodde Hij hem. 

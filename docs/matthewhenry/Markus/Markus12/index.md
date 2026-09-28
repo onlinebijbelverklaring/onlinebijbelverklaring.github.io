@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 12
+
 1. EN Hij begon door gelijkenissen tot hen te zeggen: Een mens plantte een wijngaard, en zette een tuin daarom, en groef een wijnpersbak, en bouwde een toren, en verhuurde dien aan de landlieden, en reisde buitenslands.
 2. En als de tijd was, zond hij een dienstknecht tot de landlieden, opdat hij van de landlieden ontving van de vrucht des wijngaards.
 3. Maar zij namen en sloegen hem, en zonden hem ledig heen.

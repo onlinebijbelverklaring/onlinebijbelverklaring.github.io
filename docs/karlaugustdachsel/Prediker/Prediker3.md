@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 3
+
 GODS VOORZIENIGHEID LEERT NU, DAT DE HEIDENSE ZORG VOOR DE VOEDING IJDEL IS.
 
 B. In de tweede rede, in Hoofdstuk 3-5 vervat, beschouwt de Prediker het enige levensgeluk des mensen, namelijk de dankbare vreugde over Gods gaven, uitvoeriger, en hij leert, dat dit goed wel is waar niet gemakkelijk te verkrijgen is, omdat de in menigerlei opzicht afwisselende	omstandigheden	in	het	menselijk	leven,	en	de	vaak	ongunstige levensbetrekkingen in den weg staan, dat men er evenwel toch met oprechte vroomheid, gerechtigheid en een goed vertrouwen op God naar streven moet.

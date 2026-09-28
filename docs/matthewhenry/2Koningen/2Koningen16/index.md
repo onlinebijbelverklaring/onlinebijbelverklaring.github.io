@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 16
+
 1. In het zeventiende jaar van Pekah, de zoon van Remalia, werd Achaz koning, de zoon van Jotham, de koning van Juda. 
 2. Twintig jaren was Achaz oud, toen hij koning werd, en hij regeerde zestien jaren te Jeruzalem; en hij deed niet dat recht was in de ogen des HEEREN zijns Gods, als zijn vader David. 
 3. Want hij wandelde in de weg der koningen van Israël; ja, hij deed ook zijn zoon door het vuur gaan, naar de gruwelen der heidenen, die de HEERE voor de kinderen Israëls verdreven had. 

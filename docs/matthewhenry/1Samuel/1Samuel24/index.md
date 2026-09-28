@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 24
+
 1. EN David toog vandaar op, en hij bleef in de vestingen van Engédi.
 2. En het geschiedde nadat Saul wedergekeerd was van achter de Filistijnen, zo gaf men hem te kennen, zeggende: Zie, David is in de woestijn van Engédi.
 3. Toen nam Saul drieduizend uitgelezen mannen uit gans Israël, en hij toog heen om David en zijn mannen te zoeken boven op de rotsstenen der steenbokken.

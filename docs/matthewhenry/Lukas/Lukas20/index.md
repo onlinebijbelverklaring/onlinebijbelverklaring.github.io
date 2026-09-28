@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 20
+
 1. EN het geschiedde in een van die dagen, als Hij in den tempel het volk leerde en het Evangelie verkondigde, dat de overpriesters en schriftgeleerden met de ouderlingen daarover kwamen,
 2. En spraken tot Hem, zeggende: Zeg ons door wat macht Gij deze dingen doet; of wie Hij is Die U deze macht heeft gegeven.
 3. En Hij antwoordende zeide tot hen: Ik zal u ook één woord vragen; en zegt Mij:

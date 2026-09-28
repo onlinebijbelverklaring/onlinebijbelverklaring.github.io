@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 10
+
 1. EN ik wil niet, broeders, dat gij onwetende zijt dat onze vaders allen onder de wolk waren, en allen door de zee doorgegaan zijn,
 2. En allen in Mozes gedoopt zijn in de wolk en in de zee,
 3. En allen dezelfde geestelijke spijze gegeten hebben,

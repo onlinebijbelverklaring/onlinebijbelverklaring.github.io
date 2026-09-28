@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 18
+
 1. En David monsterde het volk, dat met hem was; en hij stelde over hen oversten van duizenden, en oversten van honderden. 
 2. Voorts zond David het volk uit, een derde deel onder de hand van Joab, en een derde deel onder de hand van Abisaï, de zoon van Zeruja, Joabs broeder, en een derde deel onder de hand van Ithai, de Gethiet. En de koning zeide tot het volk: Ik zal ook zelf zekerlijk met ulieden uittrekken. 
 3. Maar het volk zeide: Gij zult niet uittrekken; want of wij te enen male vloden, zij zullen het hart op ons niet stellen; ja, of de helft van ons stierf, zij zullen het hart op ons niet stellen; maar gij zijt nu als tien duizend onzer. Zo zal het nu beter zijn, dat gij ons uit de stad ter hulpe zijt. 

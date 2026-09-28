@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 13
+
 1. Saul was een jaar in zijn regering geweest, en het tweede jaar regeerde hij over Israël. 
 2. Toen verkoos zich Saul drie duizend mannen uit Israël; en er waren bij Saul twee duizend te Michmas en op het gebergte van Beth-el, en duizend waren er bij Jonathan te Gibea-benjamins; en het overige des volks liet hij gaan, een iegelijk naar zijn tent. 
 3. Doch Jonathan sloeg de bezetting der Filistijnen, die te Geba was, hetwelk de Filistijnen hoorden. Daarom blies Saul met de bazuin in het ganse land, zeggende: Laat het de Hebreen horen. 

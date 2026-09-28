@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 5
+
 1. Dit is het boek van Adams geslacht. Ten dage als God de mens schiep, maakte Hij hem naar de gelijkenis Gods. 
 2. Man en vrouw schiep Hij hen, en zegende ze, en noemde hun naam Mens, ten dage als zij geschapen werden. 
 3. En Adam leefde honderd en dertig jaren, en gewon een zoon naar zijn gelijkenis, naar zijn evenbeeld, en noemde zijn naam Seth. 

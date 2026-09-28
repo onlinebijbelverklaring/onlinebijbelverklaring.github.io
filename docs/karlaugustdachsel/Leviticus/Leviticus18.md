@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 18
+
 VERBODEN GRADEN VAN BLOEDVERWANTSCHAP IN HET HUWELIJK.
 
 ## I. Vers 1-30

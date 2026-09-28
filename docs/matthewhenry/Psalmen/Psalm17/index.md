@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 17
+
 1. EEN gebed van David.
 HEERE, hoor de gerechtigheid, merk op mijn geschrei, neem ter ore mijn gebed, met onbedrieglijke lippen gesproken.
 2. Laat mijn recht van voor Uw aangezicht uitgaan, laat Uw ogen de billijkheden aanschouwen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 28
+
 BETHEL.
 
 ***1. 1) En Izaak riep Jakob, en zegende 2) hem, om nu de zegen te bevestigen, die hij hem vroeger tegen zijn wil gegeven had; en daar hij hem nu uitdrukkelijk als de stamhouder van de lijn van de belofte erkende, gebood hij hem, en zei tot hem: Neem geen vrouw uit de dochters van Kanaän.***

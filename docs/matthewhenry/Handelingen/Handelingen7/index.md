@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 7
+
 1. EN de hogepriester zeide: Zijn dan deze dingen alzo?
 2. En hij zeide: Gij mannen broeders en vaders, hoort toe. De God der heerlijkheid verscheen onzen vader Abraham, nog zijnde in Mesopotámië, eer hij woonde in Haran,
 3. En zeide tot hem: Ga uit uw land en uit uw maagschap, en kom in een land dat Ik u wijzen zal.

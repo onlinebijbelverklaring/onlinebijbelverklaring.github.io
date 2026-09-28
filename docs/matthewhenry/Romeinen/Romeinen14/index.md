@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 14
+
 1. NEEMT dengene nu die zwak is in het geloof, aan, maar niet tot twistige samensprekingen.
 2. De een gelooft wel dat men alles eten mag, maar die zwak is, eet moeskruiden.
 3. Die daar eet, verachte hem niet die niet eet; en die niet eet, oordele hem niet die daar eet; want God heeft hem aangenomen.

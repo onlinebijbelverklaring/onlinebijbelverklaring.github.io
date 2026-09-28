@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 30
+
 1. Gij zult ook een reukaltaar des reukwerks maken; van sittimhout zult gij het maken. 
 2. Een el zal zijn lengte zijn, en een el zijn breedte, vierkant zal het zijn, maar twee ellen deszelfs hoogte; uit hetzelve zullen zijn hoornen zijn. 
 3. En gij zult het met louter goud overtrekken, zijn dak en deszelfs wanden rondom, als ook zijn hoornen; en gij zult het een gouden krans rondom maken. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 5
+
 1. NU zal ik mijn Beminde een lied mijns Liefsten zingen van Zijn wijngaard: Mijn Beminde heeft een wijngaard op een vetten heuvel.
 2. En Hij heeft dien omtuind en van stenen gezuiverd, en Hij heeft hem beplant met edele wijnstokken; en Hij heeft in deszelfs midden een toren gebouwd en ook een wijnbak daarin uitgehouwen; en Hij heeft verwacht dat hij goede druiven zou voortbrengen, maar hij heeft stinkende druiven voortgebracht.
 3. Nu dan, gij inwoners van Jeruzalem en gij mannen van Juda, oordeelt toch tussen Mij en tussen Mijn wijngaard.

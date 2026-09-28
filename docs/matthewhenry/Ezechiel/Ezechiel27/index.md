@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 27
+
 1. WIJDERS geschiedde des HEEREN woord tot mij, zeggende:
 2. Gij dan, mensenkind, hef een klaaglied op over Tyrus;
 3. En zeg tot Tyrus, die daar woont aan de ingangen der zee, handelende met de volken in vele eilanden: Zo zegt de Heere HEERE: O Tyrus, gij zegt: Ik ben volmaakt in schoonheid.

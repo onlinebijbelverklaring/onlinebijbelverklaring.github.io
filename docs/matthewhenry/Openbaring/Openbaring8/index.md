@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 8
+
 1. EN toen Het het zevende zegel geopend had, werd er een stilzwijgen in den hemel, omtrent van een halfuur.
 2. En ik zag de zeven engelen, die voor God stonden, en hun werden zeven bazuinen gegeven.
 3. En er kwam een andere Engel, en stond aan het altaar, hebbende een gouden wierookvat; en Hem werd veel reukwerk gegeven, opdat Hij het met de gebeden aller heiligen zou leggen op het gouden altaar dat voor den troon is.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 3
+
 1. ZIJT niet vele meesters, mijne broeders, wetende dat wij te meerder oordeel zullen ontvangen.
 2. Want wij struikelen allen in vele. Indien iemand in woorden niet struikelt, die is een volmaakt man, machtig om ook het gehele lichaam in den toom te houden.
 3. Zie, wij leggen den paarden tomen in de monden, opdat zij ons zouden gehoorzamen, en wij leiden daarmede hun gehele lichaam om.

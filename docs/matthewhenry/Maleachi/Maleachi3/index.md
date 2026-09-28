@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Maleachi 3
+
 1. Ziet, Ik zende Mijn engel, die voor Mijn aangezicht de weg bereiden zal; en snellijk zal tot Zijn tempel komen die Heere, Dien gijlieden zoekt, te weten de Engel des verbonds, aan Denwelken gij lust hebt; ziet, Hij komt, zegt de HEERE der heirscharen. 
 2. Maar wie zal de dag Zijner toekomst verdragen, en wie zal bestaan, als Hij verschijnt? Want Hij zal zijn als het vuur van een goudsmid, en als zeep der vollers. 
 3. En Hij zal zitten, louterende, en het zilver reinigende, en Hij zal de kinderen van Levi reinigen, en Hij zal ze doorlouteren als goud, en als zilver; dan zullen zij de HEERE spijsoffer toebrengen in gerechtigheid. 

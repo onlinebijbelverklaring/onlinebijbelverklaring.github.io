@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 32
+
 1. ZIE, een Koning zal regeren in gerechtigheid; en de vorsten zullen heersen naar recht.
 2. En die Man zal zijn als een verberging tegen den wind en een schuilplaats tegen den vloed; als waterbeken in een dorre plaats, als de schaduw van een zwaren rotssteen in een dorstig land.
 3. En de ogen dergenen die zien, zullen niet terugzien, en de oren dergenen die horen, zullen opmerken.

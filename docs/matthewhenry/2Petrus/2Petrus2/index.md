@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Petrus 2
+
 1. EN er zijn ook valse profeten onder het volk geweest, gelijk ook onder u valse leraars zijn zullen, die verderfelijke ketterijen bedektelijk invoeren zullen, ook den Heere, Die hen gekocht heeft, verloochenende, en een haastig verderf over zichzelven brengende.
 2. En velen zullen hun verderfenissen navolgen, door welke de weg der waarheid zal gelasterd worden.
 3. En zij zullen door gierigheid, met gemaakte woorden, van u een koopmanschap maken; over welke het oordeel van overlang niet ledig is, en hun verderf sluimert niet.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 12
+
 1. WIE de tucht liefheeft, die heeft de wetenschap lief, maar wie de bestraffing haat, is onvernuftig.
 2. De goede zal een welgevallen trekken van den HEERE, maar een man van schandelijke verdichtselen zal Hij verdoemen.
 3. De mens zal niet bevestigd worden door goddeloosheid, maar de wortel der rechtvaardigen zal niet bewogen worden.

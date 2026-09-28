@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Micha
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET MICHA
 
 Wij zullen een en ander over de profeet zelf in het midden brengen bij het eerste vers van het boek zijner profetie; en zullen daarom hier alleen opmerken, dat er, wijl hij de tijdgenoot van de profeet Jesaja (hij begon echter zijn profetisch werk iets later dan deze) was, tussen beider profetieën een grote overeenkomst bestaat. 

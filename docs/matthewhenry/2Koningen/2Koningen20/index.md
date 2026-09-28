@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 20
+
 1. In die dagen werd Hizkia krank tot stervens toe; en de profeet Jesaja, de zoon van Amoz, kwam tot hem, en zeide tot hem: Zo zegt de HEERE: Geef bevel aan uw huis, want gij zult sterven, en niet leven. 
 2. Toen keerde hij zijn aangezicht om naar de wand, en hij bad tot de HEERE, zeggende: 
 3. Och, HEERE, gedenk toch, dat ik voor Uw aangezicht in waarheid en met een volkomen hart gewandeld, en wat goed in Uw ogen is, gedaan heb. En Hizkia weende gans zeer. 

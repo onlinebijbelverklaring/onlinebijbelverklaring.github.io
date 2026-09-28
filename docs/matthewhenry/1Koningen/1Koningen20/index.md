@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 20
+
 1. En Benhadad, de koning van Syrië, vergaderde al zijn macht; en twee en dertig koningen waren met hem, en paarden en wagenen; en hij toog op, en belegerde Samaria en krijgde tegen haar. 
 2. En hij zond boden tot Achab, de koning van Israël, in de stad. 
 3. En hij zeide hem aan: Zo zegt Benhadad: Uw zilver en uw goud, dat is mijn, daartoe uw vrouwen en uw beste kinderen, die zijn mijn. 

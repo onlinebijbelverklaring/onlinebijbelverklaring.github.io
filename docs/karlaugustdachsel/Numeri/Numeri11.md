@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 11
+
 HET BEGERIGE VOLK GESTRAFT.
 
 ## I. Vers 1-34

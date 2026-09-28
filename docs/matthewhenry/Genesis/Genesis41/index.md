@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 41
+
 1. En het geschiedde ten einde van twee volle jaren, dat Farao droomde, en ziet, hij stond aan de rivier. 
 2. En ziet, uit de rivier kwamen op zeven koeien, schoon van aanzien, en vet van vlees, en zij weidden in het gras. 
 3. En ziet, zeven andere koeien kwamen na die op uit de rivier, lelijk van aanzien, en dun van vlees; en zij stonden bij de andere koeien aan de oever der rivier. 

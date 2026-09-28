@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 1
+
 1. HET geschiedde nu in de dagen van Ahasvéros (hij is die Ahasvéros dewelke regeerde van India af tot aan Morenland toe, honderd zeven en twintig landschappen),
 2. In die dagen, als de koning Ahasvéros op den troon zijns koninkrijks zat, die op den burcht Susan was,
 3. In het derde jaar zijner regering, maakte hij een maaltijd al zijn vorsten en zijn knechten; de macht van Perzië en Medië, de grootste heren en de oversten der landschappen waren voor zijn aangezicht;

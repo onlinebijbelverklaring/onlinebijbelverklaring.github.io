@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 78
+
 1. EEN onderwijzing van Asaf. O mijn volk, neem mijn leer ter ore, neigt ulieder oor tot de redenen mijns monds.
 2. Ik zal mijn mond opendoen met spreuken; ik zal verborgenheden overvloediglijk uitstorten van oudsher,
 3. Die wij gehoord hebben en weten ze, en onze vaders ons verteld hebben.

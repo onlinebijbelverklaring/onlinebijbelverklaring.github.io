@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 94
+
 1. O God der wraken, o HEERE, God der wraken, verschijn blinkende.
 2. Gij Rechter der aarde, verhef U; breng vergelding weder over de hovaardigen.
 3. Hoelang zullen de goddelozen, o HEERE, hoelang zullen de goddelozen van vreugde opspringen?

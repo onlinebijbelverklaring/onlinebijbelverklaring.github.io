@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 4
+
 1. EN te dien dage zullen zeven vrouwen één man aangrijpen, zeggende: Ons brood zullen wij eten en met onze klederen zullen wij bekleed zijn, laat ons alleenlijk naar uw naam genoemd worden, neem onze smaadheid weg.
 2. Te dien dage zal des HEEREN SPRUITE zijn tot sieraad en tot heerlijkheid, en de Vrucht der aarde tot voortreffelijkheid en tot versiering dengenen die het ontkomen zullen in Israël.
 3. En het zal geschieden dat de overgeblevene in Sion en de overgelatene in Jeruzalem zal heilig geheten worden, een iegelijk die geschreven is ten leven te Jeruzalem;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 4
+
 1. ALZO houde ons een ieder mens als dienaars van Christus en uitdelers der verborgenheden Gods.
 2. En voorts wordt in de uitdelers vereist dat elk getrouw bevonden worde.
 3. Doch mij is voor het minst, dat ik van ulieden geoordeeld word, of van een menselijk oordeel; ja, ik oordeel ook mijzelven niet.

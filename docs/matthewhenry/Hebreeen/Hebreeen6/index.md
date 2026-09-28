@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 6
+
 1. DAAROM, nalatende het beginsel der leer van Christus, laat ons tot de volmaaktheid voortvaren; niet wederom leggende het fundament van de bekering van dode werken, en van het geloof in God,
 2. Van de leer der dopen, en van de oplegging der handen, en van de opstanding der doden, en van het eeuwige oordeel.
 3. En dit zullen wij ook doen, indien het God toelaat.

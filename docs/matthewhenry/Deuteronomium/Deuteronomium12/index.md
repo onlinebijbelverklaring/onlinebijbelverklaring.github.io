@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 12
+
 1. Dit zijn de inzettingen en de rechten, die gijlieden zult waarnemen om te doen, in dat land, hetwelk u de HEERE, uwer vaderen God, gegeven heeft, om het te erven; al de dagen, die gijlieden op de aardbodem leeft. 
 2. Gij zult ganselijk vernielen al de plaatsen, alwaar de volken, die gij zult erven, hun goden gediend hebben; op de hoge bergen, en op de heuvelen, en onder allen groenen boom. 
 3. En gij zult hun altaren afwerpen, en hun opgerichte beelden verbreken, en hun bossen met vuur verbranden, en de gesneden beelden hunner goden nederhouwen; en gij zult hun naam te niet doen uit diezelve plaats. 

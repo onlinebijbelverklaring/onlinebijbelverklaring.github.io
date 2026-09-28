@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 5
+
 CHRISTUS’ VERDEDIGINGSREDE	VAN ZIJN WONDER AAN DE ACHT EN DERTIGJARIGE ZIEKE
 
 D. De derde groep, die hier begint en tot aan het slot van Hoofdst. 6 () doorgaat, omvat de tijd van een tweede feestreis van Jezus naar Jeruzalem tot aan de derde, namelijk die tot het loofhuttenfeest. Johannes vertelt uit die tijd, die langer dan zestien maanden is, twee voorname gebeurtenissen, waarvan de ene Judea en de andere Galilea aangaat. Wat de eerste betreft moet hij de drie eerste evangelisten, die Judea voor de tijd van Jezus’ openbare profetische werkzaamheid niet in aanmerking nemen, aanvullen met een geschiedenis (Hoofdstuk 5). Wat het tweede betreft kan hij in het bericht daarvan ingrijpen, hoewel ook daar een uitbreiding moet worden gemaakt (Hoofdstuk 6). Deze gebeurtenissen staan nu zowel wat plaats als tijd aangaat vrij ver van elkaar, toch behoren zij bij elkaar, omdat zij ons de Heere voorstellen die Zich in tekenen en wonderen onder het volk van Zijn eigendom als de Geneesmeester en Heiland en als het ware levensbrood betoont, tegenover het steeds beslister optredend ongeloof van de oversten en volksleiders in Judea en dat van de groten in Galilea. In Hoofdst. 5 () breekt ten gevolge van de genezing aan het badwater van Bethesda de tegenstand van de Joden, die zich reeds in Hoofdst. 2: 18 vv. en 4: 1 vv. uitte, openlijk door. Om de dreigende catastrofe te verwijderen trekt Jezus Zich voorzichtig naar Galilea terug en geeft de Joden tijd om hun tegenspraak te laten bedaren. Maar ook in Galilea ontmoet Hij in Hoofdst. 6 () het ongeloof bij de grote menigte, maar in een andere vorm. In Judea wekt de ijverzucht in de oversten een haat, die ten slotte probeert Hem te doden; in Galilea daarentegen brengt de vleselijke gezindheid, die bij Hem niet vinden kan wat zij begeert, het daartoe, dat men Hem verlaat.

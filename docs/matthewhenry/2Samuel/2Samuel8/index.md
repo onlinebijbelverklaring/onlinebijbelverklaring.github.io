@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 8
+
 1. En het geschiedde daarna, dat David de Filistijnen sloeg, en bracht hen ten onder; en David nam Meteg-amma uit der Filistijnen hand. 
 2. Ook sloeg hij de Moabieten, en mat hen met een snoer, doende hen ter aarde nederliggen; en hij mat met twee snoeren om te doden, en met een vol snoer om in het leven te laten. Alzo werden de Moabieten David tot knechten, brengende geschenken. 
 3. David sloeg ook Hadad-ezer, de zoon van Rechob, de koning van Zoba, toen hij heen toog, om zijn hand te wenden naar de rivier Frath. 

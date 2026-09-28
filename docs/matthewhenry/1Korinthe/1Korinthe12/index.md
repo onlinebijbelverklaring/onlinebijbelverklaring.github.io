@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 12
+
 1. EN van de geestelijke gaven, broeders, wil ik niet dat gij onwetende zijt.
 2. Gij weet dat gij heidenen waart, tot de stomme afgoden heengetrokken, naar dat gij geleid werdt.
 3. Daarom maak ik u bekend, dat niemand die door den Geest Gods spreekt, Jezus een vervloeking noemt; en niemand kan zeggen Jezus den Heere te zijn, dan door den Heiligen Geest.

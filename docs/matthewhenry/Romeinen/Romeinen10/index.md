@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 10
+
 1. BROEDERS, de toegenegenheid mijns harten, en het gebed dat ik tot God voor Israël doe, is tot hun zaligheid.
 2. Want ik geef hun getuigenis, dat zij een ijver tot God hebben, maar niet met verstand.
 3. Want alzo zij de rechtvaardigheid Gods niet kennen, en hun eigen gerechtigheid zoeken op te richten, zo zijn zij der rechtvaardigheid Gods niet onderworpen.

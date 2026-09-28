@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 2
+
 MOZES’ GEBOORTE, OPVOEDING, VLUCHT EN HUWELIJK.
 
 ## I. Vers 1-10 

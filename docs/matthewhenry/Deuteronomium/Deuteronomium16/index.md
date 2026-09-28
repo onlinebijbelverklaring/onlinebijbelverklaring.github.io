@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 16
+
 1. Neemt waar de maand Abib, dat gij de HEERE, uw God, pascha houdt; want in de maand Abib heeft u de HEERE, uw God, uit Egypteland uitgevoerd, bij nacht. 
 2. Dan zult gij de HEERE, uw God, het pascha slachten, schapen en runderen, in de plaats, die de HEERE verkiezen zal, om Zijn Naam aldaar te doen wonen. 
 3. Gij zult niets gedesemds op hetzelve eten; zeven dagen zult gij ongezuurde broden op hetzelve eten, een brood der ellende, (want in der haast zijt gij uit Egypteland uitgetogen); opdat gij gedenkt aan de dag van uw uittrekken uit Egypteland, al de dagen uws levens. 

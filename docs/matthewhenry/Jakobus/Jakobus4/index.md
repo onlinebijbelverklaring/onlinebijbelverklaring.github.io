@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 4
+
 1. VANWAAR komen krijgen en vechterijen onder u? Komen zij niet hiervan, namelijk uit uw wellusten, die in uw leden strijd voeren?
 2. Gij begeert, en hebt niet; gij benijdt en ijvert naar dingen, en kunt ze niet verkrijgen; gij vecht en voert krijg, doch gij hebt niet, omdat gij niet bidt.
 3. Gij bidt, en gij ontvangt niet, omdat gij kwalijk bidt, opdat gij het in uw wellusten doorbrengen zoudt.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 14
+
 1. Daarna sprak de HEERE tot Mozes, zeggende: 
 2. Dit zal de wet des melaatsen zijn, ten dage zijner reiniging: dat hij tot de priester zal gebracht worden. 
 3. En de priester zal buiten het leger gaan; als de priester merken zal, dat, ziet, die plaag der melaatsheid van de melaatse genezen is; 

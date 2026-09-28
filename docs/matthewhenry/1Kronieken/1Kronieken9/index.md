@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 9
+
 1. En gans Israël werd in geslachtsregisters geteld, en ziet, zij zijn geschreven in het boek der koningen van Israël. En die van Juda waren weggevoerd naar Babel, om hunner overtredingen wil. 
 2. De eerste inwoners nu, die in hun bezitting, in hun steden kwamen, waren de Israëlieten, de priesters, de Levieten, en de Nethinim. 
 3. Maar te Jeruzalem woonden van de kinderen van Juda, en van de kinderen van Benjamin, en van de kinderen van Efraim en Manasse; 

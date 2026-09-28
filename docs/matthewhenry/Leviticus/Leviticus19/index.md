@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 19
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de ganse vergadering der kinderen Israëls, en zeg tot hen: Gij zult heilig zijn, want Ik, de HEERE, uw God, ben heilig! 
 3. Want ieder zal zijn moeder en zijn vader vrezen, en Mijn sabbatten houden; Ik ben de HEERE, uw God! 

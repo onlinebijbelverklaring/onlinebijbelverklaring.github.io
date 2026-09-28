@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 4
+
 VERSCHEIDENE GELIJKENISSEN. JEZUS STILT DE STORM OP ZEE
 
 ## III. Vers 1-34

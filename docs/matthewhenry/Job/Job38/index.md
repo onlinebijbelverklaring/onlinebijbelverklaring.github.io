@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 38
+
 1. DAARNA antwoordde de HEERE Job uit een onweder en zeide:
 2. Wie is hij die den raad verduistert met woorden zonder wetenschap?
 3. Gord nu als een man uw lendenen, zo zal Ik u vragen, en onderricht Mij.

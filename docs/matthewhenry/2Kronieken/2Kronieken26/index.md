@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 26
+
 1. Toen nam het ganse volk van Juda Uzzia (die nu zestien jaren oud was), en maakte hem koning in de plaats van zijn vader Amazia. 
 2. Dezelve bouwde Eloth, en bracht ze weder aan Juda, nadat de koning met zijn vaderen ontslapen was. 
 3. Zestien jaren was Uzzia oud, toen hij koning werd, en hij regeerde twee en vijftig jaren te Jeruzalem; en de naam zijner moeder was Jecholia, van Jeruzalem. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 51
+
 1. HOORT naar Mij, gij die de gerechtigheid najaagt, gij die den HEERE zoekt; aanschouwt den rotssteen waar gijlieden uit gehouwen zijt, en de holligheid des bornputs waar gij uit gegraven zijt.
 2. Aanschouwt Abraham, ulieder vader, en Sara, die ulieden gebaard heeft; want Ik riep hem toen hij nog alleen was, en Ik zegende hem en Ik vermenigvuldigde hem.
 3. Want de HEERE zal Sion troosten, Hij zal troosten al haar woeste plaatsen, en Hij zal haar woestijn maken als Eden en haar wildernis als den hof des HEEREN; vreugde en blijdschap zal daarin gevonden worden, dankzegging en een stem des gezangs.

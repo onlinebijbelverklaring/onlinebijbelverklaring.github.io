@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 11
+
 1. Toen toog Nahas, de Ammoniet, op, en belegerde, Jabes in Gilead. En al de mannen van Jabes zeiden tot Nahas: Maak een verbond met ons, zo zullen wij u dienen. 
 2. Doch Nahas, de Ammoniet, zeide tot hen: Mits dezen zal ik een verbond met ulieden maken, dat ik u allen het rechteroog uitsteke; en dat ik deze schande op gans Israël legge. 
 3. Toen zeiden tot hem de oudsten Jabes: Laat zeven dagen van ons af, dat wij boden zenden in al de landpalen van Israël; is er dan niemand, die ons verlost, zo zullen wij tot u uitgaan. 

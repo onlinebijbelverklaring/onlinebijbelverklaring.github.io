@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Mattheus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EVANGELIE NAAR DE BESCHRIJVING VAN MATTHÉÜS
 
 Wij hebben hier voor ons:  

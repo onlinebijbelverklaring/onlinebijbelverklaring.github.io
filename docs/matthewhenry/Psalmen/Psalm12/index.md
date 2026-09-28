@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 12
+
 1. EEN psalm van David, voor den opperzangmeester, op de Scheminîth.
 2. Behoud, o HEERE, want de goedertierene ontbreekt; want de getrouwen zijn weinig geworden onder de mensenkinderen.
 3. Zij spreken valsheid, eenieder met zijn naaste, met vleiende lippen; zij spreken met een dubbel hart.

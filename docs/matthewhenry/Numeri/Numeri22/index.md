@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 22
+
 1. Daarna reisden de kinderen van Israël, en legerden zich in de vlakke velden van Moab, aan deze zijde van de Jordaan van Jericho. 
 2. Toen Balak, de zoon van Zippor, zag al wat Israël aan de Amorieten gedaan had; 
 3. Zo vreesde Moab zeer voor het aangezicht dezes volks, want het was veel; en Moab was beangstigd voor het aangezicht van de kinderen Israëls. 

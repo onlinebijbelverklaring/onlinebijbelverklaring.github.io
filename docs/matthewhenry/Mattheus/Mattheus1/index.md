@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 1
+
 1. HET boek des geslachts van JEZUS CHRISTUS, den Zoon van David, den Zoon van Abraham.
 2. Abraham gewon Izak, en Izak gewon Jakob, en Jakob gewon Juda en zijn broeders;
 3. En Juda gewon Fares en Zara bij Thamar; en Fares gewon Esrom, en Esrom gewon Aram;

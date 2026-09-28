@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 8
+
 1. EN het geschiedde daarna, dat Hij reisde van de ene stad en vlek tot de andere, predikende en verkondigende het Evangelie van het Koninkrijk Gods; en de twaalve waren met Hem,
 2. En sommige vrouwen, die van boze geesten en krankheden genezen waren, namelijk Maria genaamd Magdaléna, van welke zeven duivelen uitgegaan waren,
 3. En Johanna, de huisvrouw van Chuzas, den rentmeester van Herodes, en Susanna, en vele anderen, die Hem dienden van haar goederen.

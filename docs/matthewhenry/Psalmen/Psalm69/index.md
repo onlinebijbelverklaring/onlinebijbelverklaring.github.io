@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 69
+
 1. EEN psalm van David, voor den opperzangmeester, op Schóschannim.
 2. Verlos mij, o God, want de wateren zijn gekomen tot aan de ziel.
 3. Ik ben gezonken in grondelozen modder, waar men niet kan staan; ik ben gekomen in de diepten der wateren, en de vloed overstroomt mij.

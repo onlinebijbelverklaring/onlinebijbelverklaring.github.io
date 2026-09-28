@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 19
+
 1. Daarna ging het tweede lot uit voor Simeon, voor de stam der kinderen van Simeon, naar hun huisgezinnen; en hun erfdeel was in het midden van het erfdeel der kinderen van Juda. 
 2. En zij hadden in hun erfdeel: Beer-seba, en Seba, en Molada, 
 3. En Hazar-sual, en Bala, en Azem, 

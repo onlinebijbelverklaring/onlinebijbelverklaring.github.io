@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 142
+
 1. EEN onderwijzing van David, een gebed, als hij in de spelonk was.
 2. Ik riep met mijn stem tot den HEERE, ik smeekte tot den HEERE met mijn stem.
 3. Ik stortte mijn klacht uit voor Zijn aangezicht, ik gaf te kennen voor Zijn aangezicht mijn benauwdheid.

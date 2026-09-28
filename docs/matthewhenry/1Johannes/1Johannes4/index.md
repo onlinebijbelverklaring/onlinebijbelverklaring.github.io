@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 4
+
 1. Geliefden, gelooft niet een iegelijken geest, maar beproeft de geesten, ofzij uit Godzijn;want vele valse profeten zijn uitgegaan in de wereld. 
 2. Hieraan kent gij de Geest van God: alle geest, die belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God; 
 3. En alle geest, die niet belijdt, dat Jezus Christus in het vlees gekomen is, die is uit God niet; maar dit is de geest van de antichrist, welken geest gij gehoord hebt, dat komen zal, en is nu alrede in de wereld. 

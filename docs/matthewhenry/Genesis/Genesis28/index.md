@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 28
+
 1. En Izak riep Jakob, en zegende hem; en gebood hem, en zeide tot hem: Neem geen vrouw van de dochteren van Kanaän. 
 2. Maak u op, ga naar Paddan-Aram, ten huize van Bethuel, de vader uwer moeder, en neem u van daar een vrouw, van de dochteren van Laban, uwer moeders broeder. 
 3. En God almachtig zegene u, en make u vruchtbaar, en vermenigvuldige u, dat gij tot een hoop volken wordt. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 58
+
 1. ROEP uit de keel, houd niet in, verhef uw stem als een bazuin, en verkondig Mijn volk hun overtreding, en het huis van Jakob hun zonden.
 2. Hoewel zij Mij dagelijks zoeken, en een lust hebben aan de kennis Mijner wegen, als een volk dat gerechtigheid doet en het recht zijns Gods niet verlaat, vragen zij Mij naar de rechten der gerechtigheid; zij hebben een lust tot God te naderen,
 3. Zeggende: Waarom vasten wij en Gij ziet het niet aan? Waarom kwellen wij onze ziel en Gij weet het niet? Zie, ten dage wanneer gijlieden vast, zo vindt gij uw lust, en gij eist strengelijk al uw arbeid.

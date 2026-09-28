@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 5
+
 OVER HET AMBT VAN DE OUDSTEN, DE PLICHT VAN DE JEUGD EN VAN ALLE CHRISTENEN
 
 ### F. Vers 1-5

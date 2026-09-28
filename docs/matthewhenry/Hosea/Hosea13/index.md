@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 13
+
 1. Als Efraïm sprak, zo beefde men, hij heeft zich verheven in Israël; maar hij is schuldig geworden aan de Baal en is gestorven. 
 2. En nu zijn zij voortgevaren te zondigen, en hebben zich van hun zilver een gegoten beeld gemaakt, afgoden naar hun verstand, die altemaal smedenwerk zijn; waarvan zij nochtans zeggen: De mensen, die offeren, zullen de kalveren kussen. 
 3. Daarom zullen zij zijn als een morgenwolk, en als een vroegkomende dauw, die heengaat; als kaf van de dorsvloer, en als rook uit de schoorsteen wordt weggestormd. 

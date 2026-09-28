@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 1
+
 1. ER was een man in het land Uz, zijn naam was Job; en dezelve man was oprecht en vroom en godvrezende en wijkende van het kwaad.
 2. En hem werden zeven zonen en drie dochters geboren.
 3. Daartoe was zijn vee zevenduizend schapen en drieduizend kemels en vijfhonderd juk ossen en vijfhonderd ezelinnen; ook was zijn dienstvolk zeer veel; zodat deze man groter was dan al die van het oosten.

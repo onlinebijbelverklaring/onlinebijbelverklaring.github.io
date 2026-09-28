@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 26
+
 1. Gij zult ulieden geen afgoden maken; noch gesneden beeld, noch opgericht beeld zult gij u stellen, noch gebeelden steen in uw land zetten, om u daarvoor te buigen; want Ik ben de HEERE, uw God! 
 2. Mijn sabbatten zult gij houden, en Mijn heiligdom zult gij vrezen; Ik ben de HEERE! 
 3. Indien gij in Mijn inzettingen wandelen, en Mijn geboden houden, en die doen zult; 

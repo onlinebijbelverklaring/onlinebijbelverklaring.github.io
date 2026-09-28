@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 7
+
 1. Voorts geschiedde het als de muur gebouwd was, dat ik de deuren oprichtte, en de portiers en de zangers en de Levieten werden besteld;
 2. En ik gaf bevel aan mijn broeder Hanáni en aan Hanánja, den overste van den burcht te Jeruzalem, want hij was als een man van getrouwheid en godvrezende boven velen.
 3. En ik zeide tot hen: Laat de poorten van Jeruzalem niet geopend worden, totdat de zon heet wordt, en terwijl zij daarbij staan, laat hen de deuren sluiten, betast gij ze dan; en dat men wachten zette, inwoners van Jeruzalem, een iegelijk op zijn wacht en een iegelijk tegenover zijn huis.

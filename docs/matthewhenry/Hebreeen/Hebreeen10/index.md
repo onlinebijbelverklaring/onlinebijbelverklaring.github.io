@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 10
+
 1. WANT de wet, hebbende een schaduw der toekomende goederen, niet het beeld zelf der zaken, kan met dezelfde offeranden die zij alle jaar geduriglijk opofferen, nimmermeer heiligen degenen die daar toegaan.
 2. Anderszins zouden zij opgehouden hebben geofferd te worden, omdat degenen die den dienst pleegden, geen consciëntie meer zouden hebben der zonden, eenmaal gereinigd geweest zijnde;
 3. Maar nu geschiedt in dezelve alle jaar weder gedachtenis der zonden.

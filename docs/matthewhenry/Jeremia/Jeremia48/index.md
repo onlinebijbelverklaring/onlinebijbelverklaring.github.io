@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 48
+
 1. TEGEN Moab zegt de HEERE der heirscharen, de God Israëls, alzo: Wee over Nebo, want zij is verstoord; Kirjatháïm is beschaamd, zij is ingenomen; de stad des hogen vertreks is beschaamd en verschrikt.
 2. Moabs roem van Hesbon is er niet meer; zij hebben kwaad tegen haar gedacht, zeggende: Komt en laat ons haar uitroeien, dat zij geen volk meer zij; ook gij, o Madmen, zult nedergehouwen worden, het zwaard zal achter u heen gaan.
 3. Er is een stem des gekrijts van Horonáïm; verstoring en een grote breuk!

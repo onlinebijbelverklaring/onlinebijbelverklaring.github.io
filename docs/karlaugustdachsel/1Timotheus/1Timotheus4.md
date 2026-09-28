@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 4
+
 WAARSCHUWING TEGEN DE VERLEIDING VAN DE LAATSTE TIJD. AANMANING TOT BEOEFENING VAN DE GODZALIGHEID
 
 ***1. Maar a) de Geest van de profetie (2 Thessalonicenzen. 2: 2 Rom. 12: 7), waarvan ik mij bewust ben, dat ik die bezit (Hand. 20: 25), zegt duidelijk, zodat niet twijfelachtig is, wat Hij nu inwendig verzekert, dat in de laatste (liever "latere, de volgende tijden, die van deze tegenwoordige niet ver verwijderd zijn, sommigen zullen b) afvallen van het geloof, zich begevend tot verleidende geesten en leringen van de duivel. Deze toch zoeken het grote geheim van de godzaligheid (Hoofdstuk 3: 16) door een schijnheiligheid (vs. 3), die in strijd is met de orde van de goddelijke schepping, uit de gemeente van de levende God (Hoofdstuk 3: 15) te verdringen (vgl. 1 Kor. 10: 20).***

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 14
+
 1. Als nu Joab, de zoon van Zeruja, merkte, dat des konings hart over Absalom was; 
 2. Zo zond Joab heen naar Thekoa, en nam van daar een wijze vrouw; en hij zeide tot haar: Stel u toch, alsof gij rouw droegt, en trek nu rouwklederen aan, en zalf u niet met olie, en wees als een vrouw, die nu vele dagen rouw gedragen heeft over een dode; 
 3. En ga in tot de koning, en spreek tot hem naar dit woord. En Joab leide de woorden in haar mond. 

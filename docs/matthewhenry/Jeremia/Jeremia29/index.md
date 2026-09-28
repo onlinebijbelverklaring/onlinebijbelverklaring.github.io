@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 29
+
 1. VOORTS zijn dit de woorden des briefs dien de profeet Jeremía zond van Jeruzalem, tot de overige oudsten die gevankelijk waren weggevoerd, mitsgaders tot de priesters en tot de profeten en tot het ganse volk dat Nebukadnézar van Jeruzalem gevankelijk had weggevoerd naar Babel
 2. (Nadat de koning Jechónia en de koningin en de kamerlingen, de vorsten van Juda en Jeruzalem, mitsgaders de timmerlieden en smeden, van Jeruzalem waren uitgegaan);
 3. Door de hand van Elása, den zoon van Safan, en Gemárja, den zoon van Hilkía, die Zedekía, de koning van Juda, naar Babel zond tot Nebukadnézar, den koning van Babel, zeggende:

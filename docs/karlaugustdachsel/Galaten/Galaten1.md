@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 1
+
 OVER DE ONBESTENDIGHEID VAN DE GALATEN EN PAULUS’ APOSTELSCHAP
 
 A. Dadelijk bij het begin van dit schrijven, dat waarschijnlijk aan het einde van het jaar 54 na Christus uit Efeze aan de gemeenten in Galatië gericht is, spreekt zich de diepe gemoedsbeweging van de apostel uit en wel zowel in de eerste als in de tweede helft van de inleiding.

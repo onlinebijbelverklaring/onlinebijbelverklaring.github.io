@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 2
+
 1. EN als de dag van het pinksterfeest vervuld werd, waren zij allen eendrachtelijk bijeen.
 2. En er geschiedde haastelijk uit den hemel een geluid, gelijk als van een geweldigen gedreven wind, en vervulde het gehele huis waar zij zaten.
 3. En van hen werden gezien verdeelde tongen als van vuur, en het zat op een iegelijk van hen.

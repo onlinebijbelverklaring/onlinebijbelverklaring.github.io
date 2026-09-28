@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 7
+
 CHRISTUS’ PREDIKING IN DE TEMPEL
 
 E. De vierde groep van getuigenissen van de Heere over Zichzelf in woorden en werken voegt bij de getuigenis, die Hij in het tweede deel der vorige groep over Zich gaf (Hoofdstuk 6: 48): "Ik ben het brood des levens", een tweede (Hoofdstuk 8: 12): "Ik ben het licht van de wereld", zodat wij in deze samenvoeging van groepen dezelfde volgorde door de Evangelist vinden in het oog gebonden, volgens welke Hij van het begin (Hoofdstuk 1: 4) van het Woord, dat alle dingen gemaakt heeft, zei: "In Hem was het leven en het leven was het licht van de mensen. " "In de gebeurtenissen, die verder worden verteld, wordt op in het oog vallende wijze bevestigd wat Johannes daar verder (Hoofdstuk 1: 5) heeft uitgesproken: "Het licht schijnt in de duisternis en de duisternis heeft het niet begrepen. " De tegenstelling tussen Jezus en de Joden is reeds tot zo’n scherpte gekomen, dat eigenlijk het thema van alle verdere reden is: "Ik en gij. " Dit thema verkrijgt zijn toppunt in de verzekering van de Heere dat Hij de goede Herder is tegenover de huurling en vooral tegen de dieven en moordenaars, die komen om te stelen en te doden. Wij verdelen de groepen naar de beide feesten, die zij in geschiedkundig opzicht omvatten, in twee afdelingen.

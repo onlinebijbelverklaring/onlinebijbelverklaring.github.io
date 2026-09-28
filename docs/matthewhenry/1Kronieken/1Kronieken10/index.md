@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 10
+
 1. En de Filistijnen streden tegen Israël, en de mannen van Israël vloden voor het aangezicht der Filistijnen, en zij vielen verslagen op het gebergte Gilboa. 
 2. En de Filistijnen hielden dicht achter Saul aan en achter zijn zonen; en de Filistijnen sloegen Jonathan, en Abinadab, en Malchi-sua, de zonen van Saul. 
 3. En de strijd werd zwaar tegen Saul, en de schutters met de bogen troffen hem aan; en hij vreesde zeer voor de schutters. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 14
+
 1. Toen sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, dat zij wederkeren, en zich legeren voor Pi-hachiroth, tussen Migdol en tussen de zee, voor Baal-Zefon; daar tegenover zult gij u legeren aan de zee. 
 3. Farao dan zal zeggen van de kinderen Israëls: Zij zijn verward in het land; die woestijn heeft hen besloten. 

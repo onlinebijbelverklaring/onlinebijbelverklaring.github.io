@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 8
+
 1. ROEPT de Wijsheid niet, en verheft niet de Verstandigheid Haar stem?
 2. Op de spits der hoge plaatsen, aan den weg, ter plaatse waar paden zijn, staat Zij;
 3. Aan de zijde der poorten, vóór aan de stad, aan den ingang der deuren roept Zij overluid:

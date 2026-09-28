@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 30
+
 1. Als nu Rachel zag, dat zij Jakob niet baarde, zo benijdde Rachel haar zuster; en zij zeide tot Jakob: Geef mij kinderen! of indien niet, zo ben ik dood. 
 2. Toen ontstak Jacobs toorn tegen Rachel, en hij zeide: Ben ik dan in plaats van God, Die de vrucht des buiks van u geweerd heeft? 
 3. En zij zeide: Zie, daar is mijn dienstmaagd Bilha, ga tot haar in; dat zij op mijn knieen bare, en ik ook uit haar gebouwd worde. 

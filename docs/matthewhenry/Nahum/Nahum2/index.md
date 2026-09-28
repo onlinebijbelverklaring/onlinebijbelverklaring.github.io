@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nahum 2
+
 1. De verstrooier trekt tegen uw aangezicht op, bewaar de vesting; bezichtig de weg; sterk de lenden, versterk de kracht zeer. 
 2. Want de HEERE heeft de hovaardij Jakobs afgewend, gelijk de hovaardij Israëls; want de ledigmakers hebben ze ledig gemaakt, en zij hebben hun wijnranken verdorven. 
 3. De schilden zijner helden zijn rood gemaakt, de kloeke mannen zijn scharlakenvervig; de wagens zijn in het vuur der fakkelen, ten dage als hij zich bereidt; en de spiesen worden geschud. 

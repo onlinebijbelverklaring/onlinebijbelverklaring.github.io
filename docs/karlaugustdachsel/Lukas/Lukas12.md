@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 12
+
 OVER DE EIGENSCHAPPEN EN HINDERPALEN VAN HET GELOOF
 
 ## III. Vers 1-59

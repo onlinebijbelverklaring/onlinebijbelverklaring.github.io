@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 17
+
 AÄRONS PRIESTERSCHAP WORDT DOOR DE BLOEIENDE STAF BEVESTIGD.
 
 ***1. Toen sprak de HEERE, daar Hij het bij dit zichtbaar bewijs van de kracht en de werking van het door Hem ingestelde Aäronitische priesterschap niet laten wilde, maar ook de geldigheid van het laatste alleen nog op een bijzondere wijze wilde bevestigen, opdat elk gemor daartegen voor altijd mocht tot zwijgen gebracht worden, zo sprak de Heere tot Mozes, terwijl deze zich nog in het voorhof van de tabernakel bevond (hoofdstuk 16:50), zeggende:***

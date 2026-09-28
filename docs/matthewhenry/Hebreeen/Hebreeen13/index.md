@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 13
+
 1. DAT de broederlijke liefde blijve.
 2. Vergeet de herbergzaamheid niet; want hierdoor hebben sommigen onwetend engelen geherbergd.
 3. Gedenkt de gevangenen, alsof gij medegevangen waart; en degenen die kwalijk behandeld worden, alsof gij ook zelven in het lichaam kwalijk behandeld waart.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 92
+
 1. EEN psalm, een lied, op den sabbatdag.
 2. Het is goed dat men den HEERE love, en Uw Naam psalmzinge, o Allerhoogste;
 3. Dat men in den morgenstond Uw goedertierenheid verkondige, en Uw getrouwheid in de nachten,

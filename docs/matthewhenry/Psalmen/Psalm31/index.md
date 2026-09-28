@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 31
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. Op U, o HEERE, betrouw ik, laat mij niet beschaamd worden in eeuwigheid; help mij uit door Uw gerechtigheid.
 3. Neig Uw oor tot mij, red mij haastelijk, wees mij tot een sterken Rotssteen, tot een zeer vast Huis, om mij te behouden.

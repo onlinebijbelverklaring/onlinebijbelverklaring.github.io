@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 5
+
 1. WANT alle hogepriester uit de mensen genomen, wordt gesteld voor de mensen in de zaken die bij God te doen zijn, opdat hij offere gaven en slachtoffers voor de zonden;
 2. Die behoorlijk medelijden kan hebben met de onwetenden en dwalenden, overmits hij ook zelf met zwakheid omvangen is;
 3. En om derzelver zwakheid wil moet hij gelijk voor het volk, alzo ook voor zichzelven offeren voor de zonden.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 1
+
 AANMANING TOT VOLHARDING IN DE ZUIVERE LEER BIJ VERVOLGING
 
 A. Zien wij terug op de uitspraken, waarin Paulus, zowel in het begin van zijn gevangenschap tegenover de Hoge Raad als in het verder verloop daarvan tegenover de landvoogd Felix en de koning Agrippa en eindelijk ook voor de Romeinse Joden over de eigenlijke oorzaak van de tegen hem gerichte aanklacht heeft verklaard (Hand. 23: 6; 24: 14, vv; 26: 6 v., 22 v. ; 28: 20 en ontmoeten wij nu aan het begin van de tweede brief van Timotheus de zo eigenaardige benaming van zijn apostelschap "naar de belofte van het leven, dat in Christus Jezus is", dan is niet te ontkennen, dat deze brief zeker de eerste is onder degene, die hij als gevangene te Rome heeft geschreven (in de zomer van het jaar 61). De apostel schrijft het vaste standpunt, waarop hij voor God, voor zichzelf en voor de rechterstoel alle vijandige aanklachten krachteloos had gemaakt, nu ook voor Timotheus neer. Het is zeker voor elke aangeklaagde een bijzondere vertroosting om zijn vrienden te overtuigen van zijn eigen recht; maar hier begeerde hij meer, namelijk hem, aan wie de brief gericht is, tot hetzelfde vaste standpunt, waarop hij zich bevond, te verheffen. Hoe het nu tegenwoordig met Timotheus te Efeze gesteld was, daarop wijst het predikaat, dat Paulus in de plaats van het vroegere (1 Tim. 1: 2) "mijn oprechte zoon in het geloof" hem geeft "mijn geliefde zoon". Vroeger wilde hij hem tegenover de zich uitbreidende geest van de dwaalleraars als een oprechte zoon in het geloof van de apostel voorstellen, nu moet hij hem liefde verzekeren tot opwekking van zijn moed en zijn beslistheid.

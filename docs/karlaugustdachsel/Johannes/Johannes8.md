@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 8
+
 DE ECHTBREEKSTER. CHRISTUS’ PERSOON EN AMBT. EIGENSCHAPPEN VAN ZIJN DISCIPELEN
 
 ***1. Maar Jezus, die nog voor de in vs. 40-44 genoemde tijd de tempel had verlaten, ging naar de Olijfberg en wel naar de hof Gethsémané om bij de avondgodsdienst van die laatste dag van het feest Zich weer op een heilige plaats te bevinden en nog eens een plechtige uitnodiging tot het volk te richten (vs. 12).***

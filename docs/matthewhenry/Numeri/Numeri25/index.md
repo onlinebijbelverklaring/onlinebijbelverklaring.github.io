@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 25
+
 1. En Israël verbleef te Sittim, en het volk begon te hoereren met de dochteren der Moabieten. 
 2. En zij nodigden het volk tot de slachtofferen harer goden; en het volk at, en boog zich voor haar goden. 
 3. Als nu Israël zich koppelde aan Baal-Peor, ontstak de toorn des HEEREN tegen Israël. 

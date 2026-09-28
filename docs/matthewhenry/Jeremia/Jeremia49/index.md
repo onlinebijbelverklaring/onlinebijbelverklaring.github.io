@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 49
+
 1. TEGEN de kinderen Ammons zegt de HEERE alzo: Heeft dan Israël geen kinderen? Heeft hij geen erfgenaam? Waarom is dan Malcam erfgenaam van Gad en waarom woont zijn volk in deszelfs steden?
 2. Daarom, zie, de dagen komen, spreekt de HEERE, dat Ik over Rabba der kinderen Ammons een krijgsgeschrei zal doen horen, en zij zal tot een woesten hoop worden en haar onderhorige plaatsen zullen met vuur aangestoken worden; en Israël zal erven degenen die hem geërfd hadden, zegt de HEERE.
 3. Huil, o Hesbon, want Ai is verstoord; krijt, gij dochteren van Rabba, gordt zakken aan, bedrijft misbaar en loopt om bij de tuinen; want Malcam zal wandelen in gevangenis, zijn priesters en zijn vorsten tezamen.

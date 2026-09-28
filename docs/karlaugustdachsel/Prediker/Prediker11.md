@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 11
+
 MEN MOET WELDADIGHEID UITOEFENEN EN ANGSTIGE ZORGEN VERMIJDEN.
 
 ## III. Vers 1-Hoofdstuk 12:14

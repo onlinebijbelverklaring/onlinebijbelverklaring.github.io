@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 17
+
 1. En zijn zoon Jósafath werd koning in zijn plaats, en hij sterkte zich tegen Israël. 
 2. En hij leide krijgsvolk in alle vaste steden van Juda, en leide bezettingen in het land van Juda, en in de steden van Efraim, die zijn vader Asa ingenomen had. 
 3. En de HEERE was met Jósafath; want hij wandelde in de vorige wegen zijns vaders Davids, en zocht de Baals niet. 

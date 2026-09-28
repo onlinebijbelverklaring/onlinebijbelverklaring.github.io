@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Galaten
+
 ## De Inhoud van Paulus' Brief aan de Galaten.
 
 Eerst moet voor alles gesproken worden van de voorname inhoud, waarover Paulus in deze Brief handelt; welke daarin bestaat: Paulus heeft voor, onwrikbaar vast te stellen, en te bevestigen die Leer des geloofs, genade en vergeving der zonden, of van de Christelijke gerechtigheid, opdat wij een volkomen kennis en onderscheiding zouden hebben tussen de gerechtigheid Christi en alle andere gerechtigheden. Want de Gerechtigheid is van verschillende soort. De ene is Politiek of burgerlijk, welke de keizer, de vorsten der wereld, wijsgeren en rechtsgeleerden behandelen. De andere is Ceremonieel, of plechtig, welke de menselijke Overleveringen leren. Bij voorbeeld: bevelen van de Paus en dergelijke. Daarover handelen zonder gevaar de huisvaders en leermeester, omdat zij aan die Gerechtigheid geen kracht toeschrijven, om voor de zonden te voldoen, om God te verzoenen, en genade te verdienen. Maar zij stellen die Ceremoniën voor, als alleen maar noodzakelijk tot beoefening der zeden en zekere onderhouding. Behalve deze is er nog een andere Gerechtigheid der wet of 'der Tien Geboden, welke Mozes leert; daarvan doen ook wij onderrichting na de Leer des geloofs.

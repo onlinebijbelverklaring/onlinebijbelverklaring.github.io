@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 8
+
 1. De Heere HEERE deed mij aldus zien; en ziet, een korf met zomervruchten. 
 2. En Hij zeide: Wat ziet gij, Amos? En ik zeide: Een korf met zomervruchten. Toen zeide de HEERE tot mij: Het einde is gekomen over Mijn volk Israël; Ik zal het voortaan niet meer voorbijgaan. 
 3. Maar de gezangen des tempels zullen te dien dage huilen, spreekt de Heere HEERE; vele dode lichamen zullen er zijn, in alle plaatsen zal men ze stilzwijgend wegwerpen. 

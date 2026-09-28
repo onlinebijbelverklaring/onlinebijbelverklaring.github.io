@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Klaagliederen 4
+
 1. ALEPH. Hoe is het goud zo verdonkerd, het goede fijne goud zo veranderd! Hoe zijn de stenen des heiligdoms vooraan op alle straten verworpen!
 2. Beth. De kostelijke kinderen Sions, tegen fijn goud geschat, hoe zijn zij nu gelijk gerekend den aarden flessen, het werk van de handen eens pottenbakkers!
 3. Gimel. Zelfs laten de zeekalveren de borsten neder, zij zogen haar welpen; maar de dochter mijns volks is als een wrede geworden, gelijk de struisen in de woestijn.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 6
+
 1. HEBT acht dat gij uw aalmoes niet doet voor de mensen, om van hen gezien te worden; anders zo hebt gij geen loon bij uw Vader, Die in de hemelen is.
 2. Wanneer gij dan aalmoes doet, zo laat vóór u niet trompetten, gelijk de geveinsden in de synagogen en op de straten doen, opdat zij van de mensen geëerd mogen worden. Voorwaar zeg Ik u: Zij hebben hun loon weg.
 3. Maar als gij aalmoes doet, zo laat uw linkerhand niet weten wat uw rechter doet,

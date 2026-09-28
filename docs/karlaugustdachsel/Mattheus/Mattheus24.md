@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 24
+
 OVER DE VERWOESTING VAN DE STAD JERUZALEM EN HET EINDE VAN DE WERELD
 
 ## X. Vers 1 - Hoofdstuk 25:46

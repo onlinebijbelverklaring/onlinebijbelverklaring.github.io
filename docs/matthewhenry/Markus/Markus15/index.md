@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 15
+
 1. EN terstond des morgens vroeg hielden de overpriesters tezamen raad met de ouderlingen en schriftgeleerden en den gehelen Raad; en Jezus gebonden hebbende, brachten zij Hem heen en gaven Hem aan Pilatus over.
 2. En Pilatus vraagde Hem: Zijt Gij de Koning der Joden? En Hij antwoordende zeide tot hem: Gij zegt het.
 3. En de overpriesters beschuldigden Hem van vele zaken; maar Hij antwoordde niets.

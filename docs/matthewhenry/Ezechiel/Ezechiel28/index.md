@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 28
+
 1. VOORTS geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, zeg tot den vorst van Tyrus: Zo zegt de Heere HEERE: Omdat uw hart zich verheft en zegt: Ik ben God, ik zit in Gods stoel in het hart der zeeën; daar gij een mens en geen God zijt, stelt gij nochtans uw hart als Gods hart.
 3. Zie, gij zijt wijzer dan Daniël; zij hebben niets toegeslotens voor u verborgen.

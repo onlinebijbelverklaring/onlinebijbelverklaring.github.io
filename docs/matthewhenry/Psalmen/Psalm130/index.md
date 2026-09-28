@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 130
+
 1. EEN lied Hammaäloth. Uit de diepten roep ik tot U, o HEERE.
 2. Heere, hoor naar mijn stem; laat Uw oren opmerkende zijn op de stem mijner smekingen.
 3. Zo Gij, HEERE, de ongerechtigheden gadeslaat, Heere, wie zal bestaan?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 32
+
 AFGODERIJ MET HET GEGOTEN KALF
 
 ## I. Vers 1-14

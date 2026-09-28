@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 20
+
 1. ALS Pashur, de zoon van Immer, de priester (deze nu was bestelde voorganger in het huis des HEEREN), Jeremía hoorde, diezelve woorden profeterende,
 2. Zo sloeg Pashur den profeet Jeremía, en hij stelde hem in de gevangenis, dewelke is in de bovenste poort van Benjamin, die aan het huis des HEEREN is.
 3. Maar het geschiedde des anderen daags, dat Pashur Jeremía uit de gevangenis voortbracht; toen zeide Jeremía tot hem: De HEERE noemt uw naam niet Pashur, maar Magôr-missabib.

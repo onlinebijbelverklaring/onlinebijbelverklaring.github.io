@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 7
+
 1. Het gebeurde nu in het vierde jaar van de koning Darius, dat het woord des HEEREN geschiedde tot Zacharia, op de vierden der negende maand, namelijk in Chisleu. 
 2. Toen men naar het huis van God gezonden had Sarezer, en Regem-melech, en zijn mannen, om het aangezicht des HEEREN te smeken; 
 3. Zeggende tot de priesters, die in het huis des HEEREN der heirscharen waren, en tot de profeten, zeggende: Moet ik wenen in de vijfde maand, mij afzonderende, gelijk als ik gedaan heb nu zo vele jaren? 

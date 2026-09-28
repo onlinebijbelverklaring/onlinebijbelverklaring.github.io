@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 118
+
 1. LOOFT den HEERE, want Hij is goed; want Zijn goedertierenheid is in der eeuwigheid.
 2. Dat Israël nu zegge, dat Zijn goedertierenheid in der eeuwigheid is.
 3. Het huis Aärons zegge nu, dat Zijn goedertierenheid in der eeuwigheid is.

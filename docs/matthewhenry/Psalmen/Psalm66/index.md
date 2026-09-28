@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 66
+
 1. EEN lied, een psalm, voor den opperzangmeester. Juicht Gode, gij ganse aarde.
 2. Psalmzingt de eer Zijns Naams; geeft eer Zijn lof.
 3. Zegt tot God: Hoe vreselijk zijt Gij in Uw werken! Om de grootheid Uwer sterkte zullen zich Uw vijanden geveinsdelijk aan U onderwerpen.

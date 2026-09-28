@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 25
+
 1. Toen sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, dat zij voor Mij een hefoffer nemen. Van alle man, wiens hart zich vrijwillig bewegen zal, zult gij Mijn hefoffer nemen. 
 3. Dit nu is het hefoffer, hetwelk gij van hen nemen zult: goud, en zilver, en koper; 

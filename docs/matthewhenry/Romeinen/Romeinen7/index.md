@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 7
+
 1. WEET gij niet, broeders (want ik spreek tot degenen die de wet verstaan), dat de wet heerst over den mens, zo langen tijd als hij leeft?
 2. Want een vrouw die onder den man staat, is aan den levenden man verbonden door de wet; maar indien de man gestorven is, zo is zij vrijgemaakt van de wet des mans.
 3. Daarom dan, indien zij eens anderen mans wordt terwijl de man leeft, zo zal zij een overspeelster genaamd worden; maar indien de man gestorven is, zo is zij vrij van de wet, alzo dat zij geen overspeelster is als zij eens anderen mans wordt.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 9
+
 ***1. En Hij, met deze aankondiging van Zijn zichtbare toekomst in heerlijkheid, die van Zijn onzichtbare komst over Jeruzalem en het Joodse volk verbindend, zei tot hen: Voorwaar Ik zeg u, dat er sommigen zijn van degenen, die hier staan, die de dood niet zullen meemaken, totdat zij gezien zullen hebben dat het koninkrijk van God met kracht gekomen is, door het onschadelijk maken van hen die het nu tegenwerken en het zoeken te vernietigen; zij zullen een van Israel afgezonderde Nieuw Testamentische gemeente aanschouwen.***
 
 GESCHIEDENIS VAN JEZUS VERHEERLIJKING EN VAN DE MAANZIEKE ZOON. ONDERWIJZING OVER OOTMOED EN ERGERNIS

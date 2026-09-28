@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 3
+
 1. En de HEERE zeide tot mij: Ga wederom heen, bemin een vrouw, die, bemind zijnde van haar vriend, nochtans overspel doet; gelijk de HEERE de kinderen Israëls bemint, maar zij zien om naar andere goden, en beminnen de flessen der druiven. 
 2. En ik kocht ze mij voor vijftien zilverlingen, en een homer gerst, en een halven homer gerst. 
 3. En ik zeide tot haar: Gij zult vele dagen na mij blijven zitten (gij zult niet hoereren, noch een anderen man geworden), en ik ook na u. 

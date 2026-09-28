@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 12
+
 1. JEZUS dan kwam zes dagen vóór het pascha te Bethanië, waar Lázarus was, die gestorven was geweest, welken Hij opgewekt had uit de doden.
 2. Zij bereidden Hem dan aldaar een avondmaal, en Martha diende; en Lázarus was een van degenen die met Hem aanzaten.
 3. Maria dan, genomen hebbende een pond zalf van onvervalsten zeer kostelijken nardus, heeft de voeten van Jezus gezalfd, en met haar haren Zijn voeten afgedroogd; en het huis werd vervuld van den reuk der zalf.

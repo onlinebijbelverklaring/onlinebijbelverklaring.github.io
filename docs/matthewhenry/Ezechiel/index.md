@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Ezechiel
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET EZECHIËL
 
 Toen wij de schriften van de profeten begonnen te behandelen, die van de dingen spreker, welke hierna zullen zijn, scheen het ons, als hoorden wij dezelfde roepstem als Johannes, Openbaring 4:1: Kom hier op. Maar nu wij aan de profetie van dit boek gekomen zijn, schijnt die stem te spreken: Kom hoger op, daar we voortschrijden in tijd. Ezechiël profeteerde gedurende de ballingschap, zoals Jeremia dat ervoor deed. Wij stijgen dus omhoog, naar hoger ontdekkingen, die Gods glorie nog heerlijker doen uitkomen. Deze wateren des heiligdoms worden nog dieper; en sommige plaatsen zijn niet alleen ondoorwaadbaar, maar nauwelijks te peilen; toch, hoe diep zij ook zijn, daaruit vloeien beekjes, die de stad Gods verblijden, het heiligdom der woningen des Allerhoogsten. Wat de thans voor ons liggende profetie aangaat, mogen wij vragen:

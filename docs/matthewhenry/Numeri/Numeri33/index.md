@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 33
+
 1. Dit zijn de reizen der kinderen Israëls, die uit Egypteland uitgetogen zijn, naar hun heiren, door de hand van Mozes en Aäron. 
 2. En Mozes schreef hun uittochten, naar hun reizen, naar de mond des HEEREN; en dit zijn hun reizen, naar hun uittochten. 
 3. Zij reisden dan van Rameses; in de eerste maand, op de vijftienden dag der eerste maand, des anderen daags van het pascha, togen de kinderen Israëls uit door een hoge hand, voor de ogen van alle Egyptenaren; 

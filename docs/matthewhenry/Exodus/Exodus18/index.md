@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 18
+
 1. Toen Jethro, priester van Midian, schoonvader van Mozes, hoorde al wat God aan Mozes, en aan Israël, Zijn volk, gedaan had: dat de HEERE Israël uit Egypte uitgevoerd had; 
 2. Zo nam Jethro, Mozes' schoonvader, Zippora, Mozes' huisvrouw (nadat hij haar wedergezonden had), 
 3. Met haar twee zonen, welker enes naam was Gersom (want hij zeide: Ik ben een vreemdeling geweest in een vreemd land); 

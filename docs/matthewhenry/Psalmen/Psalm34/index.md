@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 34
+
 1. EEN psalm van David, als hij zijn gelaat veranderd had voor het aangezicht van Abimélech, die hem wegjoeg, dat hij doorging.
 2. Aleph. Ik zal den HEERE loven te allen tijde; Zijn lof zal geduriglijk in mijn mond zijn.
 3. Beth. Mijn ziel zal zich roemen in den HEERE; de zachtmoedigen zullen het horen en verblijd zijn.

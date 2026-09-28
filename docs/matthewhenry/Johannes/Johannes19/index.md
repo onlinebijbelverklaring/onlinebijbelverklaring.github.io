@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 19
+
 1. TOEN nam Pilatus dan Jezus en geselde Hem.
 2. En de krijgsknechten een kroon van doornen gevlochten hebbende, zetten die op Zijn hoofd, en wierpen Hem een purperen kleed om,
 3. En zeiden: Wees gegroet, Gij Koning der Joden. En zij gaven Hem kinnebakslagen.

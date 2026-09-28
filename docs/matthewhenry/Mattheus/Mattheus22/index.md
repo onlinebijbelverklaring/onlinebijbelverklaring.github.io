@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 22
+
 1. EN Jezus antwoordende sprak tot hen wederom door gelijkenissen, zeggende:
 2. Het Koninkrijk der hemelen is gelijk een zeker koning, die zijn zoon een bruiloft bereid had;
 3. En zond zijn dienstknechten uit om de genoden ter bruiloft te roepen, en zij wilden niet komen.

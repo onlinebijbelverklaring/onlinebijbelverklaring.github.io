@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Lukas
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET VANGELIE NAAR DE BESCHRIJVING VAN LUKAS
 
 Wij komen nu tot de arbeid van een ander evangelist; zijn naam is Lukas, dat door sommigen voor een samentrekking van Lucilius wordt gehouden. Volgens Hiëronymus werd hij geboren te Antiochië. Sommigen zijn van mening, dat hij de enige gewijde schrijver was van niet-Israëlitische oorsprong. Hij was een Jodengenoot en, naar sommiger gissing, tot het Christendom bekeerd door de prediking van de apostel Paulus te Antiochië, en na zijn komst in Macedonië, Handelingen 16:10, zijn onafscheidelijke metgezel. Hij had zich bezig gehouden met de studie en de praktijk der geneeskunde, vandaar dat Paulus hem "den medicijnmeester, de geliefde" noemt, Colossenzen 4:14. 

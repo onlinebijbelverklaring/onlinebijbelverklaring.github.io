@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 14
+
 HOE MEN ZICH OMTRENT ZWAK GELOVIGEN MOET GEDRAGEN
 
 ## III. Vers 1-Hoofdst 15:13

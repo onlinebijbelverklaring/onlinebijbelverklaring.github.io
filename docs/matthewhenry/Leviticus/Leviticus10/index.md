@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 10
+
 1. En de zonen van Aäron, Nadab en Abihu, namen een ieder zijn wierookvat, en deden vuur daarin, en leiden reukwerk daarop, en brachten vreemd vuur voor het aangezicht des HEEREN, hetwelk hij hen niet geboden had. 
 2. Toen ging een vuur uit van het aangezicht des HEEREN, en verteerde hen; en zij stierven voor het aangezicht des HEEREN. 
 3. En Mozes zeide tot Aäron: Dat is het, wat de HEERE gesproken heeft, zeggende: In degenen, die tot Mij naderen, zal Ik geheiligd worden, en voor het aangezicht van al het volk zal Ik verheerlijkt worden. Doch Aäron zweeg stil. 

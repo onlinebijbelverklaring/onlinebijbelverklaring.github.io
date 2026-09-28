@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 2
+
 1. Wederom hief ik mijn ogen op, en ik zag; en ziet, er was een man, en in zijn hand was een meetsnoer. 
 2. En ik zeide: Waar gaat gij heen? En hij zeide tot mij: Om Jeruzalem te meten; om te zien, hoe groot haar breedte, en hoe groot haar lengte wezen zal. 
 3. En ziet, de Engel, Die met mij sprak, ging uit; en een andere Engel ging uit, hem tegemoet. 

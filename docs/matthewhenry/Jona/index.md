@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jona
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET JONA
 
 Dit boek van Jona, midden tussen de profetische boeken der Schrift geplaatst, is toch meer een geschiedenis dan een profetie. Nog veertig dagen, dan zal Ninevé worden omgekeerd. Slechts deze een regel bevat een voorzegging, de rest van het boek geeft aan wat deze voorzegging voorafging en wat de gevolgen ervan waren. 

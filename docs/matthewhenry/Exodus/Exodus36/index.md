@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 36
+
 1. Toen wrocht Bezaleel en Aholiab, en alle man, die wijs van hart was, in denwelken de HEERE wijsheid en verstand gegeven had, om te weten, hoe zij maken zouden alle werk ten dienste des heiligdoms naar alles, dat de HEERE geboden had. 
 2. Want Mozes had geroepen Bezaleel en Aholiab, en alle man, die wijs van hart was, in wiens hart God wijsheid gegeven had, al wiens hart hem bewogen had, dat hij toetrad tot het werk, om dat te maken. 
 3. Zij dan namen van voor het aangezicht van Mozes het ganse hefoffer, hetwelk de kinderen Israëls gebracht hadden, tot het werk van de dienst des heiligdoms, om dat te maken; doch zij brachten tot hem nog allen morgen vrijwillig offer. 

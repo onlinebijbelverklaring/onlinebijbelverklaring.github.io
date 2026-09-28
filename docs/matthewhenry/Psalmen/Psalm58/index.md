@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 58
+
 1. EEN gouden kleinood van David, voor den opperzangmeester, Altáscheth.
 2. Spreekt gijlieden waarlijk gerechtigheid, gij vergadering? Oordeelt gij billijkheden, gij mensenkinderen?
 3. Ja, gij werkt ongerechtigheden in het hart; gij weegt het geweld uwer handen op de aarde.

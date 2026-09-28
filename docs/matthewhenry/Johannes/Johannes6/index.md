@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 6
+
 1. NA dezen vertrok Jezus over de Zee van Galiléa, welke is de Zee van Tibérias.
 2. En Hem volgde een grote schare, omdat zij Zijn tekenen zagen, die Hij deed aan de kranken.
 3. En Jezus ging op den berg, en zat aldaar neder met Zijn discipelen.

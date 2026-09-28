@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 30
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, zeggende:
 2. Zo spreekt de HEERE, de God Israëls, zeggende: Schrijf u al de woorden die Ik tot u gesproken heb, in een boek.
 3. Want zie, de dagen komen, spreekt de HEERE, dat Ik de gevangenis van Mijn volk, Israël en Juda, wenden zal, zegt de HEERE; en Ik zal hen wederbrengen in het land dat Ik hun vaderen gegeven heb, en zij zullen het erfelijk bezitten.

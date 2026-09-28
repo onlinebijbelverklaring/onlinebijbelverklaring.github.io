@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 2
+
 DE UITSTORTING VAN DE HEILIGE GEEST, DOOR PETRUS IN EEN GEZEGENDE REDE VERDEDIGD
 
 B. Eerste Hoofddeel (hoofdstuk 2-12): Geschiedenis van de kerk vanaf haar stichting tot waar zij, losgemaakt van de moedergemeente in Jeruzalem, onder de heidenen door de voor deze verordende apostel wordt opgebouwd (van 30-46 n. Chr.).

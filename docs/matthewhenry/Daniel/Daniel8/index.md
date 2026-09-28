@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 8
+
 1. IN het derde jaar des koninkrijks van den koning Bélsazar verscheen mij een gezicht, mij, Daniël, na hetgeen dat mij in het eerst verschenen was.
 2. En ik zag in een gezicht (het geschiedde nu toen ik het zag, dat ik in den burcht Susan was, welke in het landschap Elam is), ik zag dan in een gezicht, dat ik aan den vloed Ulai was.
 3. En ik hief mijn ogen op en ik zag, en zie, een ram stond voor dien vloed, die had twee hoornen; en die twee hoornen waren hoog, en de ene was hoger dan de andere, en de hoogste kwam in het laatst op.

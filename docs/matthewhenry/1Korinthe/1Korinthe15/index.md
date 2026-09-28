@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 15
+
 1. VOORTS, broeders, ik maak u bekend het Evangelie, dat ik u verkondigd heb, hetwelk gij ook aangenomen hebt, in hetwelk gij ook staat,
 2. Door hetwelk gij ook zalig wordt, indien gij het behoudt op zodanige wijze als ik het u verkondigd heb, tenzij dan dat gij tevergeefs geloofd hebt.
 3. Want ik heb ulieden ten eerste overgegeven hetgeen ik ook ontvangen heb, dat Christus gestorven is voor onze zonden, naar de Schriften;

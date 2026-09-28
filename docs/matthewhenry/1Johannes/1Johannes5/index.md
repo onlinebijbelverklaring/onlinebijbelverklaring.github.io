@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 5
+
 1. Een iegelijk, die gelooft, dat Jezus is de Christus, die is uit God geboren; en een iegelijk, die liefheeft Dengene, Die geboren heeft, die heeft ook lief dengene, die uit Hem geboren is. 
 2. Hieraan kennen wij, dat wij de kinderen Gods liefhebben, wanneer wij God liefhebben, en Zijn geboden bewaren. 
 3. Want dit is de liefde Gods, dat wij Zijn geboden bewaren; en Zijn geboden zijn niet zwaar. 

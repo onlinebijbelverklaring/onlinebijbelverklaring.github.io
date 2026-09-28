@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 3
+
 PAULUS’ BEZORGDHEID EN GEBED VOOR DE THESSALONICENSEN
 
 ***1. Daarom, omdat wij volgens het gezegde in vs. 18 v. er zoveel belang in stelden, dat u in de waarheid blijft (Joh. 17: 11 v.), deze begeerte niet langer verdragen kunnend, om toch enig bericht over u te verkrijgen, hebben wij alles in het werk gesteld om iets van u te weten te komen. Zelfs hebben wij graag tot dat doel willen te Athene alleen gelaten worden (Hand. 16: 3 en "Ac 16: 3, waar wij veel hadden vernomen van moeilijkheden, die u hadden getroffen (Hoofdstuk 2: 14), maar zonder dat ons duidelijk werd hoe u zich temidden van die beproeving houden zou.***

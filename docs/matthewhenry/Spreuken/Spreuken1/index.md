@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 1
+
 1. DE spreuken van Sálomo, den zoon van David, den koning Israëls,
 2. Om wijsheid en tucht te weten, om te verstaan redenen des verstands,
 3. Om aan te nemen onderwijs van goed verstand, gerechtigheid en recht en billijkheden,

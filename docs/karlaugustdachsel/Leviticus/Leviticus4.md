@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 4
+
 WET VAN DE ZONDOFFERS.
 
 ## I. Vers 1-Hoofdstuk 5:13

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 6
+
 1. WAAR is uw Liefste heen gegaan, o gij schoonste onder de vrouwen? Waarheen heeft uw Liefste het aangezicht gewend, opdat wij Hem met u zoeken?
 2. Mijn Liefste is afgegaan in Zijn hof, tot de specerijbeddekens, om te weiden in de hoven en om de leliën te verzamelen.
 3. Ik ben mijns Liefsten, en mijn Liefste is mijne, Die onder de leliën weidt.

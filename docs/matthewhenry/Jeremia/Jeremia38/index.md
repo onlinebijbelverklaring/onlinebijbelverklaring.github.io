@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 38
+
 1. ALS Sefátja, de zoon van Mattan, en Gedálja, de zoon van Pashur, en Juchal, de zoon van Selémja, en Pashur, de zoon van Malchía, de woorden hoorden die Jeremía tot al het volk sprak, zeggende:
 2. Zo zegt de HEERE: Wie in deze stad blijft, zal door het zwaard, door den honger of door de pestilentie sterven; maar wie tot de Chaldeeën uitgaat, die zal leven, want hij zal zijn ziel tot een buit hebben en zal leven;
 3. Zo zegt de HEERE: Deze stad zal zekerlijk gegeven worden in de hand van het heir des konings van Babel; datzelve zal haar innemen;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 1
+
 1. PAULUS en Silvánus en Timótheüs aan de gemeente der Thessalonicenzen, welke is in God den Vader en den Heere Jezus Christus: Genade zij u en vrede van God onzen Vader en den Heere Jezus Christus.
 2. Wij danken God altijd over u allen, uwer gedachtig zijnde in onze gebeden;
 3. Zonder ophouden gedenkende het werk uws geloofs, en den arbeid der liefde, en de verdraagzaamheid der hoop op onzen Heere Jezus Christus, voor onzen God en Vader;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 21
+
 1. Als de Kanaaniet, de koning van Harad, wonende tegen het zuiden, hoorde, dat Israël door de weg der verspieders kwam, zo streed hij tegen Israël, en hij voerde enige gevangenen uit denzelven gevankelijk weg. 
 2. Toen beloofde Israël de HEERE een gelofte, en zeide: Indien Gij dit volk geheel in mijn hand geeft, zo zal ik hun steden verbannen. 
 3. De HEERE dan verhoorde de stem van Israël, en gaf de Kanaanieten over; en hij verbande hen en hun steden; en hij noemde de naam dier plaats Horma. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 25
+
 1. En Abraham voer voort, en nam een vrouw, wier naam was Ketura. 
 2. En zij baarde hem Zimran en Joksan, en Medan en Midian, en Jisbak en Suah. 
 3.  En Joksan gewon Seba en Dedan; en de zonen van Dedan waren de Assurieten, en Letusieten, en Leummieten. 

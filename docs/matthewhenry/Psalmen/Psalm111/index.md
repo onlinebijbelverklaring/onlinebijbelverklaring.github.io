@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 111
+
 1. HALLELUJAH. *Aleph. Ik zal den HEERE loven van ganser harte; Beth. in den raad en vergadering der oprechten.
 2. Gimel. De werken des HEEREN zijn groot; Daleth. zij worden gezocht van allen die er lust in hebben.
 3. He. Zijn doen is majesteit en heerlijkheid; Vau. en Zijn gerechtigheid bestaat in der eeuwigheid.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 15
+
 LOFZANG VAN MOZES, BITTER WATER ZOET GEMAAKT.
 
 ## I. Vers 1-21 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 6
+
 1. MIJN zoon, zo gij voor uw naaste borg geworden zijt, voor een vreemde uw hand toegeklapt hebt;
 2. Gij zijt verstrikt met de redenen uws monds; gij zijt gevangen met de redenen uws monds.
 3. Doe nu dit, mijn zoon, en red u, dewijl gij in de hand uws naasten gekomen zijt: ga, onderwerp uzelven en sterk uw naaste;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 77
+
 1. EEN psalm van Asaf, voor den opperzangmeester, over Jedúthun.
 2. Mijn stem is tot God, en ik roep; mijn stem is tot God, en Hij zal het oor tot mij neigen.
 3. Ten dage mijner benauwdheid zocht ik den Heere; mijn hand was des nachts uitgestrekt en liet niet af; mijn ziel weigerde getroost te worden.

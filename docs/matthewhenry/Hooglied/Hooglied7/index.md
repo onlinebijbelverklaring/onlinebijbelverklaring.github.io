@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 7
+
 1. HOE schoon zijn uw gangen in de schoenen, gij Prinsedochter! De omdraaiingen uwer heupen zijn als kostelijke ketens, zijnde het werk van de handen eens kunstenaars.
 2. Uw navel is als een ronde beker dien geen drank ontbreekt; uw buik is als een hoop tarwe, rondom bezet met leliën.
 3. Uw twee borsten zijn als twee welpen, tweelingen van een ree.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 44
+
 1. EEN onderwijzing, voor den opperzangmeester, onder de kinderen van Korach.
 2. O God, wij hebben het met onze oren gehoord, onze vaders hebben het ons verteld: Gij hebt een werk gewrocht in hun dagen, in de dagen vanouds.
 3. Gij hebt de heidenen met Uw hand uit de bezitting verdreven, maar henlieden geplant; Gij hebt de volken geplaagd, henlieden daarentegen doen voortschieten.

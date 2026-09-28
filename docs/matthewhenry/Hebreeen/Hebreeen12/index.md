@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 12
+
 1. DAAROM dan ook, alzo wij zo groot een wolk der getuigen rondom ons hebben liggende, laat ons afleggen allen last en de zonde die ons lichtelijk omringt, en laat ons met lijdzaamheid lopen de loopbaan die ons voorgesteld is;
 2. Ziende op den oversten Leidsman en Voleinder des geloofs, Jezus, Dewelke voor de vreugde die Hem voorgesteld was, het kruis heeft verdragen en schande veracht, en is gezeten aan de rechterhand van den troon Gods.
 3. Want aanmerkt Dezen, Die zodanig een tegenspreken van de zondaren tegen Zich heeft verdragen, opdat gij niet verflauwt en bezwijkt in uw zielen.

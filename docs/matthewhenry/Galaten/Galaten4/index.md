@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 4
+
 1. DOCH ik zeg, zo langen tijd als de erfgenaam een kind is, zo verschilt hij niets van een dienstknecht, hoewel hij een heer is van alles;
 2. Maar hij is onder voogden en verzorgers, tot den tijd van den vader tevoren gesteld.
 3. Alzo wij ook, toen wij kinderen waren, zo waren wij dienstbaar gemaakt onder de eerste beginselen der wereld.

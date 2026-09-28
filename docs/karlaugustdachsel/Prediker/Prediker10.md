@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 10
+
 ***1. Ene dode, vergiftige vlieg doet evenzo (zie Hoofdstuk 9: 18) de kostbare zalfolie des apothekers, des zalfbereiders stinken en opzwellen, of gisten, wanneer zij er invalt en verrot, inzonderheid in die oosterse landen, waar veel onreine en vergiftige vliegen zijn, waar de zalfolie ook zuiverder wordt bereid en de lucht veel heter is dan in onze gewesten; alzo een weinig dwaasheid enen man, die kostelijk is van wijsheid en van eer.***
 
 Hoe meer iemand uitmunt in wijsheid en aanzien, des te omzichtiger moet hij zijn in zijnen wandel, omdat ene enkele dwaasheid en onvoorzichtigheid zijnen goeden naam kan bevlekken, even als de vlekken het meest en het eerst bespeurd worden op de fijnste en witste klederen. Daarom vermaant ook Paulus de Filippensen (Filipp. 2: 15), dat zij als kinderen Gods, onberispelijk, oprecht en onbestraffelijk zouden zijn te midden van een krom en verdraaid geslacht, onder welken zij schenen als lichten in de wereld.

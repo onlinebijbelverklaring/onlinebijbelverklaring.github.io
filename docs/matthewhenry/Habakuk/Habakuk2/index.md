@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Habakuk 2
+
 1. Ik stond op mijn wacht, en ik stelde mij op de sterkte, en ik hield wacht om te zien, wat Hij in mij spreken zou, en wat ik antwoorden zou op mijn bestraffing. 
 2. Toen antwoordde mij de HEERE, en zeide: Schrijf het gezicht, en stel het duidelijk op tafelen, opdat daarin leze die voorbijloopt. 
 3. Want het gezicht zal nog tot een bestemden tijd zijn, dan zal Hij het op het einde voortbrengen, en niet liegen; zo Hij vertoeft, verbeid Hem, want Hij zal gewisselijk komen, Hij zal niet achterblijven. 

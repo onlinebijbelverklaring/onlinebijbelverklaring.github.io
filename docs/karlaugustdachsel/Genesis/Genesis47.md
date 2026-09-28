@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 47
+
 JAKOB WOONT IN HET LAND GOSEN. DE HONGER IS ZWAAR IN EGYPTE.
 
 ***1. Toen kwam Jozef, gelijk hij zich voorgenomen had, en boodschapte Farao, en zei: Mijn vader en mijn broeders en hun schapen, en hun runderen, met alles wat zij hebben, zijn gekomen uit het land Kanaän; a) en zie, zij zijnin het land Gosen, en wachten daar nader op een bevel, waar zij naar uw wil zich zullen nederzetten. 1)***

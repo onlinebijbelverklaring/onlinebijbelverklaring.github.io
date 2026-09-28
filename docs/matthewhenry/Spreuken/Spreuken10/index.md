@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 10
+
 1. DE spreuken van Sálomo. Een wijs zoon verblijdt den vader, maar een zot zoon is zijner moeder droefheid.
 2. Schatten der goddeloosheid doen geen nut, maar de gerechtigheid redt van den dood.
 3. De HEERE laat de ziel des rechtvaardigen niet hongeren, maar de have der goddelozen stoot Hij weg.

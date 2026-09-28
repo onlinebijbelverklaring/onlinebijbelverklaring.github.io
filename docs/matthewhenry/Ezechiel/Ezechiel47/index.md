@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 47
+
 1. DAARNA bracht Hij mij weder tot de deur des huizes, en zie, er vloten wateren uit, van onder den dorpel des huizes naar het oosten, want het voorste deel des huizes was in het oosten; en de wateren daalden af van onderen, uit de rechterzijde des huizes, van het zuiden des altaars.
 2. En Hij bracht mij uit door den weg van de noorderpoort, en voerde mij om door den weg vanbuiten tot de buitenpoort, den weg die naar het oosten ziet; en zie, de wateren sprongen uit de rechterzijde.
 3. Als nu die Man naar het oosten uitging, zo was er een meetsnoer in Zijn hand; en Hij mat duizend ellen en deed mij door de wateren doorgaan, en de wateren raakten tot aan de enkels.

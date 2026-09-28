@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 7
+
 1. DEWIJL wij dan deze beloften hebben, geliefden, laat ons onszelven reinigen van alle besmetting des vleses en des geestes, voleindigende de heiligmaking in de vreze Gods.
 2. Geeft ons plaats; wij hebben niemand verongelijkt, wij hebben niemand verdorven, wij hebben bij niemand ons voordeel gezocht.
 3. Ik zeg dit niet tot uw veroordeling; want ik heb tevoren gezegd dat gij in onze harten zijt, om tezamen te sterven en tezamen te leven.

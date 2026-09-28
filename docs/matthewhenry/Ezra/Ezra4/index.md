@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 4
+
 1. Toen nu de wederpartijders van Juda en Benjamin hoorden, dat de kinderen der gevangenis de HEERE, de God Israëls, de tempel bouwden; 
 2. Zo kwamen zij aan tot Zerubbabel, en tot de hoofden der vaderen, en zeiden tot hen: Laat ons met ulieden bouwen, want wij zullen uw God zoeken, gelijk gijlieden; ook hebben wij Hem geofferd sinds de dagen van Esar - haddon, de koning van Assur, die ons herwaarts heeft doen optrekken. 
 3. Maar Zerubbabel, en Jesua, en de overige hoofden der vaderen van Israël zeiden tot hen: Het betaamt niet, dat gijlieden en wij onzen God een huis bouwen; maar wij alleen zullen het de HEERE, de God Israëls, bouwen, gelijk als de koning Kores, koning van Perzië, ons geboden heeft. 

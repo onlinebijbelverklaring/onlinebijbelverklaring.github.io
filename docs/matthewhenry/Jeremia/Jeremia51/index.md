@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 51
+
 1. ZO zegt de HEERE: Zie, Ik zal een verdervenden wind opwekken tegen Babel, en tegen degenen die daar wonen in het hart van degenen die tegen Mij opstaan.
 2. En Ik zal Babel wanners toeschikken, die haar wannen en haar land uitledigen zullen; want zij zullen ten dage des kwaads van rondom tegen haar zijn.
 3. De schutter spanne zijn boog tegen dien die spant, en tegen dien die zich verheft in zijn pantsier; en verschoont haar jongelingen niet, verbant al haar heir;

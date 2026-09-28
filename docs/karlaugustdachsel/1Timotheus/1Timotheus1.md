@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 1
+
 LEER VAN DE WET EN VAN HET EVANGELIE, VERKLAARD DOOR HET VOORBEELD VAN PAULUS
 
 A. Dadelijk bij het begin van deze brief, die volgens onze mening in de zomer van het jaar 56 na Christus uit Corinthiërs aan Timotheus, die in Efeze was achtergelaten, gericht was (Hand. 19: 20), een begin, dat opschrift en apostolische zegenwens bevat, ontmoeten wij allerlei eigenaardigheden van de pastoraalbrieven in het algemeen en van de beide brieven aan Timotheus in het bijzonder. Deze vinden hun verklaring niet in de vervaardiging van deze brieven op een tijd, die aan de andere kant van de grenzen van het ontstaan van de overige brieven van de apostel zou liggen, zoals men veelal heeft aangenomen, maar in het pastorale karakter van de brieven en in hun bestemming voor die mannen, met wie Paulus als bedienaars van het ambt, die in het bijzonder door hem zijn aangesteld, te doen heeft.

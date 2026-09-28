@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 17
+
 1. DE zonde van Juda is geschreven met een ijzeren griffie, met de punt van een diamant; gegraven in de tafel van hunlieder hart en aan de hoornen uwer altaren;
 2. Gelijk hun kinderen hun altaren gedenken en hun bossen, bij het groen geboomte, op de hoge heuvelen.
 3. Ik zal Mijn berg met het veld, uw vermogen en al uw schatten ten roof geven, mitsgaders uw hoogten, om de zonde in al uw landpalen.

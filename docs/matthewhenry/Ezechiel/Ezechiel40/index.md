@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 40
+
 1. IN het vijf en twintigste jaar onzer gevankelijke wegvoering, in het begin des jaars, op den tiende der maand, in het veertiende jaar nadat de stad geslagen was; even op dienzelven dag, was de hand des HEEREN op mij en Hij bracht mij derwaarts.
 2. In de gezichten Gods bracht Hij mij in het land Israëls; en Hij zette mij op een zeer hogen berg, en aan denzelven was als een gebouw ener stad tegen het zuiden.
 3. Als Hij mij daarheen gebracht had, zie, zo was er een Man, Wiens gedaante was als de gedaante van koper; en in Zijn hand was een linnen snoer en een meetriet; en Hij stond in de poort.

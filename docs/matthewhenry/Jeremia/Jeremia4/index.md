@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 4
+
 1. ZO gij u bekeren zult, Israël, spreekt de HEERE, bekeer u tot Mij; en zo gij uw verfoeiselen van Mijn aangezicht zult wegdoen, zo zwerf niet om;
 2. Maar zweer: Zo waarachtig als de HEERE leeft, in waarheid, in recht en in gerechtigheid; zo zullen zich de heidenen in Hem zegenen en zich in Hem roemen.
 3. Want zo zegt de HEERE tot de mannen van Juda en tot Jeruzalem: Braakt ulieden een braakland, en zaait niet onder de doornen.

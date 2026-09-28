@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 8
+
 1. Dit nu zijn de hoofden hunner vaderen, met hun geslachtsrekening, die met mij uit Babel optogen, onder het koninkrijk van de koning Arthahsasta. 
 2. Van de kinderen van Pinehas, Gersom; van de kinderen van Ithamar, Daniel; van de kinderen van David, Hattus. 
 3. Van de kinderen van Sechanja, van de kinderen van Paros, Zacharja; en met hem werden bij geslachtsregisters gerekend, aan manspersonen, honderd en vijftig. 

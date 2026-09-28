@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 107
+
 1. LOOFT den HEERE, want Hij is goed, want Zijn goedertierenheid is in der eeuwigheid.
 2. Dat zulks de bevrijden des HEEREN zeggen, die Hij van de hand der wederpartijders bevrijd heeft,
 3. En die Hij uit de landen verzameld heeft, van het oosten en van het westen, van het noorden en van de zee.

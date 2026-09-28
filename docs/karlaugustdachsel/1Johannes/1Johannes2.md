@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 2
+
 OVER GROND, KENTEKENEN, INHOUD, VIJANDEN EN BEWARING VAN HET CHRISTENDOM
 
 ## II. Vers 1-6

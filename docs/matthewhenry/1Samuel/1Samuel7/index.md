@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 7
+
 1. Toen kwamen de mannen van Kirjath-Jearim, en haalden de ark des HEEREN op, en zij brachten ze in het huis van Abinadab, op de heuvel; en zij heiligden zijn zoon Eleazar, dat hij de ark des HEEREN bewaarde. 
 2. En het geschiedde, van dien dag af, dat de ark des Heeren te Kirjath-Jearim bleef, en de dagen werden twintig jaren; en het ganse huis van Israël klaagde de HEERE achterna. 
 3. Toen sprak Samuël tot het ganse huis van Israël, zeggende: Indien gijlieden u met uw ganse hart tot de HEERE bekeert, zo doet de vreemde goden uit het midden van u weg, ook de Astharoths; en richt uw hart tot de HEERE, en dient Hem alleen, zo zal Hij u uit de hand der Filistijnen rukken. 

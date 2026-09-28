@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 13
+
 1. Toen sprak de HEERE tot Mozes, zeggende: 
 2. Heilig Mij alle eerstgeborenen; wat enige baarmoeder opent onder de kinderen Israëls, van mensen en van beesten, dat is Mijn. 
 3. Verder zeide Mozes tot het volk: Gedenkt aan dezen zelfden dag, op welken gijlieden uit Egypte, uit het diensthuis, gegaan zijt; want de HEERE heeft u door een sterke hand van hier uitgevoerd; daarom zal het gedesemde niet gegeten worden. 

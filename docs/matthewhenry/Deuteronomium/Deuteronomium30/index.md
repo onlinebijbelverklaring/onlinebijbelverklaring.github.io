@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 30
+
 1. Voorts zal het geschieden, wanneer al deze dingen over u zullen gekomen zijn, deze zegen of deze vloek, die ik u voorgesteld heb; zo zult gij het weder ter harte nemen, onder alle volken, waarheen u de HEERE, uw God, gedreven heeft; 
 2. En gij zult u bekeren tot de HEERE, uw God, en Zijner stem gehoorzaam zijn, naar alles, wat ik u heden gebiede, gij en uw kinderen, met uw ganse hart en met uw ganse ziel. 
 3. En de HEERE, uw God, zal uw gevangenis wenden, en Zich uwer ontfermen; en Hij zal u weder vergaderen uit al de volken, waarheen u de HEERE, uw God, verstrooid had. 

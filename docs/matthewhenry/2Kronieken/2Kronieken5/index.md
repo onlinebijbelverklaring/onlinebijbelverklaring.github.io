@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 5
+
 1. Alzo werd al het werk volbracht, dat Salomo aan het huis des HEEREN maakte. Daarna bracht Salomo de geheiligde dingen van zijn vader David; en het zilver, en het goud, en al de vaten leide hij onder de schatten van het huis Gods. 
 2. Toen vergaderde Salomo de oudsten van Israël, en al de hoofden der stammen, de oversten der vaderen onder de kinderen Israëls, te Jeruzalem, om de ark des verbonds des HEEREN op te brengen uit de stad Davids, dewelke is Sion. 
 3. En alle mannen van Israël verzamelden zich tot de koning op het feest, hetwelk was in de zevende maand. 

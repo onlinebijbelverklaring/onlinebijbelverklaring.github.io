@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 14
+
 1. WANT de HEERE zal Zich over Jakob ontfermen en Hij zal Israël nog verkiezen, en Hij zal hen in hun land zetten; en de vreemdeling zal zich tot hen vervoegen, en zij zullen het huis van Jakob aanhangen.
 2. En de volken zullen hen aannemen en in hun plaats brengen; en het huis Israëls zal hen erfelijk bezitten in het land des HEEREN, tot knechten en tot maagden; en zij zullen gevankelijk houden degenen die hen gevangen hielden, en zij zullen heersen over hun drijvers.
 3. En het zal geschieden ten dage wanneer u de HEERE rust geven zal van uw smart en van uw beroering, en van de harde dienstbaarheid waarin men u heeft doen dienen,

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Haggai
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET HAGGAÏ
 
 De Babylonische ballingschap bracht een gewichtiger keer, in geschiedenis en profetie beide, der Joodse kerk. In de geslachtsboom onzes Heilands wordt het als een belangrijk tijdstip gekenmerkt, Mattheüs 1:17. Negen van de twaalf kleine profeten, wier geschriften wij tot hiertoe overdacht hebben, leefden en predikten voor die ballingschap; de meesten hebben er in hun profetieën over geschreven en ze als een rechtvaardige straf voor Jeruzalems goddeloosheid voorspeld. 

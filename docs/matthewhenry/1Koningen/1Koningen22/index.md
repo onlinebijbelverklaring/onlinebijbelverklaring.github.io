@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 22
+
 1. EN zij zaten drie jaren stil, dat er geen krijg was tussen Syrië en tussen Israël.
 2. Maar het geschiedde in het derde jaar, als Jósafat, de koning van Juda, tot den koning van Israël afgekomen was,
 3. Dat de koning van Israël tot zijn knechten zeide: Weet gij dat Ramoth in Gilead onze is? En wij zijn stil zonder dat te nemen uit de hand van den koning van Syrië.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 3
+
 1. En indien zijn offerande een dankoffer is; zo hij ze van de runderen offert, hetzij mannetje of wijfje, volkomen zal hij die offeren, voor het aangezicht des HEEREN. 
 2. En hij zal zijn hand op het hoofd zijner offerande leggen, en zal ze slachten voor de deur van de tent der samenkomst; en de zonen van Aäron, de priesters, zullen het bloed rondom op het altaar sprengen. 
 3. Daarna zal hij van dat dankoffer een vuuroffer de HEERE offeren; het vet, dat het ingewand bedekt, en al het vet, hetwelk aan het ingewand is. 

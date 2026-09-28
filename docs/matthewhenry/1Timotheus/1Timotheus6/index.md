@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 6
+
 1. DE dienstknechten, zovelen als er onder het juk zijn, zullen hun heren alle eer waardig achten, opdat de Naam Gods en de leer niet gelasterd worde.
 2. En die gelovige heren hebben, zullen hen niet verachten omdat zij broeders zijn; maar zullen hen te meer dienen, omdat zij gelovig en geliefd zijn, als die dezer weldaad mededeelachtig zijn. Leer en vermaan deze dingen.
 3. Indien iemand een andere leer leert, en niet overeenkomt met de gezonde woorden van onzen Heere Jezus Christus, en met de leer die naar de godzaligheid is,

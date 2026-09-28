@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 2
+
 OVER MENSELIJKE INZETTINGEN, OVER CHRISTUS, OVER DE HEILIGE DOOP EN OVER DE KRACHT VAN ZIJN DOOD
 
 ## II. Vers 1-23

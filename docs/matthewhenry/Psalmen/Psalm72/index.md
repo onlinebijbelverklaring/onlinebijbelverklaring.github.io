@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 72
+
 1. VOOR Sálomo. O God, geef den koning Uw rechten, en Uw gerechtigheid den zoon des konings.
 2. Zo zal hij Uw volk richten met gerechtigheid, en Uw ellendigen met recht.
 3. De bergen zullen den volke vrede dragen, ook de heuvelen, met gerechtigheid.

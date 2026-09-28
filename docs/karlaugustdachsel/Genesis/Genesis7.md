@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 7
+
 DE ZONDVLOED KOMT.
 
 ## I. Vers 1-16

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 6
+
 1. DARÍUS de Meder nu ontving het koninkrijk, omtrent twee en zestig jaren oud zijnde.
 2. En het dacht Daríus goed dat hij over het koninkrijk stelde honderd en twintig stadhouders, die over het ganse koninkrijk zijn zouden;
 3. En over dezelve drie vorsten, van dewelke Daniël de eerste zijn zou, denwelken die stadhouders zelven zouden rekenschap geven, opdat de koning geen schade leed.

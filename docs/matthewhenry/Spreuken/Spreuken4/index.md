@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 4
+
 1. HOORT, gij kinderen, de tucht des vaders; en merkt op, om verstand te weten.
 2. Dewijl ik ulieden goede leer geef, verlaat mijn wet niet.
 3. Want ik was mijns vaders zoon, teder, en een enige voor het aangezicht mijner moeder.

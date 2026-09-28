@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 1
+
 1. GOD voortijds veelmaals en op velerlei wijze tot de vaderen gesproken hebbende door de profeten, heeft in deze laatste dagen tot ons gesproken door den Zoon;
 2. Welken Hij gesteld heeft tot een Erfgenaam van alles, door Welken Hij ook de wereld gemaakt heeft;
 3. Dewelke, alzo Hij is het Afschijnsel Zijner heerlijkheid, en het uitgedrukte Beeld Zijner Zelfstandigheid, en alle dingen draagt door het woord Zijner kracht, nadat Hij de reinigmaking onzer zonden door Zichzelven teweeggebracht heeft, is gezeten aan de rechterhand der Majesteit in de hoogste hemelen,

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 11
+
 1. Daarom zult gij de HEERE, uw God, liefhebben, en gij zult te allen dage onderhouden Zijn bevel, en Zijn inzettingen, en Zijn rechten, en Zijn geboden. 
 2. En gijlieden zult heden weten, dat ik niet spreek met uw kinderen, die het niet weten, en de onderwijzing des HEEREN, uws Gods, niet gezien hebben. Zijn grootheid, Zijn sterke hand en Zijn uitgestrekten arm; 
 3. Daartoe Zijn tekenen en Zijn daden, die Hij in het midden van Egypte gedaan heeft, aan Farao, de koning van Egypte, en aan zijn ganse land; 

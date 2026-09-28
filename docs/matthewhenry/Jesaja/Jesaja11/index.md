@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 11
+
 1. WANT er zal een Rijsje voortkomen uit den afgehouwen tronk van Isaï, en een Scheut uit zijn wortelen zal vrucht voortbrengen.
 2. En op Hem zal de Geest des HEEREN rusten: de Geest der wijsheid en des verstands, de Geest des raads en der sterkte, de Geest der kennis en der vreze des HEEREN.
 3. En Zijn rieken zal zijn in de vreze des HEEREN; en Hij zal naar het gezicht Zijner ogen niet richten, Hij zal ook naar het gehoor Zijner oren niet bestraffen.

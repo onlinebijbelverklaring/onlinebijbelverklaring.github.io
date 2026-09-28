@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 18
+
 1. En de ganse vergadering van de kinderen Israëls verzamelde zich te Silo, en zij richtten aldaar op de tent der samenkomst, nadat het land voor hen onderworpen was. 
 2. En er bleven over onder de kinderen Israëls, aan dewelken zij hun erfdeel niet uitgedeeld hadden, zeven stammen. 
 3. En Jozua zeide tot de kinderen Israëls: Hoe lang houdt gij u zo slap, om voort te gaan, om het land te beerven, hetwelk de HEERE, de God uwer vaderen, u gegeven heeft? 

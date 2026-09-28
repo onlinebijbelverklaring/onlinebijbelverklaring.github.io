@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 40
+
 1. TROOST, troost Mijn volk, zal ulieder God zeggen.
 2. Spreekt naar het hart van Jeruzalem, en roept haar toe dat haar strijd vervuld is, dat haar ongerechtigheid verzoend is, dat zij van de hand des HEEREN dubbel ontvangen heeft voor al haar zonden.
 3. Een stem des roependen in de woestijn: Bereidt den weg des HEEREN, maakt recht in de wildernis een baan voor onzen God.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 47
+
 1. HET woord des HEEREN dat tot den profeet Jeremía geschiedde tegen de Filistijnen, eer dat Farao Gaza sloeg.
 2. Zo zegt de HEERE: Zie, wateren komen op van het noorden, en zullen worden tot een overlopende beek, en overlopen het land en de volheid van hetzelve, de stad en die daarin wonen; en de mensen zullen schreeuwen en al de inwoners des lands zullen huilen;
 3. Vanwege het geluid van het geklater der hoeven zijner sterke paarden, vanwege het geraas zijner wagens en het bolderen zijner raderen; de vaders zien niet om naar de kinderen, vanwege de slapheid der handen;

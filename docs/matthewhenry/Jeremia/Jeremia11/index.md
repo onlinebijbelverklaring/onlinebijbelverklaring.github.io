@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 11
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, zeggende:
 2. Hoort gijlieden de woorden dezes verbonds, en spreekt tot de mannen van Juda en tot de inwoners van Jeruzalem.
 3. Zeg dan tot hen: Zo zegt de HEERE, de God Israëls: Vervloekt zij de man die niet hoort de woorden dezes verbonds,

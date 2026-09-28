@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Klaagliederen 1
+
 1. ALEPH. Hoe zit die stad zo eenzaam, die vol volk was! Zij is als een weduwe geworden, zij die groot was onder de heidenen, een vorstin onder de landschappen, is cijnsbaar geworden.
 2. Beth. Zij weent steeds des nachts, en haar tranen lopen over haar kinnebak; zij heeft geen trooster onder al haar liefhebbers; al haar vrienden hebben trouwelooslijk met haar gehandeld, zij zijn haar tot vijanden geworden.
 3. Gimel. Juda is in gevangenis gegaan vanwege de ellende, en vanwege de veelheid der dienstbaarheid; zij woont onder de heidenen, zij vindt geen rust; al haar vervolgers achterhalen haar tussen de engten.

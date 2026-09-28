@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 12
+
 1. EN gedenk aan uw Schepper in de dagen uwer jongelingschap, eer dat de kwade dagen komen en de jaren naderen, van dewelke gij zeggen zult: Ik heb geen lust in dezelve.
 2. Eer dan de zon en het licht, en de maan en de sterren verduisterd worden, en de wolken wederkomen na den regen;
 3. In den dag wanneer de wachters des huizes zullen beven, en de sterke mannen zichzelven zullen krommen; en de maalsters zullen stilstaan, omdat zij minder geworden zijn; en die door de vensteren zien, verduisterd zullen worden;

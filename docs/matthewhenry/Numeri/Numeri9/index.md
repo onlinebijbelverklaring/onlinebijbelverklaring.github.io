@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 9
+
 1. En de HEERE sprak tot Mozes in de woestijn van Sinai, in het tweede jaar, nadat zij uit Egypteland uitgetogen waren, in de eerste maand, zeggende: 
 2. Dat de kinderen Israëls het pascha houden zouden, op zijn gezetten tijd. 
 3. Op de veertienden dag in deze maand, tussen twee avonden zult gij dat houden, op zijn gezetten tijd; naar al zijn inzettingen, en naar al zijn rechten zult gij dat houden. 

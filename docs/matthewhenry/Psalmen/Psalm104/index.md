@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 104
+
 1. LOOF den HEERE, mijn ziel; o HEERE mijn God, Gij zijt zeer groot, Gij zijt bekleed met majesteit en heerlijkheid.
 2. Hij bedekt Zich met het licht als met een kleed, Hij rekt den hemel uit als een gordijn.
 3. Die Zijn opperzalen zoldert in de wateren, Die van de wolken Zijn wagen maakt, Die op de vleugelen des winds wandelt.

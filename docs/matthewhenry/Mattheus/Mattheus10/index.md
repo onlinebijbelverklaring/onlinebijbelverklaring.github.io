@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 10
+
 1. EN Zijn twaalf discipelen tot Zich geroepen hebbende, heeft Hij hun macht gegeven over de onreine geesten, om dezelve uit te werpen, en om alle ziekte en alle kwaal te genezen.
 2. De namen nu der twaalf apostelen zijn deze: de eerste, Simon, gezegd Petrus, en Andréas, zijn broeder; Jakobus, de zoon van Zebedéüs, en Johannes, zijn broeder;
 3. Filippus en Bartholoméüs; Thomas en Matthéüs, de tollenaar; Jakobus, de zoon van Alféüs, en Lebbéüs, toegenaamd Thaddéüs;

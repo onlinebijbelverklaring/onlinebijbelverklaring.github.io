@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 29
+
 1. Dit nu is de zaak, die gij hun doen zult, om hen te heiligen, dat zij Mij het priesterambt bedienen: neem een var, het jong eens runds, en twee volkomen rammen; 
 2. En ongezuurd brood, en ongezuurde koeken, met olie gemengd, en ongezuurde vladen, met olie bestreken; van tarwemeelbloem zult gij dezelve maken. 
 3. En gij zult ze in een korf leggen, en zult ze in de korf toebrengen, met de var en de twee rammen. 

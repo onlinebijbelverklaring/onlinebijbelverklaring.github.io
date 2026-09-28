@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 2
+
 1. EN het geschiedde in diezelve dagen, dat er een gebod uitging van den keizer Augustus, dat de gehele wereld beschreven zou worden.
 2. Deze eerste beschrijving geschiedde als Cyrénius over Syrië stadhouder was.
 3. En zij gingen allen om beschreven te worden, een iegelijk naar zijn eigen stad.

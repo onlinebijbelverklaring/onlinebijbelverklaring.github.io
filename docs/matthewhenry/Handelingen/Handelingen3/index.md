@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 3
+
 1. PETRUS nu en Johannes gingen tezamen op naar den tempel, omtrent de ure des gebeds, zijnde de negende ure.
 2. En een zeker man, die kreupel was van zijner moeders lijf, werd gedragen, welken zij dagelijks zetten aan de deur des tempels, genaamd de Schone, om een aalmoes te begeren van degenen die in den tempel gingen;
 3. Welke, Petrus en Johannes ziende, als zij in den tempel zouden ingaan, bad dat hij een aalmoes mocht ontvangen.

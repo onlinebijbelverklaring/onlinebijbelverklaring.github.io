@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 4
+
 1. Hoort des HEEREN woord, gij kinderen Israëls! want de HEERE heeft een twist met de inwoners des lands, omdat er geen trouw, en geen weldadigheid, en geen kennis van God in het land is; 
 2. Maar vloeken en liegen, en doodslaan, en stelen, en overspel doen; zij breken door, en bloedschulden raken aan bloedschulden. 
 3. Daarom zal het land treuren, en een iegelijk, die daarin woont, kwelen, met het gedierte des velds, en met het gevogelte des hemels; ja, ook de vissen der zee zullen weggeraapt worden. 

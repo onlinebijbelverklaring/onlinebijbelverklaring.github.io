@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Johannes 1
+
 SPIEGEL VAN EEN GODZALIGE VROUW
 
 A. Deze brief is evenals de eerste van Patmos geschreven en wel in dezelfde tijd, wel niet aan de verschillende gemeenten van het kerkelijk ressort van Efeze, maar aan een vrouw, die met haar kinderen een afzonderlijk huisgezin vormt en die waarschijnlijk tot een bijzondere plaats van dat ressort behoort. Aan deze brief ontbreekt wel niet het opschrift, maar is wat de namen aangaat, volgens de wijze van de apostel onbepaald gelaten. De overbrenger, nader bekend met de beide personen, moest hier aanvullen. Waarop het doel van de briefschrijver bij hen, die de brief ontvingen doelt, geeft het uitgebreide adres in verband met de zegenwens, die zich daaraan aansluit, reeds enigermate te kennen.

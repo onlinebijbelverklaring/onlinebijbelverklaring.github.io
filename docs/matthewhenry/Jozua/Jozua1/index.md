@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 1
+
 1. Het geschiedde nu, na de dood van Mozes, de knecht des HEEREN, dat de HEERE tot Jozua, de zoon van Nun, de dienaar van Mozes, sprak, zeggende: 
 2. Mijn knecht Mozes is gestorven; zo maak u nu op, trek over deze Jordaan, gij en al dit volk, tot het land, dat Ik hun, de kinderen Israëls, geve. 
 3. Alle plaats, waarop ulieder voetzool treden zal, heb Ik u gegeven, gelijk als Ik tot Mozes gesproken heb. 

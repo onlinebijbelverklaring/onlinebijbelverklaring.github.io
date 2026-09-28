@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 19
+
 DE ARBEID VAN PAULUS TE EFEZE
 
 ***1. En het geschiedde, terwijl Apollos te Korinthe werkzaam was, op de wijze in hoofdst. 18: 28 meegedeeld, dat Paulus evenals vroeger, toen de eerste nogte Efeze was, het land van Galatië en Frygië doorreisde (hoofdst. 18: 23vv.) en na nu ook de bovenste, hoger dan de streek aan de zeekust gelegen delen van het land doorreisd te hebben, terwijl hij vooral te Kolosse, Laodicea en Hiërapolis arbeidde Ac 18: 23, te Efeze kwam omstreeks het einde van september van het jaar 54 n. Chr. En toen hij daar enige discipelen vond, die Christus beleden (vs. 7), sprak bij met hen.***

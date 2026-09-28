@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 22
+
 1. En David sprak de woorden dezes lieds tot de HEERE, ten dage als de HEERE hem verlost had uit de hand van al zijn vijanden, en uit de hand van Saul. 
 2. Hij zeide dan: De HEERE is mij mijn Steenrots, en mijn Burg, en mijn Uithelper. 
 3. God is mijn Rots, ik zal op Hem betrouwen; mijn Schild en de Hoorn mijns heils, mijn Hoog Vertrek en mijn Toevlucht, mijn Verlosser! Van geweld hebt Gij mij verlost! 

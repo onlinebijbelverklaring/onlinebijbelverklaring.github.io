@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 40
+
 1. EN de HEERE antwoordde Job uit een onweder en zeide:
 2. Gord nu als een man uw lendenen; Ik zal u vragen, en onderricht Mij.
 3. Zult gij ook Mijn oordeel tenietmaken? Zult gij Mij verdoemen, opdat gij rechtvaardig zijt?

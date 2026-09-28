@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 70
+
 1. EEN psalm van David, voor den opperzangmeester; om te doen gedenken.
 2. Haast U, o God, om mij te verlossen, o HEERE, tot mijn hulp.
 3. Laat hen beschaamd en schaamrood worden, die mijn ziel zoeken; laat hen achterwaarts gedreven en te schande worden, die lust hebben aan mijn kwaad.

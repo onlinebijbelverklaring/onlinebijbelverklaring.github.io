@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filippenzen 1
+
 DANKZEGGING VAN DE GEBONDEN PAULUS. GEBED EN VERMANING TOT BESTENDIGE GELOOFSSTRIJD
 
 A. Omdat de brief aan de Filippensen, zoals bijna algemeen wordt erkend, geschreven is tegen het einde van de twee jaren, toen Paulus te Rome gevangen zat (tegen het einde van het jaar 62, nog vóór het invallen van de winter. Deel VI. Aanm. II, onder b. I.), op deze gevangenschap echter geen bevrijding van de apostel, maar zijn martelaarsdood gevolgd was en ook de tweede brief aan Timotheus zoals wij hebben aangenomen Ac 28: 31, niet pas na de twee jaren van de gevangenschap, maar snel bij het begin ervan is vervaardigd, zo ligt nu voor ons het laatste geschrift van de grote man van God. Zijn woord in Hoofdstuk 1: 21 "het leven is mij Christus en het sterven is mij gewin", klinkt als een profetie van zijn nabijzijnd heengaan. Omdat nu deze zendbrief meer dan alle andere het karakter draagt van een brief en slechts een uitdrukking is van de ogenblikkelijke gedachten en gevoelens, maar niet een apostolische leervoordracht, kan die ook niet op de gewone manier worden verdeeld, maar vormt van het begin tot aan het einde een voortgaand geheel, waarbij alleen de drie delen van een inleiding, van een uitvoerige uitstorting van het hart en een slot kunnen worden onderscheiden. Wat dan in de eerste plaats de inleiding aangaat, die ons hier bezighoudt, deze kan verdeeld worden in twee onderdelen.

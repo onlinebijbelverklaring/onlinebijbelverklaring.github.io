@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 22
+
 1. EN hij toonde mij een zuivere rivier van het water des levens, klaar als kristal, voortkomende uit den troon Gods en des Lams.
 2. In het midden van haar straat en op de ene en de andere zijde der rivier was de Boom des levens, voortbrengende twaalf vruchten, van maand tot maand gevende Zijn vrucht; en de bladeren des Booms waren tot genezing der heidenen.
 3. En geen vervloeking zal er meer tegen iemand zijn; en de troon Gods en des Lams zal daarin zijn, en Zijn dienstknechten zullen Hem dienen,

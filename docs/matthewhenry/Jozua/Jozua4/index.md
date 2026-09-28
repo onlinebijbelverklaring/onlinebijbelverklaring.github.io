@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 4
+
 1. Het geschiedde nu, toen al het volk geëindigd had over de Jordaan te trekken, dat de HEERE tot Jozua sprak, zeggende: 
 2. Neemt gijlieden u twaalf mannen uit het volk, uit elken stam een man. 
 3. En gebiedt hun, zeggende: Neemt voor ulieden op, van hier uit het midden van de Jordaan, uit de standplaats van de voeten der priesteren, en bereidt twaalf stenen, en brengt ze met ulieden over, en stelt ze in het nachtleger, waar gij dezen nacht zult vernachten. 

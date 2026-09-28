@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 7
+
 1. OORDEELT niet, opdat gij niet geoordeeld wordt.
 2. Want met welk oordeel gij oordeelt, zult gij geoordeeld worden; en met welke maat gij meet, zal u wedergemeten worden.
 3. En wat ziet gij den splinter die in het oog uws broeders is, maar den balk die in uw oog is, merkt gij niet?

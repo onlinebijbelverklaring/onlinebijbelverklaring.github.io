@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 5
+
 DE WET VAN HET SCHULDOFFER.
 
 ***1. Als nu een mens uit het volk (hoofdstuk 4:27) bijv. aldus zal gezondigd hebben, dat hij nu, bij een openlijk behandelde rechtszaak, waar het gaat om de ontdekking of overtuiging van een misdadiger, aanwezig zijnde, gehoord heeft een stem van een vloek 1) uit demond van de rechter, die onderzoeken moet, waarmee allen, die van de zaak weten, worden bezworen om te getuigen (Spreuken. 29:24), waarvan hij getuige is, 2) in staat is om als getuige in die zaak op te treden, hetzij dat hij het gezien of door mededeling van een ander geweten heeft; indien hij in weerwil van de plechtige beëdiging door de rechter, die in de naam des Heeren handelt, nochthans het niet te kennen geeft, wat hij weet, maar uit vrees, of uit verkeerd medelijden, zich houdt als weet hij het niet, zo zal hij zijn ongerechtigheid dragen, 3) welke de verzoening door een zondoffer nodig heeft, zoalsin het vorige hoofdstuk gezegd is.***

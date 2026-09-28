@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 17
+
 1. DE last van Damascus. Zie, Damascus zal weggenomen worden, dat zij geen stad meer zij, maar zij zal een vervallen steenhoop zijn.
 2. De steden van Aroër zullen verlaten worden; voor de kudden zullen zij wezen, die zullen daar nederliggen en niemand zal ze verschrikken.
 3. En de vesting zal ophouden van Efraïm, en het koninkrijk van Damascus en het overblijfsel der Syriërs; zij zullen zijn gelijk de heerlijkheid der kinderen Israëls, spreekt de HEERE der heirscharen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 3
+
 1. O gij uitzinnige Galaten, wie heeft u betoverd, dat gij der waarheid niet zoudt gehoorzaam zijn; denwelken Jezus Christus voor de ogen tevoren geschilderd is geweest, onder u gekruist zijnde?
 2. Dit alleen wil ik van u leren: Hebt gij den Geest ontvangen uit de werken der wet, of uit de prediking des geloofs?
 3. Zijt gij zo uitzinnig? Daar gij met den Geest begonnen hebt, voleindigt gij nu met het vlees?

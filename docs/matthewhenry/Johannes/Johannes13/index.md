@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 13
+
 1. EN vóór het feest van het pascha, Jezus wetende dat Zijn ure gekomen was, dat Hij uit deze wereld zou overgaan tot den Vader, alzo Hij de Zijnen, die in de wereld waren, liefgehad had, zo heeft Hij hen liefgehad tot het einde.
 2. En als het avondmaal gedaan was (toen nu de duivel in het hart van Judas, Simons zoon, Iskáriot, gegeven had dat hij Hem verraden zou),
 3. Jezus, wetende dat de Vader Hem alle dingen in de handen gegeven had, en dat Hij van God uitgegaan was en tot God heen ging,

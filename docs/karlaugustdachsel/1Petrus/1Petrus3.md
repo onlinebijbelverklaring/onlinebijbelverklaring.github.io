@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 3
+
 ***1. Dienstbaren moeten hun heren gehoorzamen, ook de harden (Hoofdstuk 2: 18). Zo ook a) u vrouwen! wees uw eigen mannen, ook de ongelovigen, onderdanig (vgl. Efeze. 5: 22 vv. Kol. 3: 18. 1 Tim. 2: 11 ; opdat ook, als enigen onder de echtgenoten van de Christelijke vrouwen het woord van het Evangelie (Hoofdstuk 2: 8) ongehoorzaam zijn, zij door de wandel van de vrouwen zonder woord, zonder vermaning of overreding, voor het Christendom (1 Kor. 9: 19 vv.) gewonnen mogen worden.***
 
 a) Gen. 3: 16. 1 Kor. 14: 34

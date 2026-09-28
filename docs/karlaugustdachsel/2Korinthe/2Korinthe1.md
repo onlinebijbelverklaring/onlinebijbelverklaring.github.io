@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 1
+
 PAULUS’ GEDULD IN VERVOLGING
 
 A. Het begin van deze tweede brief, die omstreeks vier maanden na de eersten aan de Corinthiërs geschreven is Ac 20: 2 kan evenals de eerste in twee delen verdeeld worden.

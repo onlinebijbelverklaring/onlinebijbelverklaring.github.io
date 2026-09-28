@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 10
+
 1. Toen nam Samuël een oliekruik, en goot ze uit op zijn hoofd, en kuste hem, en zeide: Is het niet alzo, dat de HEERE u tot een voorganger over Zijn erfdeel gezalfd heeft? 
 2. Als gij heden van mij gaat, zo zult gij twee mannen vinden bij het graf van Rachel, aan de landpale van Benjamin, te Zelzah; die zullen tot u zeggen: De ezelinnen zijn gevonden, die gij zijt gaan zoeken, en zie, uw vader heeft de zaken der ezelinnen verlaten, en hij is bekommerd voor ulieden, zeggende: Wat zal ik om mijn zoon doen? 
 3. Als gij u van daar en verder aan begeeft, en zult komen tot aan Elon-thabor, daar zullen u drie mannen vinden, opgaande tot God naar Beth-el; een, dragende drie bokjes, en een, dragende drie bollen broods, en een, dragende een fles wijn. 

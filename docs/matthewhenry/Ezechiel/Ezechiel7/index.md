@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 7
+
 1. DAARNA geschiedde het woord des HEEREN tot mij, zeggende:
 2. Verder, gij mensenkind, zo zegt de Heere HEERE, van het land Israëls: Het einde is er; het einde is gekomen over de vier hoeken des lands.
 3. Nu is het einde over u; want Ik zal Mijn toorn tegen u zenden, en Ik zal u richten naar uw wegen, en Ik zal op u brengen al uw gruwelen.

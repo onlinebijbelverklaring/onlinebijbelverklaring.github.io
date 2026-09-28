@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 38
+
 1. IN die dagen werd Hizkía krank tot stervens toe; en de profeet Jesaja, de zoon van Amoz, kwam tot hem en zeide tot hem: Alzo zegt de HEERE: Geef bevel aan uw huis, want gij zult sterven, en niet leven.
 2. Toen keerde Hizkía zijn aangezicht om naar den wand, en hij bad tot den HEERE.
 3. En hij zeide: Och HEERE, gedenk toch dat ik voor Uw aangezicht in waarheid en met een volkomen hart gewandeld en wat goed in Uw ogen is, gedaan heb. En Hizkía weende gans zeer.

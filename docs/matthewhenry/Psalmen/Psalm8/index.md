@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 8
+
 1. EEN psalm van David, voor den opperzangmeester, op de Gittith.
 2. O HEERE, onze Heere, hoe heerlijk is Uw Naam op de ganse aarde! Gij, Die Uw majesteit gesteld hebt boven de hemelen.
 3. Uit den mond der kinderkens en der zuigelingen hebt Gij sterkte gegrondvest om Uwer tegenpartijen wil; om den vijand en wraakgierige te doen ophouden.

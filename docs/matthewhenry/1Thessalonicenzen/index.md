@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Thessalonicenzen
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE EERSTE BRIEF VAN DE APOSTEL PAULUS AAN DE THESSALONICENSEN
 
 Thessalonica was eertijds de hoofdstad van Macedonië. Het heet nu Saloniki, en is de meestbevolkte stad en een van de voornaamste handelssteden in den Levant. De apostel, verhinderd zijnde in zijn voornemen om in het zogenaamde Klein-Azië te gaan, en op buitengewone wijze geroepen om het Evangelie in Macedonië te verkondigen, Handelingen 16:9, 10, begaf zich in gehoorzaamheid aan Gods bevel van Troas naar Samotrace, vandaar naar Neápolis, en zo naar Filippi, waar zijn bediening zeer gezegend werd. Hij ondervond daar echter harde behandeling, werd met zijn deelgenoot in arbeid en gevaren, Silas, in de gevangenis geworpen, maar wonderlijk daaruit verlost. Daarna vertroostten zijde broederen en reisden verder. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 14
+
 1. JAAGT de liefde na, en ijvert om de geestelijke gaven, maar meest dat gij moogt profeteren.
 2. Want die een vreemde taal spreekt, spreekt niet den mensen, maar Gode; want niemand verstaat het, doch met den geest spreekt hij verborgenheden.
 3. Maar die profeteert, spreekt den mensen stichting en vermaning en vertroosting.

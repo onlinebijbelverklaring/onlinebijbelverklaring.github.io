@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 20
+
 1. EN ik zag een Engel afkomen uit den hemel, hebbende den sleutel des afgronds en een grote keten in Zijn hand.
 2. En Hij greep den draak, de oude slang, welke is de duivel en satanas, en bond hem duizend jaren;
 3. En wierp hem in den afgrond, en sloot hem daarin, en verzegelde dien boven hem, opdat hij de volken niet meer verleiden zou, totdat de duizend jaren zouden geëindigd zijn. En daarna moet hij een kleinen tijd ontbonden worden.

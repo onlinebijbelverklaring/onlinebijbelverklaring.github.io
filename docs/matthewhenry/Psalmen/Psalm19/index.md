@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 19
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. De hemelen vertellen Gods eer, en het uitspansel verkondigt Zijner handen werk.
 3. De dag aan den dag stort overvloediglijk spraak uit, en de nacht aan den nacht toont wetenschap.

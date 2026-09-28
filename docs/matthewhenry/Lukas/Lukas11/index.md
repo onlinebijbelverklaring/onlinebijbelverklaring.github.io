@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 11
+
 1. EN het geschiedde toen Hij in een zekere plaats was biddende, als Hij ophield, dat een van Zijn discipelen tot Hem zeide: Heere, leer ons bidden, gelijk ook Johannes zijn discipelen geleerd heeft.
 2. En Hij zeide tot hen: Wanneer gij bidt, zo zegt: Onze Vader, Die in de hemelen zijt, Uw Naam worde geheiligd. Uw Koninkrijk kome. Uw wil geschiede, gelijk in den hemel, alzo ook op de aarde.
 3. Geef ons elken dag ons dagelijks brood.

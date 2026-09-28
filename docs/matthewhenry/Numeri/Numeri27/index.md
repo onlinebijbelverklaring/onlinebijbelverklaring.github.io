@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 27
+
 1. Toen naderden de dochteren van Zelafead, de zoon van Hefer, de zoon van Gilead, de zoon van Machir, de zoon van Manasse, onder de geslachten van Manasse, de zoon van Jozef (en dit zijn de namen zijner dochteren: Machla, Noa, en Hogla, en Milka, en Tirza); 
 2. En zij stonden voor het aangezicht van Mozes, en voor het aangezicht van Eleazar, de priester, en voor het aangezicht van de oversten, en van de ganse vergadering, aan de deur van de tent der samenkomst, zeggende: 
 3. Onze vader is gestorven in de woestijn, en hij is niet geweest in het midden der vergadering dergenen, die zich tegen de HEERE vergaderd hebben in de vergadering van Korach; maar hij is in zijn zonde gestorven, en had geen zonen. 

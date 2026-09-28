@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 11
+
 1. Als Israël een kind was, toen heb Ik hem liefgehad, en Ik heb Mijn zoon uit Egypte geroepen. 
 2. Maar gelijk zij henlieden riepen, alzo gingen zij van hun aangezicht weg; zij offerden de Baals, en rookten de gesnedenen beelden. 
 3. Ik nochtans leerde Efraïm gaan; Hij nam ze op Zijn armen, maar zij bekenden niet, dat Ik ze genas. 

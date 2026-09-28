@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 19
+
 
 ## I. Vers 1-15
 

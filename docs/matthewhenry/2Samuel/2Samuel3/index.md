@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 3
+
 1. En er was een lange krijg tussen het huis van Saul, en tussen het huis van David. Doch David ging en werd sterker; maar die van het huis van Saul gingen en werden zwakker. 
 2. En David werden zonen geboren te Hebron. Zijn eerstgeborene nu was Amnon, van Ahinoam, de Jizreelietische; 
 3. En zijn tweede was Chileab, van Abigaïl, de huisvrouw van Nabal, de Karmeliet; en de derde, Absalom, de zoon van Maacha, de dochter van Thalmai, koning van Gesur; 

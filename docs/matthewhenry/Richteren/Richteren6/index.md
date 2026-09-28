@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 6
+
 1. Maar de kinderen Israëls deden, dat kwaad was in de ogen des HEEREN; zo gaf hen de HEERE in de hand der Midianieten, zeven jaren. 
 2. Als nu de hand der Midianieten sterk werd over Israël, maakten zich de kinderen Israëls, vanwege de Midianieten, de holen, die in de bergen zijn, en de spelonken, en de vestingen. 
 3. want het geschiedde, als Israël gezaaid had, zo kwamen de Midianieten op, en de Amalekieten, en die van het oosten kwamen ook op tegen hen. 

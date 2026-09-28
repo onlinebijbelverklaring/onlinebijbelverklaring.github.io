@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 14
+
 1. HET woord des HEEREN dat tot Jeremía geschied is over de zaken der grote droogte.
 2. Juda treurt en haar poorten zijn verzwakt; zij zijn in het zwart gekleed ter aarde toe; en Jeruzalems geschrei klimt op.
 3. En hun voortreffelijken zenden hun kleinen naar water; zij komen tot de grachten, zij vinden geen water, zij komen met hun vaten ledig weder; zij zijn beschaamd, ja, worden schaamrood en bedekken hun hoofd.

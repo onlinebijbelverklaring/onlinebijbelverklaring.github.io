@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 23
+
 1. WEE den herders die de schapen Mijner weide ombrengen en verstrooien, spreekt de HEERE.
 2. Daarom zegt de HEERE, de God Israëls, alzo van de herders die Mijn volk weiden: Gijlieden hebt Mijn schapen verstrooid en hebt hen verdreven en hebt hen niet bezocht; zie, Ik zal over u bezoeken de boosheid uwer handelingen, spreekt de HEERE.
 3. En Ik zal het overblijfsel Mijner schapen Zelf vergaderen uit al de landen waarheen Ik hen verdreven heb; en Ik zal hen wederbrengen tot hun kooien, en zij zullen vruchtbaar zijn en vermenigvuldigen.

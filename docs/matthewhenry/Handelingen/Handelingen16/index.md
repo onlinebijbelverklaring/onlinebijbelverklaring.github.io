@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 16
+
 1. EN hij kwam te Derbe en Lystre. En zie, aldaar was een zeker discipel met name Timótheüs, zoon van een gelovige Joodse vrouw, maar van een Grieksen vader;
 2. Welken goede getuigenis gegeven werd van de broederen te Lystre en Ikónium.
 3. Dezen wilde Paulus dat met hem zou reizen; en hij nam en besneed hem, om der Joden wil die in die plaatsen waren; want zij kenden allen zijn vader, dat hij een Griek was.

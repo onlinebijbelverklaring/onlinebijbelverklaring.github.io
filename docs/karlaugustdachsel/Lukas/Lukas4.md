@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 4
+
 JEZUS WORDT VERZOCHT, PREDIKT EN DOET WONDEREN
 
 ## III. Vers 1-13 

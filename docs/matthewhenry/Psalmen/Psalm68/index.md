@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 68
+
 1. EEN psalm, een lied van David, voor den opperzangmeester.
 2. God zal opstaan, Zijn vijanden zullen verstrooid worden, en Zijn haters zullen van Zijn aangezicht vlieden.
 3. Gij zult hen verdrijven, gelijk rook verdreven wordt; gelijk was voor het vuur smelt, zullen de goddelozen vergaan van Gods aangezicht.

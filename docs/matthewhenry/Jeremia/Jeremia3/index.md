@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 3
+
 1. MEN zegt: Zo een man zijn huisvrouw verlaat, en zij gaat van hem en wordt eens anderen mans, zal hij ook tot haar nog wederkeren? Zou datzelve land niet grotelijks ontheiligd worden? Gij nu hebt met vele boeleerders gehoereerd, keer nochtans weder tot Mij, spreekt de HEERE.
 2. Hef uw ogen op naar de hoge plaatsen, en zie toe, waar zijt gij niet beslapen? Gij hebt voor hen gezeten aan de wegen, als een Arabier in de woestijn; alzo hebt gij het land ontheiligd met uw hoererijen en met uw boosheid.
 3. Daarom zijn de regendroppelen ingehouden en er is geen spade regen geweest. Maar gij hebt een hoerenvoorhoofd, gij weigert schaamrood te worden.

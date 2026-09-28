@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 4
+
 1. VOORTS dan, broeders, wij bidden en vermanen u in den Heere Jezus, gelijk gij van ons ontvangen hebt hoe gij moet wandelen en Gode behagen, dat gij daarin meer overvloedig wordt.
 2. Want gij weet wat bevelen wij u gegeven hebben door den Heere Jezus.
 3. Want dit is de wil Gods, uw heiligmaking: dat gij u onthoudt van de hoererij;

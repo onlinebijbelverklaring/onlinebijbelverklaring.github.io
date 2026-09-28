@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 4
+
 1. En Boaz ging op in de poort, en zette zich aldaar en ziet, de losser, van welken Boaz gesproken had, ging voorbij; zo zeide hij: Wijk herwaarts, zet u hier, gij, zulk een! En hij week derwaarts, en zette zich. 
 2. En hij nam tien mannen van de oudsten der stad, en zeide: Zet u hier; en zij zetten zich. 
 3. Toen zeide hij tot dien losser: Het stuk lands, dat van onzen broeder Elimelech was, heeft Naomi, die uit der Moabieten land wedergekomen is, verkocht; 

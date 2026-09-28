@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 5
+
 1. DE koning Bélsazar maakte een groten maaltijd voor zijn duizend geweldigen, en hij dronk wijn voor die duizend.
 2. Als Bélsazar den wijn geproefd had, zeide hij dat men de gouden en zilveren vaten voorbrengen zou, die zijn vader Nebukadnézar uit den tempel die te Jeruzalem geweest was, weggevoerd had; opdat de koning en zijn geweldigen, zijn vrouwen en zijn bijwijven uit dezelve dronken.
 3. Toen bracht men voor de gouden vaten die men uit den tempel van het huis Gods, die te Jeruzalem geweest was, weggevoerd had; en de koning en zijn geweldigen, zijn vrouwen en zijn bijwijven dronken daaruit.

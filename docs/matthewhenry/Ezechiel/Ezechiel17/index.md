@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 17
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, stel een raadsel voor en gebruik een gelijkenis tot het huis Israëls,
 3. En zeg: Alzo zegt de Heere HEERE: Een arend die groot was, groot van vleugelen, lang van vlerken, vol van vederen, die verscheidene verven had, kwam op den Libanon en nam den oppersten tak van een ceder.

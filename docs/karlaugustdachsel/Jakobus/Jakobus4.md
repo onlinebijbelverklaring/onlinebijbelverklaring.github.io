@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 4
+
 WAARSCHUWING TEGEN ZONDEN
 
 ***1. Vanwaar komen strijd en gevechten onder u? Komen zij niet beide, zowel die toestand van haat als het uitbarsten van de vijandelijkheden ervan, voort uit uw wellusten, a) die in uw leden strijd voeren, "te velde liggen, " hun leger hebben opgeslagen? (Rom. 7: 23).***

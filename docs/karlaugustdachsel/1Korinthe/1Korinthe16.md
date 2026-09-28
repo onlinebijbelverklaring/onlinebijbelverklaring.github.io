@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 16
+
 OVER HET INZAMELEN VAN GIFTEN VOOR DE BEHOEFTIGE CHRISTENEN TE JERUZALEM
 
 E. Het slot van de brief geeft een tijdelijke en plaatselijke verordening, die zich met juistheid aansluit aan het slotvers van het vorige hoofdstuk en waarmee weer de aankondiging van het reisplan, zoals Paulus dat in zijn gedachte had, in zoverre in verband staat, als toch de gemeente moet weten, wanneer zij hem kon verwachten, om zich daarnaar te regelen (vs. 1-9). Daarop volgen vermaningen over het gedrag van de Corinthiërs tegenover Timotheus, die reeds tot hen is gezonden en mededelingen daarover, waarom Apollos, hoewel de gemeente hem graag bij zich gehad had, niet mede onder de overbrengers van de brief behoorde. Die mededelingen liggen indirect verborgen in het woord, dat onmiddellijk volgt, waarmee de apostel bij de Corinthiërs aandringt op volharden in het geloof en op het wandelen in de liefde (vs. 10-14). Al is het dat Apollos niet komt, zijn het toch anderen en wel leden van de gemeente, die zich over haar zeer verdienstelijk hebben gemaakt, die de brief overbrengen, de zodanige, die ook nu weer, terwijl zij bij Paulus zijn geweest, de Corinthiërs een grote dienst hebben bewezen en daarom door hen in bijzondere eer moeten worden gehouden (vs. 15-18). Het eigenlijk slot van de hele zendbrief bestaat, zoals gewoonlijk, uit groeten, die de schrijver heeft over te brengen en aan welke hij vervolgens de zijne toevoegt. Hij doet het echter hier met bijzondere ernst en in een eigenaardige vorm (vs. 19-24).

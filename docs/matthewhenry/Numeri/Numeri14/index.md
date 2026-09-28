@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 14
+
 1. Toen verhief zich de gehele vergadering, en zij hieven hun stem op, en het volk weende in dienzelven nacht. 
 2. En al de kinderen Israëls murmureerden tegen Mozes en tegen Aäron; en de gehele vergadering zeide tot hen: Och, of wij in Egypteland gestorven waren! of, och, of wij in deze woestijn gestorven waren! 
 3. En waarom brengt ons de HEERE naar dat land, dat wij door het zwaard vallen, en onze vrouwen, en onze kinderkens ten roof worden? Zou het ons niet goed zijn naar Egypte weder te keren? 

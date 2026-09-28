@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 13
+
 1. EN te dien dage Jezus uit het huis gegaan zijnde, zat bij de zee.
 2. En tot Hem vergaderden vele scharen, zodat Hij in een schip ging en nederzat; en al de schare stond op den oever.
 3. En Hij sprak tot hen vele dingen door gelijkenissen, zeggende: Zie, een zaaier ging uit om te zaaien.

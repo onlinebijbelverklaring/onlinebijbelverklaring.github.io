@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 123
+
 1. EEN lied Hammaäloth. Ik hef mijn ogen op tot U, Die in de hemelen zit.
 2. Zie, gelijk de ogen der knechten zijn op de hand hunner heren, gelijk de ogen der dienstmaagd zijn op de hand harer vrouwe, alzo zijn onze ogen op den HEERE onzen God, totdat Hij ons genadig zij.
 3. Zijt ons genadig, o HEERE, zijt ons genadig, want wij zijn der verachting veel te zat.

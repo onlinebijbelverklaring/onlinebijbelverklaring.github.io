@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 10
+
 1. EN vandaar opgestaan zijnde, ging Hij naar de landpalen van Judéa, door de overzijde van de Jordaan; en de scharen kwamen wederom tezamen bij Hem, en gelijk Hij gewoon was, leerde Hij hen wederom.
 2. En de farizeeën tot Hem komende, vraagden Hem of het een man geoorloofd is zijn vrouw te verlaten, Hem verzoekende.
 3. Maar Hij antwoordende zeide tot hen: Wat heeft Mozes u geboden?

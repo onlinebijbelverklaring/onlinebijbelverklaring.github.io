@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 50
+
 1. EEN psalm van Asaf. De God der goden, de HEERE spreekt, en roept de aarde, van den opgang der zon tot aan haar ondergang.
 2. Uit Sion, de volkomenheid der schoonheid, verschijnt God blinkende.
 3. Onze God zal komen en zal niet zwijgen; een vuur voor Zijn aangezicht zal verteren, en rondom Hem zal het zeer stormen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 13
+
 1. En David hield raad met de oversten der duizenden en der honderden, en met alle vorsten. 
 2. En David zeide tot de ganse gemeente van Israël: Indien het ulieden goeddunkt, en van de HEERE, onzen God, te zijn, laat ons ons uitbreiden, laat ons zenden aan onze overige broeders, in alle landen van Israël, en de priesters en Levieten, die met hen zijn in de steden, met haar voorsteden, opdat zij tot ons vergaderd worden. 
 3. En laat ons de ark onzes Gods tot ons wederhalen, want wij hebben ze in de dagen van Saul niet gezocht. 

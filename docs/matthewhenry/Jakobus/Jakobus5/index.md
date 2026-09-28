@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 5
+
 1. WELAAN nu, gij rijken, weent en huilt over uw ellendigheden, die over u komen.
 2. Uw rijkdom is verrot, en uw klederen zijn van de motten gegeten geworden;
 3. Uw goud en uw zilver is verroest, en hun roest zal u zijn tot een getuigenis, en zal uw vlees als een vuur verteren; gij hebt schatten vergaderd in de laatste dagen.

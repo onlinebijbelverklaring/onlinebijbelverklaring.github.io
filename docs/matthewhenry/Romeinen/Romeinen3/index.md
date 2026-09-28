@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 3
+
 1. WELK is dan het voordeel van den Jood? Of welke is de nuttigheid der besnijdenis?
 2. Veel in alle manier. Want dit is wel het eerste, dat hun de woorden Gods zijn toebetrouwd.
 3. Want wat is het, al zijn sommigen ongelovig geweest? Zal hun ongelovigheid het geloof Gods tenietdoen?

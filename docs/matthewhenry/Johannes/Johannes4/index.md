@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 4
+
 1. ALS dan de Heere verstond, dat de farizeeën gehoord hadden dat Jezus meer discipelen maakte en doopte dan Johannes
 2. (Hoewel Jezus Zelf niet doopte, maar Zijn discipelen),
 3. Zo verliet Hij Judéa en ging wederom heen naar Galiléa.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 19
+
 1. EN het geschiedde terwijl Apollos te Korinthe was, dat Paulus de bovenste delen des lands doorreisd hebbende te Éfeze kwam; en enige discipelen aldaar vindende,
 2. Zeide hij tot hen: Hebt gij den Heiligen Geest ontvangen als gij geloofd hebt? En zij zeiden tot hem: Wij hebben zelfs niet gehoord of er een Heilige Geest is.
 3. En hij zeide tot hen: Waarin zijt gij dan gedoopt? En zij zeiden: In den doop van Johannes.

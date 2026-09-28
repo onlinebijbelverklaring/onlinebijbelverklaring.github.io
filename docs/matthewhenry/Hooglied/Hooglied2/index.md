@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 2
+
 1. IK ben een Roos van Saron, een Lelie der dalen.
 2. Gelijk een lelie onder de doornen, alzo is Mijn vriendin onder de dochteren.
 3. Als een appelboom onder de bomen des wouds, zo is mijn Liefste onder de zonen; ik heb groten lust in Zijn schaduw, en zit eronder, en Zijn vrucht is mijn gehemelte zoet.

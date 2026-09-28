@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 34
+
 1. NADERT, gij heidenen, om te horen, en gij volken, luistert toe; de aarde hore en haar volheid, de wereld en alles wat daaruit voortkomt.
 2. Want de verbolgenheid des HEEREN is over al de heidenen, en grimmigheid over al hun heir; Hij heeft hen verbannen, Hij heeft hen ter slachting overgegeven.
 3. En hun verslagenen zullen weggeworpen worden, en van hun dode lichamen zal hun stank opgaan; en de bergen zullen smelten van hun bloed.

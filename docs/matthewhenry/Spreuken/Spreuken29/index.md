@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 29
+
 1. EEN man die dikwijls bestraft zijnde, den nek verhardt, zal schielijk verbroken worden, zodat er geen genezen aan zij.
 2. Als de rechtvaardigen groot worden, verblijdt zich het volk; maar als de goddeloze heerst, zucht het volk.
 3. Een man die de wijsheid bemint, verblijdt zijn vader; maar die een metgezel der hoeren is, brengt het goed door.

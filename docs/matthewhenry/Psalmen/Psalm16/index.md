@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 16
+
 1. EEN gouden kleinood van David. Bewaar mij, o God, want ik betrouw op U.
 2. O mijn ziel, gij hebt tot den HEERE gezegd: Gij zijt de Heere; mijn goedheid raakt niet tot U,
 3. Maar tot de heiligen die op de aarde zijn, en de heerlijken, in dewelke al mijn lust is.

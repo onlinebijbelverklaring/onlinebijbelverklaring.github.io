@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 18
+
 1. WEE het land dat schaduwachtig is aan de frontieren, dat aan de zijde der rivieren van Morenland is;
 2. Dat gezanten zendt over de zee, en in schepen van biezen op de wateren. Gaat heen, gij snelle boden, tot een volk dat getrokken is en geplukt, tot een volk dat vreselijk is van dat het was en voortaan; een volk van regel en regel, en van vertreding, welks land de rivieren beroven.
 3. Alle gij ingezetenen der wereld en gij inwoners der aarde, als men de banier zal oprichten op de bergen, zult gijlieden het zien, en als de bazuin zal blazen, zult gijlieden het horen.

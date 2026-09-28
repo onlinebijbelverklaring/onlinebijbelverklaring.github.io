@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 29
+
 JACOB VERKRIJGT VOOR EEN DIENST VAN VEERTIEN JAAR TWEE VROUWEN.
 
 ## I Vers 1-14

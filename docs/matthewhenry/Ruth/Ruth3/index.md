@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 3
+
 1. En Naomi, haar schoonmoeder, zeide tot haar: Mijn dochter! zoude ik u geen rust zoeken, dat het u welga? 
 2. Nu dan, is niet Boaz, met wiens maagden gij geweest zijt, van onze bloedvriendschap? Zie, hij zal dezen nacht gerst op de dorsvloer wannen. 
 3. Zo baad u, en zalf u, en doe uw klederen aan, en ga af naar de dorsvloer; maar maak u de man niet bekend, totdat hij geeindigd zal hebben te eten en te drinken. 

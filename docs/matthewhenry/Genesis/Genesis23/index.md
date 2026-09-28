@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 23
+
 1. En het leven van Sara was honderd zeven en twintig jaren; dit waren de jaren des levens van Sara. 
 2. En Sara stierf te Kiriath-arba, dat is Hebron, in het land Kanaän; en Abraham kwam om Sara te beklagen, en haar te bewenen. 
 3. Daarna stond Abraham op van het aangezicht van zijner dode, en hij sprak tot de zonen Heths, zeggende: 

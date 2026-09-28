@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 24
+
 1. DE HEERE deed mij zien, en zie, er waren twee vijgenkorven, gezet voor den tempel des HEEREN; nadat Nebukadrézar, koning van Babel, gevankelijk had weggevoerd Jechónia, den zoon van Jójakim, den koning van Juda, mitsgaders de vorsten van Juda, en de timmerlieden en de smeden, van Jeruzalem, en hen te Babel gebracht had.
 2. In den enen korf waren zeer goede vijgen, als de eerste rijpe vijgen zijn; maar in den anderen korf waren zeer boze vijgen, die vanwege de boosheid niet konden gegeten worden.
 3. En de HEERE zeide tot mij: Wat ziet gij, Jeremía? En ik zeide: Vijgen; de goede vijgen zijn zeer goed, en de boze zeer boos, die vanwege de boosheid niet kunnen gegeten worden.

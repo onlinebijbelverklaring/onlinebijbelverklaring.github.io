@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 24
+
 1. Wanneer een man een vrouw zal genomen en die getrouwd hebben, zo zal het geschieden, indien zij geen genade zal vinden in zijn ogen, omdat hij iets schandelijks aan haar gevonden heeft, dat hij haar een scheidbrief zal schrijven, en in haar hand geven, en ze laten gaan uit zijn huis. 
 2. Zo zij dan, uit zijn huis uitgegaan zijnde, zal henengaan en een anderen man ter vrouwe worden, 
 3. En deze laatste man haar gehaat, en haar een scheidbrief geschreven, en in haar hand gegeven, en haar uit zijn huis zal hebben laten gaan; of als deze laatste man, die ze voor zich tot een vrouw genomen heeft, zal gestorven zijn; 

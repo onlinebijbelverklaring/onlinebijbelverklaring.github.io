@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 2
+
 1. Alzo zijn volbracht de hemel en de aarde, en al hun heir. 
 2. Als nu God op de zevenden dag volbracht had Zijn werk, dat Hij gemaakt had, heeft Hij gerust op de zevenden dag van al Zijn werk, dat Hij gemaakt had. 3. En God heeft de zevenden dag gezegend, en dien geheiligd; omdat Hij op denzelven gerust heeft van al Zijn werk, hetwelk God geschapen had, om te volmaken. 
 4. Dit zijn de geboorten des hemels en der aarde, als zij geschapen werden; ten dage als de HEERE God de aarde en de hemel maakte. 

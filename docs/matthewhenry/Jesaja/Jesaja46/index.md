@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 46
+
 1. BEL is gekromd, Nebo wordt nedergebogen, hun afgoden zijn geworden voor de dieren en voor de beesten; uw opgeladen pakken zijn een last voor de vermoeide beesten.
 2. Tezamen zijn zij nedergebogen, zij zijn gekromd, zij hebben den last niet kunnen redden, maar zij zelven zijn in de gevangenis gegaan.
 3. Hoort naar Mij, o huis Jakobs, en het ganse overblijfsel van het huis Israëls, gij die van Mij gedragen zijt van den buik aan, en opgenomen van de baarmoeder af.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 10
+
 1. Na Abimelech nu stond op, om Israël te behouden, Thola, een zoon van Pua, zoon van Dodo, een man van Issaschar; en hij woonde te Samir, op het gebergte van Efraim. 
 2. En hij richtte Israël drie en twintig jaren; en hij stierf, en werd begraven te Samir. 
 3. En na hem stond op Jair, de Gileadiet; en hij richtte Israël twee en twintig jaren. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 149
+
 1. HALLELUJAH. Zingt den HEERE een nieuw lied; Zijn lof zij in de gemeente Zijner gunstgenoten.
 2. Dat Israël zich verblijde in Dengene Die hem gemaakt heeft; dat de kinderen Sions zich verheugen over hun Koning.
 3. Dat zij Zijn Naam loven op de fluit; dat zij Hem psalmzingen op de trommel en harp.

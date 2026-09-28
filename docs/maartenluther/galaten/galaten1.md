@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 1
+
 ## Vers 1
 ***Paulus, een apostel, geroepen niet van mensen, noch door een mens, maar door Jezus Christus, en God, de Vader, Die Hem uit de doden opgewekt heeft.*** Terwijl wij nu de voorname Inhoud van deze Brief aan de Galaten opengelegd hebben, zullen wij vooraf laten gaan, alvorens tot de zaak zelf te komen, wat Paulus aanleiding gegeven heeft, om deze Brief te schrijven. Hij zelf had de zuivere Leer des Evangelies en van de Gerechtigheid des Geloofs geplant onder de Galaten. Maar terstond na zijn vertrek waren daarop ingedrongen valse Leraars, die alles, wat Paulus geplant en naar waarheid geleerd had, ondermijnd, en omver geworpen hebben. Want de satan kan anders niet doen, dan deze Leer heftig te bestrijden door geweld en bedrog; en hij rust ook niet, voordat hij die Leer onderdrukt, of door Tirannen of tenminste door dwaalzieke geesten die Leer te verderven, en eindelijk, in plaats van die Leer, zoekt hij, nochtans onder schijn van Godsvrucht, een valse en goddeloze leer aan de geruste en ronkende mensen op te dringen. En om deze oorzaak alleen, dat wij de Leer des Evangelies zuiver verkondigen, hebben wij heden ten dage de Duivel tot een (tegen-)partij, die tegen ons de woede van de wereld, en de aller- bitterste haat van de Onrechtzinnigen aanzet.
 

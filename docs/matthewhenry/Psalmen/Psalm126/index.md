@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 126
+
 1. EEN lied Hammaäloth. Als de HEERE de gevangenen Sions wederbracht, waren wij gelijk degenen die dromen.
 2. Toen werd onze mond vervuld met lachen, en onze tong met gejuich; toen zeide men onder de heidenen: De HEERE heeft grote dingen aan dezen gedaan.
 3. De HEERE heeft grote dingen bij ons gedaan; dies zijn wij verblijd.

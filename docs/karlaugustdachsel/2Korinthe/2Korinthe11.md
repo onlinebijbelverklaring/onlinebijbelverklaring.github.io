@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 11
+
 HET WERK DOOR PAULUS VERRICHT EN HET GEVAAR DOOR HEM DOORSTAAN BIJ DE STICHTING VAN DE GEMEENTE
 
 ### b. Vers 1-18

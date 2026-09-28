@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 43
+
 1. TOEN leidde Hij mij tot de poort, de poort die den weg naar het oosten zag.
 2. En zie, de heerlijkheid van den God Israëls kwam van den weg naar het oosten; en Zijn stem was als het geruis van vele wateren, en de aarde werd verlicht van Zijn heerlijkheid.
 3. En alzo was de gedaante van het gezicht dat ik zag, gelijk het gezicht dat ik gezien had toen ik kwam om de stad te verderven; en het waren gezichten als het gezicht dat ik gezien had aan de rivier Chebar; en ik viel op mijn aangezicht.

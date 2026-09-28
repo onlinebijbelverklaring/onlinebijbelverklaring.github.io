@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 8
+
 1. Alle geboden, die ik u heden gebiede, zult gij waarnemen om te doen, opdat gij leeft, en vermenigvuldigt, en inkomt, en het land erft, dat de HEERE aan uw vaderen gezworen heeft. 
 2. En gij zult gedenken aan al de weg, dien u de HEERE, uw God, deze veertig jaren in de woestijn geleid heeft; opdat Hij u verootmoedige, om u te verzoeken, om te weten, wat in uw hart was, of gij Zijn geboden zou houden, of niet. 
 3. En Hij verootmoedigde u, en liet u hongeren, en spijsde u met het Man, dat gij niet kendet, noch uw vaderen gekend hadden; opdat Hij u bekend maakte, dat de mens niet alleen van het brood leeft, maar dat de mens leeft van alles, wat uit des HEEREN mond uitgaat. 

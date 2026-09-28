@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 86
+
 1. EEN gebed van David. HEERE, neig Uw oor, verhoor mij; want ik ben ellendig en nooddruftig.
 2. Bewaar mijn ziel, want ik ben Uw gunstgenoot; o Gij, mijn God, verlos Uw knecht, die op U betrouwt.
 3. Zijt mij genadig, HEERE, want ik roep tot U den gansen dag.

@@ -1,7 +1,7 @@
 # Define your parameters
-$filePath = "markus.txt" # Path to your huge text file
+$filePath = "Zefanja.txt" # Path to your huge text file
 $delimiter = "--HOOFDSTUK--" # Your delimiter
-$baseOutputPath = "Markus" # Base path and filename for output files
+$baseOutputPath = "Zefanja" # Base path and filename for output files
 
 # Initialize variables
 $fileCounter = 0

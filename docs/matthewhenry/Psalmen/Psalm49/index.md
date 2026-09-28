@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 49
+
 1. EEN psalm, voor den opperzangmeester, onder de kinderen van Korach.
 2. Hoort dit, alle gij volken; neemt ter ore, alle inwoners der wereld,
 3. Zowel slechten als aanzienlijken, tezamen rijk en arm.

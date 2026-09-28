@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 12
+
 1. EN er werd een groot teken gezien in den hemel, namelijk een vrouw, bekleed met de zon, en de maan was onder haar voeten, en op haar hoofd een kroon van twaalf sterren;
 2. En zij was zwanger, en riep, barensnood hebbende, en zijnde in pijn om te baren.
 3. En er werd een ander teken gezien in den hemel; en zie, er was een grote rode draak, hebbende zeven hoofden en tien hoornen, en op zijn hoofden zeven koninklijke hoeden.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 24
+
 PAULUS DOOR DE JODEN VOOR DE LANDVOOGD FELIX AANGEKLAAGD
 
 ### d. Vers 1-27 

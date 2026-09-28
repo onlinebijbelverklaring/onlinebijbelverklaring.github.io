@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 9
+
 1. Abimelech nu, de zoon van Jerubbaäl, ging henen naar Sichem, tot de broeders zijner moeder; en hij sprak tot hen, en tot het ganse geslacht van het huis van de vader zijner moeder, zeggende: 
 2. Spreekt toch voor de oren van alle burgers van Sichem: Wat is u beter, dat zeventig mannen, alle zonen van Jerubbaäl, over u heersen, of dat een man over u heerse? Gedenkt ook, dat ik uw been en uw vlees ben. 
 3. Toen spraken de broeders zijner moeder van hem, voor de oren van alle burgers van Sichem, al dezelve woorden; en hun hart neigde zich naar Abimelech; want zij zeiden: Hij is onze broeder. 

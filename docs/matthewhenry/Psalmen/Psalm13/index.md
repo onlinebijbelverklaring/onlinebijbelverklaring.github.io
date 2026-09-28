@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 13
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. Hoelang, HEERE, zult Gij mij steeds vergeten? Hoelang zult Gij Uw aangezicht voor mij verbergen?
 3. Hoelang zal ik raadslagen voornemen in mijn ziel, droefenis in mijn hart bij dag? Hoelang zal mijn vijand over mij verhoogd zijn?

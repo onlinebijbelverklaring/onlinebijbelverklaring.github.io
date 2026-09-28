@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 132
+
 1. EEN lied Hammaäloth. O HEERE, gedenk aan David, aan al zijn lijden;
 2. Dat hij den HEERE gezworen heeft, den Machtige Jakobs gelofte gedaan heeft, zeggende:
 3. Zo ik in de tent mijns huizes inga, zo ik op de koets van mijn bed klimme!

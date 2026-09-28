@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 9
+
 1. Hoor, Israël! gij zult heden over de Jordaan gaan, dat gij inkomt, om volken te erven, die groter en sterker zijn dan gij; steden, die groot en tot in de hemel gesterkt zijn; 
 2. Een groot en lang volk, kinderen der Enakieten; die gij kent, en van welke gij gehoord hebt: Wie zou bestaan voor het aangezicht der kinderen van Enak? 
 3. Zo zult gij heden weten, dat de HEERE, uw God, Degene is, die voor uw aangezicht doorgaat, een verterend vuur: Die zal hen verdelgen, en Die zal hen voor uw aangezicht nederwerpen; en gij zult ze uit de bezitting verdrijven, en zult hen haastelijk te niet doen, gelijk als de HEERE tot u gesproken heeft. 

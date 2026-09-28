@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 3
+
 1. EN ik, broeders, kon tot u niet spreken als tot geestelijken, maar als tot vleselijken, als tot jonge kinderen in Christus.
 2. Ik heb u met melk gevoed, en niet met vaste spijze; want gij vermocht toen nog niet; ja, gij vermoogt ook nu nog niet;
 3. Want gij zijt nog vleselijk. Want dewijl onder u nijd is en twist en tweedracht, zijt gij niet vleselijk, en wandelt gij niet naar den mens?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 6
+
 1. EN Hij ging vandaar weg en kwam in Zijn vaderland, en Zijn discipelen volgden Hem.
 2. En als het sabbat geworden was, begon Hij in de synagoge te leren; en velen die Hem hoorden, ontzetten zich, zeggende: Vanwaar komen Dezen deze dingen? En wat wijsheid is dit, die Hem gegeven is, dat ook zulke krachten door Zijn handen geschieden?
 3. Is Deze niet de Timmerman, de Zoon van Maria, en de Broeder van Jakobus en van Joses, en van Judas en van Simon? En zijn Zijn zusters niet hier bij ons? En zij werden aan Hem geërgerd.

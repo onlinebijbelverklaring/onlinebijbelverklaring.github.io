@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 9
+
 1. En het geschiedde op de achtsten dag, dat Mozes riep Aäron en zijn zonen, en de oudsten van Israël; 
 2. En hij zeide tot Aäron: Neem u een kalf, een jong rund, ten zondoffer, en een ram ten brandoffer, die volkomen zijn; en breng ze voor het aangezicht des HEEREN. 
 3. Daarna spreek tot de kinderen Israëls, zeggende: Neemt een geitenbok ten zondoffer, en een kalf, en een lam, eenjarig, volkomen, ten brandoffer; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 54
+
 1. ZING vrolijk, gij onvruchtbare, die niet gebaard hebt, maak geschal met vrolijk gezang, en juich, die geen barensnood gehad hebt, want de kinderen der eenzame zijn meer dan de kinderen der getrouwde, zegt de HEERE.
 2. Maak de plaats uwer tent wijd, en dat men de gordijnen uwer woningen uitbreide, verhinder het niet; maak uw koorden lang en steek uw pinnen vast in.
 3. Want gij zult uitbreken ter rechter- en ter linkerhand; en uw zaad zal de heidenen erven, en zij zullen de verwoeste steden doen bewonen.

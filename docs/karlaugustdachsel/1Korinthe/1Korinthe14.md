@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 14
+
 VAN HET JUISTE GEBRUIK VAN DE TALEN EN DE PROFETIE
 
 #### c. Over de gave van het spreken met talen en haar waarde in vergelijking met de gave van de profetie.

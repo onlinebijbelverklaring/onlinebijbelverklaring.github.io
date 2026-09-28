@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 14
+
 1. In het tweede jaar van Joas, de zoon van Joahaz, de koning van Israël, werd Amazia koning, de zoon van Joas, de koning van Juda. 
 2. Vijf en twintig jaren was hij oud, toen hij koning werd, en regeerde negen en twintig jaren te Jeruzalem; en de naam zijner moeder was Joaddan van Jeruzalem. 
 3. En hij deed dat recht was in de ogen des HEEREN, nochtans niet als zijn vader David; hij deed naar alles, wat zijn vader Joas gedaan had. 

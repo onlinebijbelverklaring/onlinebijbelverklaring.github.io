@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 13
+
 1. EN als Hij uit den tempel ging, zeide een van Zijn discipelen tot Hem: Meester, zie, hoedanige stenen en hoedanige gebouwen!
 2. En Jezus antwoordende zeide tot hem: Ziet gij deze grote gebouwen? Er zal niet een steen op den anderen steen gelaten worden, die niet afgebroken zal worden.
 3. En als Hij gezeten was op den Olijfberg, tegenover den tempel, vraagden Hem Petrus en Jakobus en Johannes en Andréas alleen:

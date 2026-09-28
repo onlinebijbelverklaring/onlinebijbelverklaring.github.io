@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 4
+
 1. IK betuig dan voor God en den Heere Jezus Christus, Die de levenden en doden oordelen zal in Zijn verschijning en in Zijn Koninkrijk:
 2. Predik het Woord; houd aan tijdiglijk, ontijdiglijk; wederleg, bestraf, vermaan in alle lankmoedigheid en leer.
 3. Want er zal een tijd zijn wanneer zij de gezonde leer niet zullen verdragen; maar ketelachtig zijnde van gehoor, zullen zij zichzelven leraars opgaderen naar hun eigen begeerlijkheden,

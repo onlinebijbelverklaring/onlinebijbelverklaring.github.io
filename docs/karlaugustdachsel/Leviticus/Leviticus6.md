@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 6
+
 ***1. Verder sprak de HEERE, 1) tot Mozes, zeggende:***
 
 1) Mozes handelt nu niet over dwalingen, welke verzoend moeten worden, wanneer de zondaar uit onwetendheid gezondigd heeft, maar schrijft de wijze van verzoening voor, indien iemand vrijwillig en met overleg God heeft beledigd. Wat waardig is, om aangetekend te worden, opdat zij, die vrijwillig in de zonde waren vervallen niet zouden twijfelen, dat God hen genadig wil zijn, indien zij slechts tot het enige slachtoffer van Christus (in wie de waarheid van de wet van de schaduwdienst volkomen is vervuld) zich begaven. Men moet zich echter wel wachten, dat men ze, onder voorwendsel van de zachtmoedigheid en edelaardigheid van God, inwilligt. Want, meer dan recht is, zet de wellust van het vlees ons tot zondigen aan, zodat er niet zodanig een aanloksel bij behoeft te komen, noch is men vrij, door goddeloze minachting van God, de vrijheid om te zondigen daaruit zich aan te matigen, omdat God geneigd is te vergeven. De vrees voor God, die de slechte begeerlijkheden als een teugel bedwingt, regere in ons alzo, dat wij niet vrijwillig in zonde vallen en zijn mededogen verwekke veeleer een haat en afkeer van de zonde in onze harten, dan dat zij ons tot laatdunkendheid aanzet. Maar tegelijk moet men zich ijverig wachten, dat, indien wij ons God voorstellen als licht te verbidden voor de zonden, die wij vrijwillig begingen, de strengheid bij de heiligsten, wie dan ook, de hoop op behoud uitwisse. Want er zijn er heden ten dage nog wel krankzinnigen, welke de vergiffenis ontkennen voor allen, die door zwakheid van het vlees kwamen te vallen.

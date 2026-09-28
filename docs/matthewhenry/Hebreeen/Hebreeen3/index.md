@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 3
+
 1. HIEROM, heilige broeders, die der hemelse roeping deelachtig zijt, aanmerkt den Apostel en Hogepriester onzer belijdenis, Christus Jezus,
 2. Die getrouw is Dengene Die Hem gesteld heeft, gelijk ook Mozes in geheel Zijn huis was.
 3. Want Deze is zoveel meerder heerlijkheid waardig geacht dan Mozes, als degene die het huis gebouwd heeft, meerder eer heeft dan het huis.

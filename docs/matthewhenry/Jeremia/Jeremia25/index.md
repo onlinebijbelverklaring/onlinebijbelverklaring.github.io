@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 25
+
 1. HET woord dat tot Jeremía geschied is over het ganse volk van Juda, in het vierde jaar van Jójakim, zoon van Josía, koning van Juda (dat was het eerste jaar van Nebukadrézar, koning van Babel);
 2. Hetwelk de profeet Jeremía gesproken heeft tot het ganse volk van Juda, en tot al de inwoners van Jeruzalem, zeggende:
 3. Van het dertiende jaar van Josía, den zoon van Amon, den koning van Juda, tot op dezen dag toe (dit is het drie en twintigste jaar) is het woord des HEEREN tot mij geschied; en ik heb tot ulieden gesproken, vroeg op zijnde en sprekende, maar gij hebt niet gehoord.

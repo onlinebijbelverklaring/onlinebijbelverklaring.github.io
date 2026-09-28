@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 4
+
 OVER BEPROEVING VAN VALSE LERAARS EN BEOEFENING VAN DE LIEFDE JEGENS GOD EN DE NAASTE
 
 D. Is het derde hoofddeel, zoals wij reeds in de inleiding op het vorige stuk opmerkten, gewijd aan de Geest van God, dan is het te verwachten, dat deze nu ook als heersende toon in de verschillende onderafdelingen zal worden vernomen. Zo is het ook inderdaad; van de Geest van God is sprake in vs. 2, 13; 5: 6 vv. daardoor zullen wij bij het vormen van de verschillende onderafdelingen ons laten leiden.

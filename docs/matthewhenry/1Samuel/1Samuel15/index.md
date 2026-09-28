@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 15
+
 1. Toen zeide Samuël tot Saul: de HEERE heeft mij gezonden, dat ik u ten koning zalfde over Zijn volk, over Israël; hoor dan nu de stem van de woorden des HEEREN. 
 2. Alzo zegt de HEERE der heirscharen: Ik heb bezocht, hetgeen Amalek aan Israël gedaan heeft, hoe hij zich tegen hem gesteld heeft op de weg, toen hij uit Egypte opkwam. 
 3. Ga nu heen, en sla Amalek, en verban alles, wat hij heeft, en verschoon hem niet; maar dood van de man af tot de vrouw toe, van de kinderen tot de zuigelingen, van de ossen tot de schapen, van de kemelen tot de ezelen toe. 

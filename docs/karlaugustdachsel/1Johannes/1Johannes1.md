@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 1
+
 OVER CHRISTUS’ PERSOON, ZIJN GEOPENBAARD WOORD EN DE WARE BEKERING
 
 A. De Paulinische brieven dragen de naam van hun schrijver en hun lezers aan het hoofd, zo ook de brieven van Petrus, Jakobus, Judas en de tweede en derde brief van Johannes, al is dat opschrift niet altijd volledig. Onze brief, omstreeks het jaar 67 na Christus op Patmos geschreven, mist, evenals de brief aan de Hebreeën, ieder opschrift en adres, maar heeft toch wat de zo-even genoemde brief ook mist een zodanige inleiding, die de schrijver als getuige van de evangelische geschiedenis en de lezers als hoorders ook van zijn verkondiging van het Evangelie voorstelt. Hij stelt er het grootste belang in, dat zij het geschiedkundig geloof aan Jezus, de in het vlees verschenen Zoon van God, vasthouden, zich niet door valse leraars, die hen op een dwaalspoor proberen te brengen, van hun gemeenschap met de apostel van de Heere en daardoor ook van de gemeenschap met de Vader en Zijn Zoon Jezus Christus laten beroven. Zij moeten integendeel tot een vastheid komen, die tengevolge zal hebben, dat hun blijdschap volkomen is. Zo begint hij zijn schrijven met woorden, die in hun uitvoerigheid een herhaling van het reeds gezegde ten doel hebben, de getuigenis van de apostelen van Christus voor te stellen als berustend op een handtastelijke ervaring en daarom volkomen betrouwbaar.

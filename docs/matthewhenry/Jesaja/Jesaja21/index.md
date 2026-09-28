@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 21
+
 1. DE last der woestijn aan de zee. Gelijk de wervelwinden in het zuiden henen doorgaan, zal hij uit de woestijn komen, uit een vreselijk land.
 2. Een hard gezicht is mij te kennen gegeven: de trouweloze handelt trouwelooslijk en de verstoorder verstoort; trek op, o Elam, beleger ze, o Medië; Ik heb al haar zuchting doen ophouden.
 3. Daarom zijn mijn lendenen vol van grote krankheid, bange weeën hebben mij aangegrepen, gelijk de bange weeën van een die baart; ik krom mij van horen, ik word ontsteld van het aanzien.

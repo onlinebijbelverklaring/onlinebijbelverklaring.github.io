@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Titus 3
+
 1. VERMAAN hen dat zij den overheden en machten onderdanig zijn, dat zij hun gehoorzaam zijn, dat zij tot alle goed werk bereid zijn;
 2. Dat zij niemand lasteren, geen vechters zijn, maar bescheiden zijn, alle zachtmoedigheid bewijzende jegens alle mensen.
 3. Want ook wij waren eertijds onwijs, ongehoorzaam, dwalende, menigerlei begeerlijkheden en wellusten dienende, in boosheid en nijdigheid levende, hatelijk zijnde en elkander hatende.

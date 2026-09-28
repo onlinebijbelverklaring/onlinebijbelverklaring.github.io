@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 21
+
 1. Daarna zeide de HEERE tot Mozes: Spreek tot de priesters, de zonen van Aäron, en zeg tot hen: Over een dode zal een priester zich niet verontreinigen onder zijn volken. 
 2. Behalve over zijn bloedvriend, die hem ten naaste bestaat, over zijn moeder en over zijn vader, en over zijn zoon, en over zijn dochter, en over zijn broeder. 
 3. En over zijn zuster, die maagd is, hem nabestaande, die nog geen man toebehoord heeft; over die zal hij zich verontreinigen. 

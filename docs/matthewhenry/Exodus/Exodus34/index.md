@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 34
+
 1. Toen zeide de HEERE tot Mozes: Houw u twee stenen tafelen, gelijk de eerste waren, zo zal Ik op de tafelen schrijven dezelfde woorden, die op de eerste tafelen geweest zijn, die gij gebroken hebt. 
 2. En wees bereid tegen de morgenstond; dat gij in de morgenstond op de berg Sinai klimt, en stel u aldaar voor Mij, op de top des bergs. 
 3. En niemand zal met u opklimmen; dat er ook niemand gezien worde op de gansen berg; ook het kleine vee, noch runderen zullen tegenover dezen berg niet weiden. 

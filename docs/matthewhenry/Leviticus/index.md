@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Leviticus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET DERDE BOEK VAN MOZES GENAAMD LEVITICUS
 
 Er is in geheel dit boek van Leviticus niets historisch behalve het bericht, dat ons gegeven is van de wijding der priesterschap in hoofdstuk 8 en 9; van de straf van Nadab en Abihu door de hand Gods wegens het brengen van vreemd vuur, Hoofdstuk 10; en van de zoon van Selomith door de hand van de magistraat wegens Godslastering, Hoofdstuk 24. Al het overige van het boek wordt ingenomen door de wetten, hoofdzakelijk kerkelijke wetten, die God aan Israël heeft gegeven door de hand van Mozes, betreffende hun offers, hun spijs en drank en verschillende wassingen, en de andere eigenaardigheden door welke God zich dit volk heeft afgezonderd en het onderscheiden heeft van andere volken; en al deze dingen waren typen van toekomende goederen, die gerealiseerd en vervangen zijn door het Evangelie van Christus. 

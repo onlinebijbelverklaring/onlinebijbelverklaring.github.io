@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 11
+
 1. WEEST mijn navolgers, gelijkerwijs ook ik van Christus.
 2. En ik prijs u, broeders, dat gij in alles mijner gedachtig zijt, en de inzettingen behoudt gelijk ik die u overgegeven heb.
 3. Doch ik wil dat gij weet dat Christus het Hoofd is eens iegelijken mans, en de man het hoofd der vrouw, en God het Hoofd van Christus.

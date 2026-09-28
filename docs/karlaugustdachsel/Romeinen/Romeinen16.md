@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 16
+
 AANBEVELING VAN FEBE. LAATSTE GROET. WAARSCHUWING EN DANKZEGGING
 
 ***1. En ik beveel u de overbrengster van mijn brief, Febe, onze zuster in Christus, die een dienares of diacones is van de gemeente, die te Kenchreën is;***

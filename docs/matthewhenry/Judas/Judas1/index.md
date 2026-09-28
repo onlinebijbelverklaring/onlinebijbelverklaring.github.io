@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Judas 1
+
 1. Judas, een dienstknecht van Jezus Christus, en broeder van Jakobus, aan de geroepenen, die door God de Vader geheiligd zijn, en door Jezus Christus bewaard: 
 2. Barmhartigheid, en vrede, en liefde zij u vermenigvuldigd. 
 3. Geliefden, alzo ik alle naarstigheid doe om u te schrijven van de gemene zaligheid, zo heb ik noodzaak gehad aan u te schrijven en u te vermanen, dat gij strijdt voor het geloof, dat eenmaal de heiligen overgeleverd is. 

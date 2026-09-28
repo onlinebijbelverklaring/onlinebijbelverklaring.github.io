@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 14
+
 PAULUS’ TERUGKOMST NAAR ANTIOCHIE EN WAT ONDERWEG GEBEURDE
 
 ### c. Vers 1-28 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 6
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: Wanneer een man of een vrouw zich afgescheiden zal hebben, belovende de gelofte eens Nazireers, om zich de HEERE af te zonderen; 
 3. Van wijn en sterken drank zal hij zich afzonderen; wijnedik, en edik van sterken drank zal hij niet drinken, noch enige vochtigheid van druiven zal hij drinken, noch verse of gedroogde druiven eten. 

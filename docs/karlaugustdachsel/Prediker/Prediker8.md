@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 8
+
 ANDERE REGELEN OM GELUKKIG TE WORDEN, TE MIDDEN VAN DE IJDELHEID VAN DIT LEVEN.
 
 ***1. Hoe kostelijk en heerlijk is toch de goddelijke wijsheid, die alleen gelukkig maken en voor zonde en schande kan bewaren! Wie is gelijk de wijze? Niemand is hem gelijk; niets op aarde kan met de wijsheid, die ene kostbare parel is, vergeleken worden (Job 28: 18. Matth. 13: 45 vv). En wie weet de uitlegging der dingen, die ik van haar wil zeggen? De wijsheid des mensen verlicht zijn aangezicht, zodat blijdschap, geluk en tevredenheid daarop te lezen zijn, en de stuursheid, ruwheid zijns aangezichts, die de hem aangeboren zonde, zelfzucht en liefdeloosheid er op afdrukt, wordt daardoor veranderden weggenomen.***

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 8
+
 VERVOLGING VAN PAULUS. BEKERING VAN DE SAMARITANEN. VERKEERDHEID VAN SIMON DE TOVENAAR. BEKERING VAN DE MOORMAN.
 
 ***1. En a) Saulus, de jongeling die in hoofdst. 7: 58 genoemd werd, had stemde in met zijn dood (Joh. 16: 2).***

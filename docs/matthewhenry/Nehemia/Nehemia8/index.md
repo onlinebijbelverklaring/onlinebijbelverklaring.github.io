@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 8
+
 1. Als nu de zevende maand aankwam en de kinderen Israëls in hun steden waren,
 2. Zo verzamelde zich al het volk als een enig man op de straat voor de Waterpoort; en zij zeiden tot Ezra, den schriftgeleerde, dat hij het boek der wet van Mozes zou halen, die de HEERE Israël geboden had.
 3. En Ezra, de priester, bracht de wet voor de gemeente, beide mannen en vrouwen, en allen die verstandig waren om te horen, op den eersten dag der zevende maand.

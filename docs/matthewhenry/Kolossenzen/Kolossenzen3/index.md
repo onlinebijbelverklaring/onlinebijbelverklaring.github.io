@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 3
+
 1. INDIEN gij dan met Christus opgewekt zijt, zo zoekt de dingen die boven zijn, waar Christus is, zittende aan de rechterhand Gods.
 2. Bedenkt de dingen die boven zijn, niet die op de aarde zijn.
 3. Want gij zijt gestorven, en uw leven is met Christus verborgen in God.

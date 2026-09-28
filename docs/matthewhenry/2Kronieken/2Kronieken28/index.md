@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 28
+
 1. Achaz was twintig jaren oud, toen hij koning werd, en regeerde zestien jaren te Jeruzalem; en hij deed niet dat recht was in de ogen des HEEREN, gelijk zijn vader David; 
 2. Maar hij wandelde in de wegen der koningen van Israël; daartoe maakte hij ook gegotene beelden voor de Baals. 
 3. Dezelve rookte ook in het dal des zoons van Hinnom; en hij brandde zijn zonen in het vuur, naar de gruwelen der heidenen, die de HEERE voor het aangezicht der kinderen Israëls uit de bezitting verdreven had. 

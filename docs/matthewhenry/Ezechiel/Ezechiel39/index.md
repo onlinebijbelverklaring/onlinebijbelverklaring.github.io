@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 39
+
 1. VOORTS, gij mensenkind, profeteer tegen Gog, en zeg: Zo zegt de Heere HEERE: Zie, Ik wil aan u, o Gog, hoofdvorst van Mesech en Tubal.
 2. En Ik zal u omwenden, en een zeshaak in u slaan, en u optrekken uit de zijden van het noorden, en Ik zal u brengen op de bergen Israëls.
 3. Maar Ik zal uw boog uit uw linkerhand slaan, en Ik zal uw pijlen uit uw rechterhand doen vallen.

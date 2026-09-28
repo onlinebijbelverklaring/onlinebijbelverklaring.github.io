@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 2 Korinthe
+
 ## EEN VERKLARING PRACTISCHE OPMERKINGEN VAN DE TWEEDE BRIEF VAN DE APOSTEL PAULUS AAN DIE VAN CORINTHE.
 
 In zijn vorige brief had de apostel zijn voornemen te kennen gegeven om naar Corinthe te komen, wanneer hij Macedonië zou doorgegaan zijn, Hoofdstuk 16: 5, maar, door Gods bestel gedurig enige tijd daarin verhinderd zijnde, schreef hij hun deze tweede brief ongeveer een jaar na de eersten; en het schijnt dat daarvoor twee spoedeisende redenen bestonden. 

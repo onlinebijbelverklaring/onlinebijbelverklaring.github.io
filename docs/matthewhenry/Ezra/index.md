@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Ezra
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK EZRA
 
 De Joodse kerk heeft in dit boek een gans ander aanzien dan zij vroeger had; haar toestand is veel beter en aangenamer dan hij in Babel geweest is, maar staat toch verre achter bij wat hij vroeger was. Er is nu weer leven in de dorre beenderen, maar het volk is in de gestalte van een dienstknecht; het juk hunner gevangenschap is afgenomen, maar de tekenen ervan zijn nog op hun hals te bespeuren. Van koningen horen wij niet meer, de kroon is van hun hoofd gevallen. Met profeten zijn zij gezegend, om hen te leiden en te besturen bij hun wederherstelling in het land, maar na een wijle houdt de profetie onder hen op, totdat de grote Profeet en Zijn voorloper verschijnen. 

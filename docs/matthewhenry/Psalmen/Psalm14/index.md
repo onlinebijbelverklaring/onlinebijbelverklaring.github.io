@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 14
+
 1. EEN psalm van David, voor den opperzangmeester.
 De dwaas zegt in zijn hart: Er is geen God. Zij verderven het, zij maken het gruwelijk met hun werk; er is niemand die goed doet.
 2. De HEERE heeft uit den hemel nedergezien op de mensenkinderen, om te zien of iemand verstandig ware, die God zocht.

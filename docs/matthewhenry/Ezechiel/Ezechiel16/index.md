@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 16
+
 1. VERDER geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, maak Jeruzalem haar gruwelen bekend,
 3. En zeg: Alzo zegt de Heere HEERE tot Jeruzalem: Uw handelingen en uw geboorten zijn uit het land der Kanaänieten; uw vader was een Amoriet, en uw moeder een Hethitische.

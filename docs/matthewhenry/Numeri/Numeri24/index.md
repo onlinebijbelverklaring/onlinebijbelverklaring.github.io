@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 24
+
 1. Toen Bileam zag, dat het goed was in de ogen des HEEREN, dat hij Israël zegende, zo ging hij ditmaal niet heen, gelijk meermalen, tot de toverijen; maar hij stelde zijn aangezicht naar de woestijn. 
 2. Als Bileam zijn ogen ophief, en Israël zag, wonende naar zijn stammen, zo was de Geest van God op hem. 
 3. En hij hief zijn spreuk op, en zeide: Bileam, de zoon van Beor, spreekt, en de man, wien de ogen geopend zijn, spreekt! 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 22
+
 1. TOEN antwoordde Elifaz, de Themaniet, en zeide:
 2. Zal ook een man Gode profijtelijk zijn? Maar voor zichzelven zal de verstandige profijtelijk zijn.
 3. Is het voor den Almachtige nuttigheid, dat gij rechtvaardig zijt; of gewin, dat gij uw wegen volmaakt?

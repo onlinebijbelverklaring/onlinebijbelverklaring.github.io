@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 5
+
 1. WEES niet te snel met uw mond en uw hart haaste niet een woord voort te brengen voor Gods aangezicht; want God is in den hemel en gij zijt op de aarde; daarom, laat uw woorden weinig zijn.
 2. Want gelijk de droom komt door veel bezigheid, alzo de stem des zots door de veelheid der woorden.
 3. Wanneer gij een gelofte aan God zult beloofd hebben, stel niet uit dezelve te betalen, want Hij heeft geen lust aan de zotten; wat gij zult beloofd hebben, betaal het.

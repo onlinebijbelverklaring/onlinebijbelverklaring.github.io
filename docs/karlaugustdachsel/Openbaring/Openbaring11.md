@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 11
+
 ## III. Vers 1-14
 In het boekje van de engel, welks inhoud nu tot werkelijkheid wordt, wordt gehandeld over de Kerk van het Westen, zoals reeds boven is opgemerkt. Wij vernemen daar het nadere over haar vorming en roeping, haar vernietiging op het einde door het dier, dat uit de afgrond opstijgt en de daardoor teweeggebrachte wederaanneming van Israël, die aan henzelf, voor zover zij door het gericht heen kon worden gered, het leven uit de doden teweeg brengt, hetgeen volgens Rom. 11: 15; van deze wederaanneming de zegen voor de heidenen zal zijn.
 

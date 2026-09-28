@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 95
+
 1. KOMT, laat ons den HEERE vrolijk zingen, laat ons juichen den Rotssteen onzes heils.
 2. Laat ons Zijn aangezicht tegemoetgaan met lof, laat ons Hem juichen met psalmen.
 3. Want de HEERE is een groot God; ja, een groot Koning boven alle goden;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 7
+
 1. De kinderen van Issaschar waren Thola en Pua, Jasib en Simron; vier. 
 2. De kinderen van Thola nu waren Uzzi, en Refaja, en Jeriel, en Jachmai, en Jibsam, en Samuël; hoofden van de huizen hunner vaderen, van Thola, kloeke helden in hun geslachten; hun getal was in de dagen van David twee en twintig duizend en zeshonderd. 
 3. En de kinderen van Uzzi waren Jizrahja; en de kinderen van Jizrahja waren Michael, en Obadja, en Joel, en Jisia; deze vijf waren al te zamen hoofden. 

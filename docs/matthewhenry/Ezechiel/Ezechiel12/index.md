@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 12
+
 1. VERDER geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, gij woont in het midden van een wederspannig huis, dewelke ogen hebben om te zien en niet zien, oren hebben om te horen en niet horen, want zij zijn een wederspannig huis.
 3. Daarom, gij mensenkind, maak u gereedschap van vertrekking; en vertrek bij dag voor hun ogen; en gij zult vertrekken van uw plaats tot een andere plaats voor hun ogen; misschien zullen zij het merken, hoewel zij een wederspannig huis zijn.

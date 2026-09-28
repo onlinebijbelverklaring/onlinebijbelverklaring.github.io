@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 134
+
 1. EEN lied Hammaäloth. Zie, looft den HEERE, alle gij knechten des HEEREN; gij die allen nacht in het huis des HEEREN staat.
 2. Heft uw handen op naar het heiligdom, en looft den HEERE.
 3. De HEERE zegene u uit Sion, Hij Die den hemel en de aarde gemaakt heeft.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 13
+
 1. In het achttiende jaar van de koning Jerobeam, zo werd Abia koning over Juda. 
 2. Hij regeerde drie jaren te Jeruzalem; en de naam zijner moeder was Michaja, de dochter van Uriel, van Gibea; en er was krijg tussen Abia en tussen Jerobeam. 
 3. En Abia bond de strijd aan met een heir van strijdbare helden, vierhonderd duizend uitgelezen mannen; en Jerobeam stelde tegen hem de slagorde, met achthonderd duizend uitgelezen mannen, kloeke helden. 

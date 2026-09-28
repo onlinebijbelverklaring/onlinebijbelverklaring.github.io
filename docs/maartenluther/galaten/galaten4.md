@@ -1,3 +1,10 @@
+---
+icon: lucide/file-text
+---
+
+
+# Galaten 4
+
 ## Vers 1, 2
 ***Doch ik zeg, zo langen tijd als de erfgenaam een kind is, verschilt hij niets van een dienstknecht, hoewel hij een heer is van alles, maar hij is onder voogden en verzorgers, tot den tijd van de Vader tevoren gesteld.*** Gij ziet, hoe Paulus brandt en ijvert om de Galaten terug te roepen [en op de rechte weg weder te brengen], en met hoe krachtige argumenten hij die zaak behandelt; welke argumenten hij ontleend heeft aan de ondervinding, aan het voorbeeld van Abraham, aan de getuigenissen der Schrift, en aan de tijd en gelijkenissen; zodat hij dikwijls de ganse zaak wederom opnieuw schijnt aan te vatten. Want hierboven scheen hij de behandeling inzake de rechtvaardiging afgehandeld te hebben, daar de Apostel dit besluit vaststelde, dat de mensen alleen door het geloof voor God gerechtvaardigd worden. 
 

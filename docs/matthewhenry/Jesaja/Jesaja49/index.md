@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 49
+
 1. HOORT naar Mij, gij eilanden, en luistert toe, gij volken van verre. De HEERE heeft Mij geroepen van den buik aan, van Mijner moeders ingewand af heeft Hij Mijn Naam gemeld.
 2. En Hij heeft Mijn mond gemaakt als een scherp zwaard, onder de schaduw Zijner hand heeft Hij Mij bedekt; en Hij heeft Mij tot een zuiveren Pijl gesteld, in Zijn pijlkoker heeft Hij Mij verborgen.
 3. En Hij heeft tot Mij gezegd: Gij zijt Mijn Knecht, Israël, door Welken Ik verheerlijkt zal worden.

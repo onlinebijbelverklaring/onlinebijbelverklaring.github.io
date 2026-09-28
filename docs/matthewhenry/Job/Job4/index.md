@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 4
+
 1. TOEN antwoordde Elifaz, de Themaniet, en zeide:
 2. Zo wij een woord opnemen tegen u, zult gij verdrietig zijn? Nochtans, wie zal zich van woorden kunnen onthouden?
 3. Zie, gij hebt velen onderwezen, en gij hebt slappe handen gesterkt;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 115
+
 1. NIET ons, o HEERE, niet ons, maar Uw Naam geef ere, om Uwer goedertierenheid, om Uwer waarheid wil.
 2. Waarom zouden de heidenen zeggen: Waar is nu hun God?
 3. Onze God is toch in den hemel, Hij doet al wat Hem behaagt.

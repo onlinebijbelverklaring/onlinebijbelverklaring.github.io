@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 2
+
 1. En het geschiedde daarna, dat David de HEERE vraagde, zeggende: Zal ik optrekken in een der steden van Juda? En de HEERE zeide tot hem: Trek op. En David zeide: Waarheen zal ik optrekken? En Hij zeide: Naar Hebron. 
 2. Alzo toog David derwaarts op, als ook zijn twee vrouwen, Ahinoam, de Jizreelietische, en Abigaïl, de huisvrouw van Nabal, de Karmeliet. 
 3. Ook deed David zijn mannen optrekken, die bij hem waren, een iegelijk met zijn huisgezin; en zij woonden in de steden van Hebron. 

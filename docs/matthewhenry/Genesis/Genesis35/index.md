@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 35
+
 1. Daarna zeide God tot Jakob: Maak u op, trek op naar Beth-el, en woon aldaar; en maak daar een altaar dien God, Die u verscheen, toen gij vluchttet voor het aangezicht van uw broeder Ezau. 
 2. Toen zeide Jakob tot zijn huisgezin, en tot allen, die bij hem waren: Doet weg de vreemde goden, die in het midden van u zijn, en reinigt u, en verandert uw klederen; 
 3. En laat ons ons opmaken, en optrekken naar Beth-el; en ik zal daar een altaar maken dien God, Die mij antwoordt ten dage mijner benauwdheid, en met mij geweest is op de weg, die ik gewandeld heb. 

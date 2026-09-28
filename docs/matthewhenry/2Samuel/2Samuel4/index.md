@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 4
+
 1. Als nu Sauls zoon hoorde, dat Abner te Hebron gestorven was, werden zijn handen slap, en gans Israël werd verschrikt. 
 2. En Sauls zoon had twee mannen, oversten van benden; de naam des enen was Baena, en de naam des anderen Rechab, zonen van Rimmon, de Beerothiet, van de kinderen van Benjamin; want ook Beeroth werd aan Benjamin gerekend. 
 3. En de Beerothieten waren gevloden naar Gitthaim, en waren aldaar vreemdelingen tot op dezen dag. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 24
+
 1. ZIE, de HEERE maakt het land ledig en Hij maakt het woest, en Hij keert deszelfs gestaltenis om en Hij verstrooit zijn inwoners.
 2. En gelijk het volk, alzo zal de priester wezen; gelijk de knecht, alzo zijn heer; gelijk de dienstmaagd, alzo haar vrouwe; gelijk de koper, alzo de verkoper; gelijk de lener, alzo de ontlener; gelijk de woekeraar, alzo die van welken hij woeker ontvangt.
 3. Dat land zal ganselijk lediggemaakt worden en het zal ganselijk beroofd worden; want de HEERE heeft dit woord gesproken.

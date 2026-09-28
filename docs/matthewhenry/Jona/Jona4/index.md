@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 4
+
 1. Dit verdroot, Jona met groot verdriet, en zijn toorn ontstak. 
 2. En hij bad tot de HEERE, en zeide: Och HEERE! was dit mijn woord niet, als ik nog in mijn land was? Daarom kwam ik het voor, vluchtende naar Tarsis; want ik wist, dat Gij een genadig en barmhartig God zijt, lankmoedig en groot van goedertierenheid, en berouw hebbende over het kwaad. 
 3. Nu dan, HEERE! neem toch mijn ziel van mij; want het is mij beter te sterven dan te leven. 

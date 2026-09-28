@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 12
+
 1. IN dien tijd ging Jezus op een sabbatdag door het gezaaide, en Zijn discipelen hadden honger en begonnen aren te plukken en te eten.
 2. En de farizeeën dat ziende, zeiden tot Hem: Zie, Uw discipelen doen wat niet is geoorloofd te doen op den sabbat.
 3. Maar Hij zeide tot hen: Hebt gij niet gelezen wat David gedaan heeft, toen hem hongerde, en hun die met hem waren?

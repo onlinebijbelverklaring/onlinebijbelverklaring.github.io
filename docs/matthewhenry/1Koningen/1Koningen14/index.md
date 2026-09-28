@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 14
+
 1. Te dierzelfder tijd was Abia, de zoon van Jerobeam, krank. 
 2. En Jerobeam zeide tot zijn huisvrouw: Maak u nu op, en verstel u, dat men niet merkte, dat gij Jerobeams huisvrouw zijt, en ga heen naar Silo, zie, daar is de profeet Ahia, die van mij gesproken heeft, dat ik koning zou zijn over dit volk. 
 3. En neem in uw hand tien broden, en koeken, en een kruik honig, en ga tot hem; hij zal u te kennen geven, wat dezen jongen geschieden zal. 

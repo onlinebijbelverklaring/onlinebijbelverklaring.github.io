@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 3
+
 1. DESGELIJKS gij vrouwen, zijt uw eigen mannen onderdanig; opdat ook zo enigen het Woord ongehoorzaam zijn, zij door den wandel der vrouwen zonder woord mogen gewonnen worden,
 2. Als zij zullen ingezien hebben uw kuisen wandel in vreze.
 3. Welker versiersel zij, niet hetgeen uiterlijk is, bestaande in het vlechten des haars, en omhangen van goud, of van klederen aan te trekken,

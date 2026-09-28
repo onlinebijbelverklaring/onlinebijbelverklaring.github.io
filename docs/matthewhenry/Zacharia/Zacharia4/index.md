@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 4
+
 1. En de Engel, Die met mij sprak, kwam weder; en Hij wekte mij op, gelijk een man, die van zijn slaap opgewekt wordt. 
 2. En Hij zeide tot mij: Wat ziet gij? En ik zeide: Ik zie, en ziet, een geheel gouden kandelaar, en een oliekruikje boven deszelfs hoofd, en zijn zeven lampen daarop; die lampen hadden zeven en zeven pijpen, dewelke boven zijn hoofd waren; 
 3. En twee olijfbomen daarnevens, een ter rechterzijde van het oliekruikje, en een tot deszelfs linkerzijde. 

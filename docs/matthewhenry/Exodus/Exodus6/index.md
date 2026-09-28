@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 6
+
 1. Verder sprak God tot Mozes, en zeide tot hem: Ik ben de HEERE, 
 2. En Ik ben aan Abraham, Izak, en Jakob verschenen, als God de Almachtige; doch met Mijn Naam HEERE ben Ik hun niet bekend geweest. 
 3. En ook heb Ik Mijn verbond met hen opgericht, dat Ik hun geven zou het land Kanaän, het land hunner vreemdelingschappen, waarin zij vreemdelingen geweest zijn. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 7
+
 1. Toen zeide Elisa: Hoort het woord des HEEREN; zo zegt de HEERE: Morgen omtrent dezen tijd zal een maat meelbloem verkocht worden voor een sikkel, en twee maten gerst voor een sikkel, in de poort van Samaria. 
 2. Maar een hoofdman, op wiens hand de koning leunde, antwoordde de man Gods, en zeide: Zie, zo de HEERE vensteren in de hemel maakte, zou die zaak kunnen geschieden? En hij zeide: Zie, gij zult het met uw ogen zien, doch daarvan niet eten. 
 3. Er waren nu vier melaatse mannen voor de deur der poort; die zeiden, de een tot de ander: Wat blijven wij hier, totdat wij sterven? 

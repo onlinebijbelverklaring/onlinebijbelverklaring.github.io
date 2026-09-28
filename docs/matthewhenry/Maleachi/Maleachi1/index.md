@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Maleachi 1
+
 1. De last van het woord des HEEREN tot Israël, door de dienst van Maleáchi. 
 2. Ik heb u liefgehad, zegt de HEERE; maar gij zegt: Waarin hebt Gij ons liefgehad? Was niet Ezau Jakobs broeder? spreekt de HEERE; nochtans heb Ik Jakob liefgehad. 
 3. En Ezau heb Ik gehaat; en Ik heb zijn bergen gesteld tot een verwoesting, en zijn erve voor de draken der woestijn. 

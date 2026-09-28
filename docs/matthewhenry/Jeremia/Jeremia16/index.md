@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 16
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Gij zult u geen vrouw nemen, en gij zult geen zonen noch dochters hebben in deze plaats.
 3. Want zo zegt de HEERE van de zonen en van de dochters die in deze plaats geboren worden; daartoe van hun moeders die hen baren, en van hun vaders die hen gewinnen in dit land:

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 117
+
 1 LOOFT den HEERE, alle heidenen; prijst Hem, alle natiën.
 2 Want Zijn goedertierenheid is geweldig over ons, en de waarheid des HEEREN is in der eeuwigheid. Hallelujah.
 

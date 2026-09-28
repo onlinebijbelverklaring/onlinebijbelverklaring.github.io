@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 34
+
 1. En Dina, de dochter van Lea, die zij Jakob gebaard had, ging uit, om de dochteren van dat land te bezien. 
 2. Sichem nu, de zoon van Hemor de Heviet, de landvorst, zag haar, en hij nam ze, en lag bij haar, en verkrachtte ze. 
 3. En zijn ziel kleefde aan Dina, Jacobs dochter; en hij had de jonge dochter lief, en sprak naar het hart van de jonge dochter. 

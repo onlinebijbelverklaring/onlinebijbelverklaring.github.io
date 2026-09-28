@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 13
+
 1. Jozua nu was oud, wel bedaagd; en de HEERE zeide tot hem: Gij zijt oud geworden, welbedaagd, en er is zeer veel lands overgebleven, om dat erfelijk te bezitten. 
 2. Dit is het land, dat overgebleven is; al de grenzen der Filistijnen en het ganse Gesuri. 
 3. Van de Sichor, die voor aan Egypte is, tot aan de landpaal van Ekron tegen het noorden, dat de Kanaänieten toegerekend wordt; vijf vorsten der Filistijnen, de Gazatiet en Asdodiet, de Askeloniet, de Gathiet en Ekroniet, en de Avvieten. 

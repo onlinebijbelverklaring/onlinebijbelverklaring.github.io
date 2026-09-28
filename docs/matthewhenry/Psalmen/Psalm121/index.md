@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 121
+
 1. EEN lied Hammaäloth. Ik hef mijn ogen op naar de bergen, vanwaar mijn hulp komen zal.
 2. Mijn hulp is van den HEERE, Die hemel en aarde gemaakt heeft.
 3. Hij zal uw voet niet laten wankelen; uw Bewaarder zal niet sluimeren.

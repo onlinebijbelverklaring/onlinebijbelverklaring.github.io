@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 3 Johannes 1
+
 LOF VAN DE GASTVRIJHEID
 
 A. Het opschrift "de ouderling" is hier hetzelfde als is de tweede brief. Het adres "aan de geliefde Gajus" verschilt van dat in de vorigen door bepaald noemen van de ontvanger van de brief en door vermelding van de persoonlijke betrekking van de briefschrijver op hem. Werd in de vorige brief het "die ik in waarheid liefheb" ook reeds over de uitverkoren vrouw en haar kinderen gezegd, hier wordt het niet nader uiteengezet en daardoor verkrijgt het, in vergelijking met het meer algemene aldaar, een meer individueel, onmiddellijk persoonlijk karakter.

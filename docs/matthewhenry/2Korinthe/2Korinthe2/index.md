@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 2
+
 1. MAAR ik heb dit bij mijzelven voorgenomen, dat ik niet wederom in droefheid tot u komen zou.
 2. Want indien ik ulieden bedroef, wie is het toch die mij zal vrolijk maken, dan degene die van mij bedroefd is geworden?
 3. En ditzelve heb ik u geschreven, opdat ik daar komende, niet zou droefheid hebben van degenen van welke ik moest verblijd worden; vertrouwende van u allen dat mijn blijdschap u aller blijdschap is.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 7
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, zeggende:
 2. Sta in de poort van des HEEREN huis, en roep aldaar dit woord uit, en zeg: Hoort des HEEREN woord, o gans Juda, gij die door deze poorten ingaat om den HEERE aan te bidden.
 3. Zo zegt de HEERE der heirscharen, de God Israëls: Maakt uw wegen en uw handelingen goed, zo zal Ik ulieden doen wonen in deze plaats.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 9
+
 1. Voorts op den vier en twintigsten dag dezer maand verzamelden zich de kinderen Israëls met vasten en met zakken, en aarde was op hen.
 2. En het zaad Israëls scheidde zich af van alle vreemden. En zij stonden en deden belijdenis van hun zonden en hunner vaderen ongerechtigheden.
 3. Want als zij opgestaan waren op hun standplaats, zo lazen zij in het wetboek des HEEREN huns Gods, een vierendeel van den dag; en op een ander vierendeel deden zij belijdenis en aanbaden den HEERE hun God.

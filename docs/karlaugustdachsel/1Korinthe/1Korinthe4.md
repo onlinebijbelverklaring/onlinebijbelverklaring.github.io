@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 4
+
 AANZIEN, AMBT EN TOESTAND VAN DE PREDIKERS
 
 ### d. Vers. 1-21

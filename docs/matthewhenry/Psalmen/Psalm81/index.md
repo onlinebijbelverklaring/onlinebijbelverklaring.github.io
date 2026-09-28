@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 81
+
 1. VOOR den opperzangmeester, op de Gittith, een psalm van Asaf.
 2. Zingt vrolijk Gode, onze Sterkte; juicht den God Jakobs.
 3. Heft een psalm op en geeft den trommel, de lieflijke harp met de luit.

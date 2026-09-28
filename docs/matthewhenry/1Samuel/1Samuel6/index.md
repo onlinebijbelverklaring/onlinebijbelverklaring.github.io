@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 6
+
 1. Als nu de ark des HEEREN zeven maanden in het land der Filistijnen geweest was, 
 2. Zo riepen de Filistijnen de priesters en de waarzeggers, zeggende: Wat zullen wij met de ark des HEEREN doen? Laat ons weten, waarmede wij ze aan haar plaats zenden zullen. 
 3. Zij dan zeiden: Indien gij de ark des Gods van Israël wegzendt, zendt haar niet ledig weg, maar vergeldt Hem ganselijk een schuldoffer; dan zult gij genezen worden, en ulieden zal bekend worden, waarom Zijn hand van u niet afwijkt. 

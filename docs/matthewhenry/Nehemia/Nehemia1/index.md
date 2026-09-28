@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 1
+
 1. De geschiedenissen van Nehémia, zoon van Hachalja. En het geschiedde in de maand Chisleu, in het twintigste jaar, als ik te Susan in het paleis was; 
 2. Zo kwam Hanani, een van mijn broederen, hij en sommige mannen uit Juda, en ik vraagde hen naar de Joden, die ontkomen waren (die overgebleven waren van de gevangenis), en naar Jeruzalem. 
 3. En zij zeiden tot mij: De overgeblevenen, die van de gevangenis aldaar in het landschap zijn overgebleven, zijn in grote ellende en in versmaadheid; en Jeruzalems muur is verscheurd, en haar poorten zijn met vuur verbrand. 

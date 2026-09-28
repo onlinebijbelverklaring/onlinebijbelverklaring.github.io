@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 22
+
 1. Daarna sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot Aäron en tot zijn zonen, dat zij zich van de heilige dingen der kinderen Israëls, die zij Mij heiligen, afzonderen, opdat zij de Naam Mijner heiligheid niet ontheiligen; Ik ben de HEERE! 
 3. Zeg tot hen: Alle man onder uw geslachten, die uit uw ganse zaad tot de heilige dingen, die de kinderen Israëls de HEERE heiligen, naderen zal, als zijn onreinheid op hem is; diezelve mens zal van voor Mijn aangezicht uitgeroeid worden; Ik ben de HEERE! 

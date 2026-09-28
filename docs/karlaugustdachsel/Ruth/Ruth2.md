@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 2
+
 RUTH LEEST OP HET VELD VAN BOAZ AREN OP.
 
 ## I. Vers 1-23 

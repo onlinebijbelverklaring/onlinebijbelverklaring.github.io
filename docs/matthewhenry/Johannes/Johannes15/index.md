@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 15
+
 1. IK ben de ware Wijnstok, en Mijn Vader is de Landman.
 2. Alle rank die in Mij geen vrucht draagt, die neemt Hij weg; en alle die vrucht draagt, die reinigt Hij, opdat zij meer vrucht drage.
 3. Gijlieden zijt nu rein om het woord dat Ik tot u gesproken heb.

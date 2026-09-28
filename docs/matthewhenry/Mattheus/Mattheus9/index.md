@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 9
+
 1. EN in het schip gegaan zijnde, voer Hij over en kwam in Zijn stad. En zie, zij brachten tot Hem een geraakte, op een bed liggende.
 2. En Jezus hun geloof ziende, zeide tot den geraakte: Zoon, zijt welgemoed, uw zonden zijn u vergeven.
 3. En zie, sommigen der schriftgeleerden zeiden in zichzelven: Deze lastert God.

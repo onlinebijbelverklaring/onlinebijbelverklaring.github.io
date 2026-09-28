@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 27
+
 JACOB WORDT DOOR ZIJN VADER GEZEGEND EN DAAROM DOOR EZAU GEHAAT.
 
 ## I. Vers 1-29. 

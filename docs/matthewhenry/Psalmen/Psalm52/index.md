@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 52
+
 1. EEN onderwijzing van David, voor den opperzangmeester;
 2. Als Doëg, de Edomiet, gekomen was, en Saul te kennen gegeven en tot hem gezegd had: David is gekomen ten huize van Achimélech.
 3. Wat roemt gij u in het kwade, o gij geweldige? Gods goedertierenheid duurt toch den gansen dag.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 65
+
 1. EEN psalm van David, een lied, voor den opperzangmeester.
 2. De lofzang is in stilheid tot U, o God, in Sion; en U zal de gelofte betaald worden.
 3. Gij hoort het gebed, tot U zal alle vlees komen.

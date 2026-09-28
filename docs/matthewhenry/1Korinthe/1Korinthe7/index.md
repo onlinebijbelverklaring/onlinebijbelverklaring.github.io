@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 7
+
 1. AANGAANDE nu de dingen waarvan gij mij geschreven hebt: Het is een mens goed geen vrouw aan te raken;
 2. Maar om der hoererijen wil zal een iegelijk man zijn eigen vrouw hebben, en een iegelijke vrouw zal haar eigen man hebben.
 3. De man zal aan de vrouw de schuldige goedwilligheid betalen, en desgelijks ook de vrouw aan den man.

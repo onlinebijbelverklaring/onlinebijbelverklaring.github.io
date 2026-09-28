@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 19
+
 1. EN Jezus ingekomen zijnde, ging Hij door Jericho.
 2. En zie, daar was een man, met name geheten Zachéüs; en deze was een overste der tollenaars, en hij was rijk;
 3. En zocht Jezus te zien, wie Hij was; en kon niet vanwege de schare, omdat hij klein van persoon was.

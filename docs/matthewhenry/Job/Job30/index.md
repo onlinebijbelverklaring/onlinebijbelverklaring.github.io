@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 30
+
 1. MAAR nu lachen over mij minderen dan ik van dagen, welker vaderen ik versmaad zou hebben om bij de honden mijner kudde te stellen.
 2. Waartoe zou mij ook geweest zijn de kracht hunner handen? Zij was door ouderdom in hen vergaan.
 3. Die door gebrek en honger eenzaam waren, vliedende naar dorre plaatsen, in het donkere, woeste en verwoeste.

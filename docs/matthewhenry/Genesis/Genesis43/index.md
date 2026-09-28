@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 43
+
 1. De honger nu werd zwaar in dat land; 
 2. Zo geschiedde het, als zij de leeftocht, dien zij uit Egypte gebracht hadden, opgegeten hadden, dat hun vader tot hen zeide: Keert wederom, koopt ons een weinig spijs. 
 3. Toen sprak Juda tot hem, zeggende: Die man heeft ons op het hoogste betuigd, zeggende: Gij zult mijn aangezicht niet zien, tenzij dat uw broeder met u is. 

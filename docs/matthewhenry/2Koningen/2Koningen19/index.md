@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 19
+
 1. En het geschiedde, als de koning Hizkia dat hoorde, zo scheurde hij zijn klederen, en bedekte zich met een zak, en ging in het huis des HEEREN. 
 2. Daarna zond hij Eljakim, de hofmeester, en Sebna, de schrijver, en de oudsten der priesteren, met zakken bedekt, tot Jesaja, de profeet, de zoon van Amoz; 
 3. En zij zeiden tot hem: Alzo zegt Hizkia: Deze dag is een dag der benauwdheid, en der schelding, en der lastering; want de kinderen zijn gekomen tot aan de geboorte, en er is geen kracht om te baren. 

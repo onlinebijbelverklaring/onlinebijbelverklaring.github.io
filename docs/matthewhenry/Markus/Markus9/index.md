@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 9
+
 1. EN Hij zeide tot hen: Voorwaar Ik zeg u, dat er sommigen zijn van degenen die hier staan, die den dood niet zullen smaken, totdat zij zullen hebben gezien dat het Koninkrijk Gods met kracht gekomen is.
 2. En na zes dagen nam Jezus met Zich Petrus en Jakobus en Johannes, en bracht hen op een hogen berg bezijden alleen; en Hij werd voor hen van gedaante veranderd.
 3. En Zijn klederen werden blinkende, zeer wit als sneeuw, hoedanige geen voller op aarde zo wit maken kan.

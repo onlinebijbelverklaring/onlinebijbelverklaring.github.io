@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 35
+
 1. Daarna hield Josia het pascha de HEERE te Jeruzalem; en zij slachtten het pascha op de veertienden der eerste maand. 
 2. En hij stelde de priesters op hun wachten; en hij sterkte hen tot de dienst van het huis des HEEREN. 
 3. En hij zeide tot de Levieten, die gans Israël onderwezen, die de HEERE heilig waren: Zet de heilige ark in het huis, hetwelk Salomo, de zoon van David, de koning van Israël, gebouwd heeft; gij hebt geen last op de schouderen; dient nu de HEERE, uw God, en Zijn volk Israël; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 19
+
 1. En het geschiedde na dezen, dat Nahas, de koning der kinderen Ammons, stierf, en zijn zoon werd koning in zijn plaats. 
 2. Toen zeide David: Ik zal weldadigheid doen aan Hanun, de zoon van Nahas; want zijn vader heeft weldadigheid aan mij gedaan. Daarom zond David boden, om hem te troosten over zijn vader. Toen de knechten van David in het land der kinderen Ammons tot Hanun kwamen, om hem te troosten, 
 3. Zo zeiden de vorsten der kinderen Ammons tot Hanun: Eert David uw vader in uw ogen, omdat hij troosters tot u gezonden heeft? Zijn niet zijn knechten tot u gekomen, om te doorzoeken, en om om te keren, en om het land te verspieden? 

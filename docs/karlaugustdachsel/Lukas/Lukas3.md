@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 3
+
 JOHANNES’ PREDIKING EN GETUIGENIS VAN CHRISTUS. DOOP EN GESLACHTSREGISTER VAN CHRISTUS
 
 ## I. Vers 1-20 

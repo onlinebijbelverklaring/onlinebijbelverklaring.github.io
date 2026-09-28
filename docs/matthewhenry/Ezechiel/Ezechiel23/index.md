@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 23
+
 1. VERDER geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, daar waren twee vrouwen, dochters van één moeder.
 3. Dezen hoereerden in Egypte; in haar jeugd hoereerden zij; daar werden haar borsten gedrukt, en daar werden de tepelen haars maagdoms betast.

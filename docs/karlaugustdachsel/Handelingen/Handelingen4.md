@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 4
+
 VERVOLGING VAN DE APOSTELEN. GEMEENSCHAPPELIJK GEBED VAN DE GELOVIGEN. HUN WANDEL EN TOESTAND.
 
 ***1. En terwijl zij na de prediking van Petrus, die in het voorgaande is meegedeeld, nog verder tot het volk spraken, toen Petrus en Johannes evenals in hoofdstuk 2: 40 aan de eigenlijke hoofdrede nog bijzondere vermaningen toevoegden, kwamen daarover tot hen degenen, die de tempelwacht uitmaakten 1CH 24: 5, namelijk de priesters en de hoofdman van de tempel, die over deze schaar het bevel voerde (Luk. 22: 4) en de Sadduceeën, die juist op de plaats van de tempel aanwezig waren geweest en Petrus’ rede in hoofdstuk 3 ten minste tot vs. 15 mede hadden aangehoord.***

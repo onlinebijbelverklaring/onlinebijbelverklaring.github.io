@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 42
+
 1. EEN onderwijzing, voor den opperzangmeester, onder de kinderen van Korach.
 2. Gelijk een hert schreeuwt naar de waterstromen, alzo schreeuwt mijn ziel tot U, o God.
 3. Mijn ziel dorst naar God, naar den levenden God; wanneer zal ik ingaan, en voor Gods aangezicht verschijnen?

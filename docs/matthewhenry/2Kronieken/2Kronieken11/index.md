@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 11
+
 1. Toen nu Rehabeam te Jeruzalem gekomen was, vergaderde hij het huis van Juda en Benjamin, eenhonderd en tachtig duizend uitgelezenen, geoefend ten oorlog, om tegen Israël te strijden, opdat hij het koninkrijk weder aan Rehabeam bracht. 
 2. Doch het woord des HEEREN geschiedde tot Semaja, de man Gods, zeggende: 
 3. Zeg tot Rehabeam, de zoon van Salomo, de koning van Juda, en tot het ganse Israël in Juda en Benjamin, zeggende: 

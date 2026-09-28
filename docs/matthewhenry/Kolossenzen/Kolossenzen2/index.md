@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 2
+
 1. WANT ik wil dat gij weet hoe groten strijd ik voor u heb, en voor degenen die te Laodicéa zijn, en zovelen als er mijn aangezicht in het vlees niet hebben gezien,
 2. Opdat hun harten vertroost mogen worden, en zij samengevoegd zijn in de liefde, en dat tot allen rijkdom der volle verzekerdheid des verstands, tot kennis der verborgenheid van God en den Vader, en van Christus,
 3. In Denwelken al de schatten der wijsheid en der kennis verborgen zijn.

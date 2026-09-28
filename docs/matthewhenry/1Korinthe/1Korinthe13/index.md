@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 13
+
 1. AL ware het dat ik de talen der mensen en der engelen sprak, en de liefde niet had, zo ware ik een klinkend metaal of luidende schel geworden.
 2. En al ware het dat ik de gave der profetie had, en wist al de verborgenheden en al de wetenschap, en al ware het dat ik al het geloof had, zodat ik bergen verzette, en de liefde niet had, zo ware ik niets.
 3. En al ware het dat ik al mijn goederen tot onderhoud der armen uitdeelde, en al ware het dat ik mijn lichaam overgaf opdat ik verbrand zou worden, en had de liefde niet, zo zou het mij geen nuttigheid geven.

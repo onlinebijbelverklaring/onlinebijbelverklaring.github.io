@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 34
+
 1. Josia was acht jaren oud, toen hij koning werd, en regeerde een en dertig jaren te Jeruzalem. 
 2. En hij deed dat recht was in de ogen des HEEREN, en wandelde in de wegen van zijn vader David, en week niet af ter rechter hand, noch ter linkerhand. 
 3. Want in het achtste jaar zijner regering, toen hij nog een jongeling was, begon hij de God zijns vaders Davids te zoeken; en in het twaalfde jaar begon hij Juda en Jeruzalem van de hoogten en de bossen, en de gesneden en de gegoten beelden te reinigen. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 10
+
 WAARSCHUWING VOOR VERLEIDING VAN VALSE APOSTELEN
 
 ## III. Vers 1-Hoofdstuk 13:10

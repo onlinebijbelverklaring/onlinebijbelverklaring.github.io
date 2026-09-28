@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 25
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen de kinderen Ammons, en profeteer tegen dezelve,
 3. En zeg tot de kinderen Ammons: Hoort des Heeren HEEREN woord: Alzo zegt de Heere HEERE: Omdat gij gezegd hebt: Heah! over Mijn heiligdom als het ontheiligd werd, en over het land Israëls als het verwoest werd, en over het huis van Juda als zij in gevangenis gingen,

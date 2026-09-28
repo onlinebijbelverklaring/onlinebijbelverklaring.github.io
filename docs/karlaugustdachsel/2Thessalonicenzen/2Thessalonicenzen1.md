@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Thessalonicenzen 1
+
 AANMANING TOT STANDVASTIGHEID IN VERVOLGING
 
 A. Het opschrift van deze tweede brief, die waarschijnlijk nog in het jaar 58 geschreven is "Ac 18: 11, is bijna woordelijk gelijk aan dat van de eerste. Wij zien daaruit, dat de apostel zich nog op dezelfde plaats bevond als toen en door dezelfde helpers omringd was, zoals hij zich ook werkelijk beweegt in dezelfde kring van gedachten. Het onderschrift "geschreven van Athene", dat gegrond is op de mening van Theodoretus, is, zoals uit de omstandigheden blijkt, nog minder te rechtvaardigen dan bij de eerste brief, omdat Paulus zich zeker slechts korte tijd te Athene heeft opgehouden (vgl. het slotwoord op de brief aan de Romeinen).

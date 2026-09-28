@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 9
+
 1. DE opperste Wijsheid heeft Haar huis gebouwd, Zij heeft Haar zeven pilaren gehouwen.
 2. Zij heeft Haar slachtvee geslacht, Zij heeft Haar wijn gemengd, ook heeft Zij Haar tafel toegericht.
 3. Zij heeft Haar dienstmaagden uitgezonden, Zij nodigt, op de tinnen van de hoogten der stad:

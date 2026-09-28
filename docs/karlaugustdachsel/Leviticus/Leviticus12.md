@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 12
+
 WET VAN DE KRAAMVROUWEN.
 
 ## I. Vers 1-8

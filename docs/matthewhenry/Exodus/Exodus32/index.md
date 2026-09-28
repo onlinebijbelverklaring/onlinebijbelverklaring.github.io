@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 32
+
 1. Toen het volk zag, dat Mozes vertoog van de berg af te komen, zo verzamelde zich het volk tot Aaron, en zij zeiden tot hem: Sta op, maak ons goden, die voor ons aangezicht gaan; want dezen Mozes, dien man, die ons uit Egypteland uitgevoerd heeft, wij weten niet, wat hem geschied zij. 
 2. Aaron nu zeide tot hen: Rukt af de gouden oorsierselen, die in de oren uwer vrouwen, uwer zonen, en uwer dochteren zijn; en brengt ze tot mij. 
 3. Toen rukte het ganse volk de gouden oorsierselen af, die in hun oren waren; en zij brachten ze tot Aaron. 

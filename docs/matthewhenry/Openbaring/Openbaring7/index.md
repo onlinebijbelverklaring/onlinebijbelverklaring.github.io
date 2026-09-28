@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 7
+
 1. EN na dezen zag ik vier engelen staan op de vier hoeken der aarde, houdende de vier winden der aarde, opdat geen wind zou waaien op de aarde, noch op de zee, noch tegen enigen boom.
 2. En ik zag een anderen Engel opkomen van den opgang der zon, hebbende het zegel des levenden Gods; en Hij riep met een grote stem tot de vier engelen aan welke macht gegeven was de aarde en de zee te beschadigen,
 3. Zeggende: Beschadigt de aarde niet, noch de zee, noch de bomen, totdat wij de dienstknechten onzes Gods zullen verzegeld hebben aan hun voorhoofden.

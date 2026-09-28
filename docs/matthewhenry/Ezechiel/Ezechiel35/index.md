@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 35
+
 1. WIJDERS geschiedde des HEEREN woord tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen het gebergte Seïr, en profeteer tegen hetzelve,
 3. En zeg tot hetzelve: Alzo zegt de Heere HEERE: Zie, Ik wil aan u, o gebergte Seïr; en Ik zal Mijn hand tegen u uitstrekken en zal u stellen tot een verwoesting en een schrik.

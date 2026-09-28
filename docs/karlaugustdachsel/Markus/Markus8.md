@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 8
+
 DE ZEVEN BRODEN. ZUURDEEG VAN DE FARIZEEEN. BLINDEN. BELIJDENIS VAN DE CHRISTUS. ZIJN LIJDEN
 
 ## IV. Vers 1-10

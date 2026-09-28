@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Deuteronomium
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET VIJFDE BOEK VAN MOZES GENAAMD DEUTERONOMIUM
 
 Dit boek is een herhaling van zeer veel van de geschiedenis en van de wetten, vervat in de drie voorafgaande boeken, welke herhaling Mozes kort voor zijn dood aan Israël gedaan heeft (mondeling ten einde er sterker indruk door te maken, en schriftelijk opdat zij des te duurzamer zou zijn). Er komt geen nieuwe geschiedenis in voor, behalve die van de dood van Mozes in het laatste hoofdstuk, ook geen nieuwe openbaring aan Mozes, voor zoveel blijkt tenminste, en daarom is de stijl hier niet, zoals tevoren: De Heere sprak tot Mozes, zeggende: maar de vorige wetten worden herhaald, verklaard en uitgebreid, sommige bijzondere voorschriften er aan toegevoegd met uitvoerige redeneringen om ze nog nader aan te dringen. Hierin werd Mozes door Gods Geest gedreven en gesteund, zodat dit even waarlijk het woord des Heeren is door Mozes, als dat, wat met hoorbare stem tot hem gesproken werd uit de tent der samenkomst, Leviticus 1:1. 

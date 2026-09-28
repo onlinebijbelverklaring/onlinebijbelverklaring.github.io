@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 24
+
 1. Aangaande nu de kinderen van Aaron, dit waren hun verdelingen. De zonen van Aaron waren Nadab, en Abihu, Eleazar en Ithamar. 
 2. Maar Nadab stierf, en Abihu, voor het aangezicht huns vaders, en zij hadden geen kinderen. En Eleazar en Ithamar bedienden het priesterambt. 
 3. David nu verdeelde hen, en Zadok uit de kinderen van Eleazar, en Abimelech uit de kinderen van Ithamar, naar hun ambt in hun dienst. 

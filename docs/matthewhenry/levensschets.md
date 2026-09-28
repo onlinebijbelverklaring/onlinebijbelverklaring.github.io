@@ -1,3 +1,7 @@
+---
+icon: lucide/file-text
+---
+
 # Levensschets van Matthew Henry
 
 Facetten uit het leven en de totstandkoming van deze Bijbelverklaring.

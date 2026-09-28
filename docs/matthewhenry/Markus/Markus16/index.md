@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 16
+
 1. EN als de sabbat voorbijgegaan was, hadden Maria Magdaléna en Maria, de moeder van Jakobus, en Salome specerijen gekocht, opdat zij kwamen en Hem zalfden.
 2. En zeer vroeg op den eersten dag der week, kwamen zij tot het graf, als de zon opging;
 3. En zeiden tot elkander: Wie zal ons den steen van de deur des grafs afwentelen?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 18
+
 1. TE dierzelver ure kwamen de discipelen tot Jezus, zeggende: Wie is toch de meeste in het Koninkrijk der hemelen?
 2. En Jezus een kindeken tot Zich geroepen hebbende, stelde dat in het midden van hen,
 3. En zeide: Voorwaar zeg Ik u: Indien gij u niet verandert en wordt gelijk de kinderkens, zo zult gij in het Koninkrijk der hemelen geenszins ingaan.

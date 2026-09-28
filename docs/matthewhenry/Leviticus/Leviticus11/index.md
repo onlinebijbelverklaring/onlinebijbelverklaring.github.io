@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 11
+
 1. En de HEERE sprak tot Mozes en tot Aäron, zeggende tot hen: 
 2. Spreekt tot de kinderen Israëls, zeggende: Dit is het gedierte, dat gij eten zult uit alle beesten, die op de aarde zijn. 
 3. Al wat onder de beesten de klauw verdeelt, en de kloof der klauwen in tweeen klieft, en herkauwt, dat zult gij eten. 

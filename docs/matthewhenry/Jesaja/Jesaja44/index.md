@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 44
+
 1. MAAR hoor nu, Mijn knecht Jakob, en Israël, dien Ik verkoren heb.
 2. Zo zegt de HEERE, uw Maker en uw Formeerder van den buik af, Die u helpt: Vrees niet, o Jakob, Mijn knecht, en gij, Jeschurun, dien Ik uitverkoren heb.
 3. Want Ik zal water gieten op den dorstige en stromen op het droge; Ik zal Mijn Geest op uw zaad gieten en Mijn zegen op uw nakomelingen.

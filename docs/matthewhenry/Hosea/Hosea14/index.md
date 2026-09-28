@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 14
+
 1. Samaria zal woest worden, want zij is wederspannig geweest tegen haar God; zij zullen door het zwaard vallen, hun kinderkens zullen verpletterd, en hun zwangere vrouwen zullen opengesneden worden. 
 2. Bekeer u, o Israël! tot de HEERE, uw God, toe; want gij zijt gevallen om uw ongerechtigheid. 
 3. Neem deze woorden met u, en bekeer u tot de HEERE; zeg tot Hem: Neem weg alle ongerechtigheid, en geef het goede, zo zullen wij betalen de varren onzer lippen. 

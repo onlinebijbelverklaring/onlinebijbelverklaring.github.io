@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 12
+
 ## V. Vers 1-17
 Volgens onze uitlegging bij Hoofdstuk 11: 3 vv. "Re 11: 3" is Israël, nadat het zolang geweest is als de afgebroken takken, weer ingeënt op zijn olijfboom (Rom. 11: 17 vv.). Nu kan Gods leiding met Zijn volk, die nu ook in betrekking tot de langdurige verstoting voorkomt als een vriendelijke en rijk in voorzorg, de ziener in een groots overzicht worden voorgesteld; en dat geschiedt nu in het teken van de hemel, dat hem hier verschijnt. Het eerste deel van dit gezicht (vv. 1-6): de barende vrouw en de loerende draak, omvat Israël’s geschiedenis van het begin van zijn roeping tot Gods bijzonder eigendom af tot aan zijn verwerping voor de tijd van 42 maanden of 1260 jaren. Het tweede gedeelte (vs. 8-14): MICHAËL strijd met de draak en diens uitwerping uit de hemel, heeft op de wederopname in genade betrekking; het derde deel (vs. 15-17): de grote toorn van de op aarde geworpen draak bereidt op het gezicht van de antichrist in het eerstvolgende hoofdstuk voor.
 

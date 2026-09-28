@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 2
+
 1. IK vermaan dan vóór alle dingen, dat gedaan worden smekingen, gebeden, voorbiddingen, dankzeggingen voor alle mensen,
 2. Voor koningen en allen die in hoogheid zijn, opdat wij een gerust en stil leven leiden mogen in alle godzaligheid en eerbaarheid.
 3. Want dat is goed en aangenaam voor God onzen Zaligmaker,

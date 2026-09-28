@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 63
+
 1. WIE is Deze, Die van Edom komt met besprenkelde klederen, van Bozra? Deze, Die versierd is in Zijn gewaad? Die voorttrekt in Zijn grote kracht? Ik ben het, Die in gerechtigheid spreek, Die machtig ben te verlossen.
 2. Waarom zijt Gij rood aan Uw gewaad, en Uw klederen als van een die in de wijnpers treedt?
 3. Ik heb de pers alleen getreden en er was niemand van de volken met Mij, en Ik heb hen getreden in Mijn toorn en heb hen vertrapt in Mijn grimmigheid, en hun kracht is gesprengd op Mijn klederen en al Mijn gewaad heb Ik bezoedeld.

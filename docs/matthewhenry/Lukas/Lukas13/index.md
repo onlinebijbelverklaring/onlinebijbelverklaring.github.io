@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 13
+
 1. EN er waren te dienzelven tijde enigen tegenwoordig die Hem boodschapten van de Galileeërs welker bloed Pilatus met hun offeranden gemengd had.
 2. En Jezus antwoordde en zeide tot hen: Meent gij dat deze Galileeërs zondaars zijn geweest boven al de Galileeërs, omdat zij zulks geleden hebben?
 3. Ik zeg u: Neen zij; maar indien gij u niet bekeert, zo zult gij allen desgelijks vergaan.

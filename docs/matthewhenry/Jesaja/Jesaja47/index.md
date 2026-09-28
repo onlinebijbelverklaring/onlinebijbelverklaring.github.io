@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 47
+
 1. DAAL af en zit in het stof, gij jonkvrouw, dochter van Babel, zit op de aarde, er is geen troon meer, gij dochter der Chaldeeën; want gij zult niet meer genaamd worden de tedere, noch de wellustige.
 2. Neem den molen en maal meel; ontdek uw vlechten, ontbloot de enkels, ontdek de schenkels, ga door de rivieren.
 3. Uw schaamte zal ontdekt worden, ook zal uw schande gezien worden; Ik zal wraak nemen, en Ik zal op u niet aanvallen als een mens.

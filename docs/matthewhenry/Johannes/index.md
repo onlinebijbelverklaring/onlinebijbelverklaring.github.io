@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Johannes
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN HET EVANGELIE NAAR DE BESCHRIJVING VAN JOHANNES
 
 Het is van geen overwegend belang om een onderzoek in te stellen naar de tijd wanneer, en de plaats waar, dit Evangelie geschreven werd; wij zijn er zeker van, dat het door de inspiratie Gods gegeven werd aan Johannes, de broeder van Jakobus, een der twaalf apostelen, onderscheiden door de eervolle aanduiding van de discipel, die Jezus liefhad, een van de eerste drie helden van de Zone Davids, die Hij meenam om getuigen te zijn van zijn afzonderingen, inzonderheid van zijn verheerlijking op de berg, en van zijn zielsbenauwdheid in de hof. De ouden zeggen ons, dat Johannes het langst van al de twaalf apostelen geleefd heeft, en de enige was onder hen, die een’ natuurlijke dood gestorven is, daar al de overigen het martelaarschap hebben ondergaan. Sommigen van hen (van de ouden namelijk) zeggen, dat hij dit Evangelie te Efeze heeft geschreven op verzoek van de leraren der onderscheidene Aziatische gemeenten, tegenover de ketterij van Corinthus en de Ebionieten, die onze Heere voor een bloot mens hielden. Zeer waarschijnlijk heeft hij het geschreven vóór zijn verbanning naar het eiland Patmos, want dáár schreef hij zijn Openbaring, het slot waarvan bestemd scheen te zijn om de canon der Heilige Schrift te sluiten, en, indien dat zo is, dan was dit Evangelie niet later geschreven. Ik kan dus geen geloof schenken aan die latere kerkvaders, die zeggen, dat hij het gedurende zijn ballingschap geschreven heeft, of na zijn terugkomst uit die ballingschap, vele jaren na de verwoesting van Jeruzalem, toen hij, volgens een hunner, negentig, en volgens een ander honderd jaren oud was. Wél is het duidelijk, dat hij van de vier evangelisten de laatste was, die geschreven heeft, en zijn Evangelie vergelijkende met die van hen, kunnen wij opmerken:

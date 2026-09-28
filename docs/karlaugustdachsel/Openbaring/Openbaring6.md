@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 6
+
 OPENING VAN ZES VERSCHILLENDE ZEGELS
 
 ## III. Vers 1-8

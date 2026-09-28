@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 9
+
 1. En God zegende Noach en zijn zonen, en Hij zeide tot hen: Zijt vruchtbaar en vermenigvuldigt, en vervult de aarde! 
 2. En uw vrees, en uw verschrikking zij over al het gedierte der aarde, en over al het gevogelte des hemels; in al wat zich op de aardbodem roert, en in alle vissen der zee; zij zijn in uw hand overgegeven. 
 3. Al wat zich roert, dat levend is, zij u tot spijze; Ik heb het u al gegeven, gelijk het groene kruid. 

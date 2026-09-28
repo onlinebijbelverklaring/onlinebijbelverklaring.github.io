@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 7
+
 1. MIJN zoon, bewaar mijn redenen, en leg mijn geboden bij u weg.
 2. Bewaar mijn geboden en leef, en mijn wet als den appel uwer ogen.
 3. Bind ze aan uw vingers, schrijf ze op de tafel uws harten.

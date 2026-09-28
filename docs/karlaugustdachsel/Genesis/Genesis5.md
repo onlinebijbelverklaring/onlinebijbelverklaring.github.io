@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 5
+
 GESLACHTSREGISTER VAN ADAM EN NOACH.
 
 ## I. Vers 1 en 2

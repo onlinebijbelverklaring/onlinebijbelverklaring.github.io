@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 16
+
 1. En de HEERE sprak tot Mozes, nadat de twee zonen van Aäron gestorven waren, als zij genaderd waren voor het aangezicht des HEEREN, en gestorven waren; 
 2. De HEERE dan zeide tot Mozes: Spreek tot uw broeder Aäron, dat hij niet te allen tijde ga in het heilige, binnen de voorhang, voor het verzoendeksel, dat op de ark is, opdat hij niet sterve; want Ik verschijn in een wolk op het verzoendeksel. 
 3. Hiermede zal Aäron in het heilige gaan: met een var, een jong rund ten zondoffer, en een ram ten brandoffer. 

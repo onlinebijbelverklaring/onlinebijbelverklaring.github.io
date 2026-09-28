@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 2
+
 1. DAAROM moeten wij ons te meer houden aan hetgeen van ons gehoord is, opdat wij niet te eniger tijd doorvloeien.
 2. Want indien het woord, door de engelen gesproken, vast is geweest, en alle overtreding en ongehoorzaamheid rechtvaardige vergelding ontvangen heeft,
 3. Hoe zullen wij ontvlieden, indien wij op zo grote zaligheid geen acht nemen? Dewelke, begonnen zijnde verkondigd te worden door den Heere, aan ons bevestigd is geworden van degenen die Hem gehoord hebben;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 12
+
 1. IK bid u dan, broeders, door de ontfermingen Gods, dat gij uw lichamen stelt tot een levende, heilige en Gode welbehaaglijke offerande, welke is uw redelijke godsdienst.
 2. En wordt dezer wereld niet gelijkvormig, maar wordt veranderd door de vernieuwing uws gemoeds, opdat gij moogt beproeven welke de goede en welbehagende en volmaakte wil van God is.
 3. Want door de genade die mij gegeven is, zeg ik een iegelijk die onder u is, dat hij niet wijs zij boven hetgeen men behoort wijs te zijn, maar dat hij wijs zij tot matigheid, gelijk als God een iegelijk de mate des geloofs gedeeld heeft.

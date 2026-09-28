@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 5
+
 1. ZIJT dan navolgers Gods, als geliefde kinderen;
 2. En wandelt in de liefde, gelijkerwijs ook Christus ons liefgehad heeft en Zichzelven voor ons heeft overgegeven tot een offerande en een slachtoffer Gode, tot een welriekenden reuk.
 3. Maar hoererij en alle onreinheid of gierigheid, laat ook onder u niet genaamd worden, gelijkerwijs het den heiligen betaamt,

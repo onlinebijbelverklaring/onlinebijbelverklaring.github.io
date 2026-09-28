@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 91
+
 1. DIE in de schuilplaats des Allerhoogsten is gezeten, die zal vernachten in de schaduw des Almachtigen.
 2. Ik zal tot den HEERE zeggen: Mijn Toevlucht en mijn Burcht; mijn God, op Welken ik vertrouw.
 3. Want Hij zal u redden van den strik des vogelvangers, van de zeer verderfelijke pestilentie.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 30
+
 1. Het geschiedde nu, als David en zijn mannen de derden dag te Ziklag kwamen, dat de Amalekieten in het zuiden en te Ziklag ingevallen waren, en Ziklag geslagen, en dezelve met vuur verbrand hadden; 
 2. En dat zij de vrouwen, die daarin waren, gevankelijk weggevoerd hadden; doch zij hadden niemand doodgeslagen, van de kleinste tot de grootste, maar hadden ze weggevoerd en waren huns weegs gegaan. 
 3. En David en zijn mannen kwamen aan de stad, en ziet, zij was met vuur verbrand; en hun vrouwen, en hun zonen en hun dochteren waren gevankelijk weggevoerd. 

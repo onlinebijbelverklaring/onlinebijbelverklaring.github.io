@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 3
+
 1. Dit nu zijn de geboorten van Aäron en Mozes; ten dage als de HEERE met Mozes gesproken heeft op de berg Sinai. 
 2. En dit zijn de namen der zonen van Aäron: de eerstgeborene, Nadab, daarna Abihu, Eleazar, en Ithamar. 
 3. Dit zijn de namen der zonen van Aäron, der priesteren, die gezalfd waren, welker hand men gevuld had, om het priesterambt te bedienen. 

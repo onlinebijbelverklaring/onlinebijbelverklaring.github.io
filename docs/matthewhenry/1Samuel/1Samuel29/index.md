@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 29
+
 1. De Filistijnen nu hadden al hun legers vergaderd te Afek; en de Israëlieten legerden zich bij de fontein, die bij Jizreel is. 
 2. En de vorsten der Filistijnen togen daarheen met honderden, en met duizenden; doch David met zijn mannen togen met Achis in de achtertocht. 
 3. Toen zeiden de oversten der Filistijnen: Wat zullen deze Hebreen? Zo zeide Achis tot de oversten der Filistijnen: Is deze niet David, de knecht van Saul, de koning van Israël, die deze dagen of deze jaren bij mij geweest is? En ik heb in hem niets gevonden van dien dag af, dat hij afgevallen is tot dezen dag toe. 

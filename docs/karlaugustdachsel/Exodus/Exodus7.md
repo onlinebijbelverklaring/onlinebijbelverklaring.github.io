@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 7
+
 VERANDERING VAN HET WATER IN BLOED.
 
 ***1. Toen zei de HEERE tot Mozes: Zie, Ik heb u door Mijn woord, dat Ik thans tot u spreek, tot een God 1) gezet over Farao, dat gij hem evenzo in uw macht zult hebben, gelijk Ik over alles het gebied voer; en Aäron, uw broeder, zal uw profeet 2) zijn, gelijk gij het zijt van Mij; hij zal voor u, en uw woorden spreken.***

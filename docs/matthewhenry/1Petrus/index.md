@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Petrus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN DE EERSTE ALGEMENEN BRIEF VAN de APOSTEL PETRUS.
 
 De heilige canon van de Schrift heeft ons twee brieven bewaard van de apostel Petrus, die een der voornaamste apostelen van Jezus Christus was, en wiens karakter heerlijk aan de dag treedt, zoals het is beschreven in de vier Evangeliën en in de Handelingen der Apostelen; maar zoals het wordt getekend door de papisten en schrijvers der overleveringen, zou hij een man worden, die buitengewoonhoogmoedig en na-ijverig was. Het staat uit de Schrift vast, dat Simon Petrus een der eersten was van degenen, die onze Heere riep om Zijn discipelen en volgelingen te zijn; dat hij iemand was met buitengewone gaven, zowel van nature als door genade; met grote welsprekendheid, vlug van begrip en moedig om te verrichten wat hij meende dat zijn plicht was. Toen onze Zaligmaker zijn apostelen riep en hun opdracht hun gaf, was hij de eerste die genoemd werd; en Zijn houding tegenover deze discipel toont dat Hij hem onderscheidde als een der meest begunstigden onder de twaalven. Vele tekenen van des Heeren genegenheid voor hem, beide gedurende Zijn omwandeling en na Zijn opstanding, zijn ons bekend. 

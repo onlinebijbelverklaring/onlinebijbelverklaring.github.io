@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zefanja 2
+
 1. Doorzoek u zelf nauw, ja, doorzoek nauw, gij volk, dat met geen lust bevangen wordt! 
 2. Eer het besluit bare (gelijk kaf gaat de dag voorbij), terwijl de hittigheid van des HEEREN toorn over ulieden nog niet komt; terwijl de dag van de toorn des HEEREN over ulieden nog niet komt. 
 3. Zoekt de HEERE, alle gij zachtmoedigen des lands, die Zijn recht werken! Zoekt gerechtigheid, zoekt zachtmoedigheid, misschien zult gij verborgen worden in de dag van de toorn des HEEREN. 

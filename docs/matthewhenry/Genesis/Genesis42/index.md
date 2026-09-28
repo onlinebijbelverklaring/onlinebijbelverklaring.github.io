@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 42
+
 1. Toen Jakob zag, dat er koren in Egypte was, zo zeide Jakob tot zijn zonen: Waarom ziet gij op elkander? 
 2. Voorts zeide hij: Ziet, ik heb gehoord, dat er koren in Egypte is; trekt daarhenen af, en koopt ons koren van daar, opdat wij leven en niet sterven. 
 3. Toen togen Jozefs tien broederen af, om koren uit Egypte te kopen. 

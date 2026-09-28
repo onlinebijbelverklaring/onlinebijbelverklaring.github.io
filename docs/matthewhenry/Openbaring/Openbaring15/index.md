@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 15
+
 1. EN ik zag een ander groot en wonderlijk teken in den hemel, namelijk zeven engelen, hebbende de zeven laatste plagen; want in deze is de toorn Gods geëindigd.
 2. En ik zag als een glazen zee met vuur gemengd, en die de overwinning hadden van het beest en van zijn beeld, en van zijn merkteken en van het getal zijns naams, welke stonden aan de glazen zee, hebbende de citers Gods.
 3. En zij zongen het gezang van Mozes, den dienstknecht Gods, en het gezang des Lams, zeggende: Groot en wonderlijk zijn Uw werken, Heere, Gij almachtige God; rechtvaardig en waarachtig zijn Uw wegen, Gij Koning der heiligen.

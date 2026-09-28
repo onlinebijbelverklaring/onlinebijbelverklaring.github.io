@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Thessalonicenzen 3
+
 MEN MOET BIDDEN DAT HET WOORD ZIJN LOOP HEEFT, LEDIGHEID EN ONGEREGELDHEID VERMIJDEN
 
 D. Het derde deel bevat beschikkingen van de apostel met betrekking tot diegenen in de gemeente, die ongeregeld wandelen. Het volgt pas nadat een korte inleiding is voorafgegaan. Daarin vraagt Paulus ten eerste de voorbede voor de briefschrijvers, dat door hun dienst ook op hun tegenwoordig arbeidsveld in Achaje het Evangelie een goede voortgang moge hebben en zij van de ongeschikte en boze mensen, die hun werk zozeer tegenstaan, verlost mogen worden. Aan de andere kant vertroost hij zich met betrekking tot die nood, die zij eveneens lijden, met de trouw van de Heere, die hen zal sterken en bewaren voor de boze (vs. 1-3). Nadat hij dit heeft gezegd, wat hij voor de lezers in hun moeilijkheden vertrouwt van de Heere, zegt hij ook wat hij in de Heere van hen vertrouwt over hetgeen zij ook doen en zullen doen. Dat woord van vertrouwen laat hij vergezeld gaan van een gebedswens aan dezelfde Heere gericht (vs. 4 en 5). Daarop schrijft hij vervolgens met aandrang voor, hoe zij moeten worden behandeld, die niet willen nalaten in ledigheid te wandelen, waarbij hij zich ook gebiedend en vermanend tot deze wendt, maar de gemeente, als in haar kern nog gezond gebleven, over haar als bewaakster en tuchtmeesteres plaatst, om de ongeregeldheden te voorkomen (vs. 6-15). Tot het slot overgaande verbindt hij met zijn bepalingen nog een zegenwens voor de gemeente, wier vreedzame toestand zozeer was gestoord, dat de Heere van de vrede haar deze niet alleen weer wilde teruggeven, maar voor de hele omvang van hun leven hen met Zijn vrede wilde begenadigen en met Zijn Geest bij haar wilde zijn (vs. 16).

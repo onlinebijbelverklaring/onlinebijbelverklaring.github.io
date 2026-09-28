@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 82
+
 1. EEN psalm van Asaf. God staat in de vergadering Godes, Hij oordeelt in het midden der goden.
 2. Hoelang zult gijlieden onrecht oordelen, en het aangezicht der goddelozen aannemen? Sela.
 3. Doet recht den arme en den wees, rechtvaardigt den verdrukte en den arme.

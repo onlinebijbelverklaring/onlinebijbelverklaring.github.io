@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 36
+
 1. EN het geschiedde in het veertiende jaar van den koning Hizkía, dat Sanherib, de koning van Assyrië, optoog tegen alle vaste steden van Juda, en nam ze in.
 2. En de koning van Assyrië zond Rabsaké van Lachis naar Jeruzalem, tot den koning Hizkía, met een zwaar heir; en hij stond aan den watergang des oppersten vijvers, aan den hogen weg van het veld des vollers.
 3. Toen ging tot hem uit Eljakim, de zoon van Hilkía, de hofmeester, en Sebna, de schrijver, en Joah, de zoon van Asaf, de kanselier.

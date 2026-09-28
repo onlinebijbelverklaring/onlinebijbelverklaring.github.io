@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 15
+
 1. In het zeven en twintigste jaar van Jerobeam, de koning van Israël, werd koning Azaria, de zoon van Amazia, de koning van Juda. 
 2. Hij was zestien jaren oud, toen hij koning werd, en hij regeerde twee en vijftig jaren te Jeruzalem; en de naam zijner moeder was Jecholia van Jeruzalem. 
 3. En hij deed dat recht was in de ogen des HEEREN, naar al wat zijn vader Amazia gedaan had. 

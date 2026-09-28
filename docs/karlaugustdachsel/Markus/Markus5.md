@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 5
+
 VAN DE BEZETENE, DE VROUW MET DE BLOEDVLOEIING EN HET DOCHTERTJE VAN JAIRUS
 
 ## V. Vers 1-43

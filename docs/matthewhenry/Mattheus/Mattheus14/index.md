@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 14
+
 1. TE dienzelven tijde hoorde Herodes, de viervorst, het gerucht van Jezus;
 2. En zeide tot zijn knechten: Deze is Johannes de Doper; hij is opgewekt van de doden, en daarom werken die krachten in hem.
 3. Want Herodes had Johannes gevangengenomen en hem gebonden en in den kerker gezet, omwille van Heródias, de huisvrouw van Filippus, zijn broeder.

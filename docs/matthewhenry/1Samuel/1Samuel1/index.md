@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 1
+
 1. Daar was een man van Ramathaim-zofim, van het gebergte van Efraim, wiens naam was Elkana, een zoon van Jerocham, de zoon van Elihu, de zoon van Tochu, de zoon van Zuf, een Efrathiet. 
 2. En hij had twee vrouwen; de naam van de ene was Hanna, en de naam van de andere was Peninna. Peninna nu had kinderen, maar Hanna had geen kinderen. 
 3. Deze man nu ging opwaarts uit zijn stad van jaar tot jaar om te aanbidden, en om te offeren de HEERE der heirscharen te Silo; en aldaar waren priesters des HEEREN, Hofni, en Pinehas, de twee zonen van Eli. 

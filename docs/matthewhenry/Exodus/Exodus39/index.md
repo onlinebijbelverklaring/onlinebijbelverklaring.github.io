@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 39
+
 1. Zij maakten ook ambtsklederen, om in het heilige te dienen, van hemelsblauw, en purper, en scharlaken; ook maakten zij de heilige klederen, die voor Aaron waren, gelijk de HEERE aan Mozes geboden had. 
 2. Aldus maakte hij de Efod, van goud, hemelsblauw en purper, en scharlaken, en fijn getweernd linnen. 
 3. En zij rekten uit de dunne platen van goud, en sneden het tot draden, om te doen in het midden van het hemelsblauw, en in het midden van het purper, en in het midden van het scharlaken, en in het midden van het fijn linnen, van het allerkunstelijkste werk. 

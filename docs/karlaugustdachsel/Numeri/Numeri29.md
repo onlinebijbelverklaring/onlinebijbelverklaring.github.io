@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 29
+
 NOG ANDERE OFFERS.
 
 ***1. Evenzo in de zevende maand, op den eerste dag van de maand Tisri (zie "Ex 12.2), zult gij een heilige samenroeping hebben; geen dienstwerk zult gij doen: het zal u een dag van het geklank zijn (Leviticus. 23:23-25).***

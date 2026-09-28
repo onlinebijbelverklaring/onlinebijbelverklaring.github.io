@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Hosea
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET HOSÉA
 
 I. Wij hebben nu voor ons de twaalf kleine profeten, die sommigen der ouden bij de berekening der boeken des Ouden Testaments, alle samen nemen en voor een boek tellen. Zij worden de kleine profeten genoemd, niet omdat hun geschriften minder gezag of nut hebben dan die der grote profeten, of omdat ze in Gods oog lager staan of door ons minder moeten geacht worden, maar alleen omdat die korter zijn, van geringer omvang dan de andere. Wij hebben reden te geloven, dat deze profeten niet minder gepredikt hebben dan de grote, maar alleen minder geschreven, zodat een kleiner deel van hun profetie te boek is gesteld. Vele uitstekende profeten hebben niets geschreven, en anderen heel weinig, die toch in hun tijd zeer nuttig geweest zijn. Er zijn ook in de Christelijke kerk vele brandende en schijnende lichten geweest, die door geen geschrift aan de nakomelingschap zijn bekend geworden, en die toch geenszins lager stonden in gaven, of genade, of dienst voor hun tijdgenoten dan degenen, wier schriften ons wel overgeleverd zijn. Sommigen, die slechts weinig hebben nagelaten en dus geen hoge plaats onder de schrijvers innemen, waren toch even grote mannen als degenen, die veel hebben geschreven. Deze twaalf kleine profeten, zegt Josephus, werden tot een boek samengevoegd door de mannen der grote synagoge, in Ezra’s tijd, van welk geleerd en godvruchtig gezelschap de laatste drie profeten ondersteld worden, zelf mede lid te zijn geweest. Deze geschriften zijn wat overgebleven is van de verstrooide stukken ingegeven Schrift. Oudheidkenners waarderen de fragmenta veterum, de oude brokstukken; dit zijn de brokstukken profetie, zorgvuldig saamgelezen door de Goddelijke Voorzienigheid en de moeite der kerk, dat zo niets verloren ging, gelijk Paulus’ korte na zijne lange brieven. 

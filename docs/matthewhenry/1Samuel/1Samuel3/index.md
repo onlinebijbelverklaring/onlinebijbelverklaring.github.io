@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 3
+
 1. En de jongeling Samuël diende de HEERE voor het aangezicht van Eli; en het woord des HEEREN was dierbaar in die dagen; er was geen openbaar gezicht. 
 2. En het geschiedde te dien dage, als Eli op zijn plaats nederlag (en zijn ogen begonnen donker te worden, dat hij niet zien kon), 
 3. En Samuël zich ook nedergelegd had, eer de lampe Gods uitgedaan werd, in de tempel des HEEREN, waar de ark Gods was, 

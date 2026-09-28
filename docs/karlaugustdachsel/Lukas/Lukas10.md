@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 10
+
 ZEVENTIG DISCIPELEN. GELIJKENIS VAN DE BARMHARTIGE SAMARITAAN. MARIA AAN JEZUS’ VOETEN
 
 ## II. Vers 1-24

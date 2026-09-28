@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 4
+
 ***1. Heren, doe uw dienstknechten recht en gelijk, geef alles, waarop zij rechtmatig aanspraak hebben (MATTHEUS. 20: 4) en wat u als rechtgeaarde meesters hen geven moet; doe hun wat recht en billijk is, wetende dat ook u, evenals uw dienstknechten, een Heere heeft in de hemel, aan wie u verantwoordelijk bent (Efeze. 6: 9).***
 
 Het moet de aandacht trekken, dat Paulus de verhouding van de dienstknechten met grotere uitvoerigheid behandelt dan de vroeger besprokene, maar zeker niet minder belangrijke. Het is mogelijk, dat dit zijn aanleiding heeft in de vlucht en de bekering van Onesimus, de slaaf, die te Kolosse was geboren (vgl. de gelijktijdig geschreven brief aan Filemon); want de tegenstellingen zijn hier nog scherper getekend dan in de brief aan de Efeziers.

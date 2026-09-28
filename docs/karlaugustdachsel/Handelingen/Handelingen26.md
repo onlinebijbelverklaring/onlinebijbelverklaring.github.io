@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 26
+
 PAULUS ONTVANGT, NA ZIJN VERANTWOORDING, VAN AGRIPPA GETUIGENIS VAN ONSCHULD
 
 ***1. En Agrippa zei tot Paulus: Het is u geoorloofd voor uzelf te spreken, uw verdedigingsrede te houden. Toen strekte Paulus, om des te plechtiger en uitdrukwekkender te spreken, zijn hand uit, waaraan de ketting hing (vs. 29) en hij verantwoordde zich aldus in de Griekse taal:***

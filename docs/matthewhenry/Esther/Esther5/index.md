@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 5
+
 1. HET geschiedde nu aan den derden dag, dat Esther een koninklijk kleed aantrok en stond in het binnenste voorhof van des konings huis, tegenover het huis des konings; de koning nu zat op zijn koninklijken troon in het koninklijke huis, tegenover de deur van het huis.
 2. En het geschiedde toen de koning de koningin Esther zag, staande in het voorhof, verkreeg zij genade in zijn ogen, zodat de koning den gouden scepter, die in zijn hand was, Esther toereikte, en Esther naderde en roerde de spits des scepters aan.
 3. Toen zeide de koning tot haar: Wat is u, koningin Esther, of wat is uw verzoek? Het zal u gegeven worden, ook tot de helft des koninkrijks.

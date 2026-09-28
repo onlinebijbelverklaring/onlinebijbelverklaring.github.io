@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 27
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: Wanneer iemand een gelofte zal afgezonderd hebben, naar uw schatting zullen de zielen des HEEREN zijn. 
 3. Als uw schatting eens mans zal zijn van twintig jaren oud, tot een, die zestig jaren oud is; dan zal uw schatting zijn van vijftig sikkelen zilvers, naar de sikkel des heiligdoms. 

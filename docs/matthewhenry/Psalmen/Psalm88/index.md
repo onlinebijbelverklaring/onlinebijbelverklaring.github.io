@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 88
+
 1. EEN lied, een psalm voor de kinderen van Korach, voor den opperzangmeester, op Máchalath Leánnôth; een onderwijzing van Heman, den Ezrahiet.
 2. O HEERE, God mijns heils, bij dag, bij nacht roep ik voor U.
 3. Laat mijn gebed voor Uw aanschijn komen, neig Uw oor tot mijn geschrei.

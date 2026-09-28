@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 3
+
 1. Jozua dan maakte zich des morgens vroeg op, en zij reisden van Sittim, en kwamen tot aan de Jordaan, hij en al de kinderen Israëls; en zij vernachtten aldaar, eer zij overtrokken. 
 2. En het geschiedde, dat de ambtlieden, op het einde van drie dagen, door het midden des legers gingen; 
 3. En zij geboden het volk, zeggende: Wanneer gij de ark des verbonds des HEEREN, uws Gods, ziet, en de Levietische priesters dezelve dragende, verreist gijlieden ook van uw plaats, en volgt haar na; 

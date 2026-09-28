@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 4
+
 1. ZIE, gij zijt schoon, Mijn vriendin, zie, gij zijt schoon; uw ogen zijn duivenogen tussen uw vlechten; uw haar is als een kudde geiten die het gras van den berg Gileads afscheren.
 2. Uw tanden zijn als een kudde schapen die geschoren zijn, die uit de wasstede opkomen; die altezamen tweelingen voortbrengen, en geen onder hen is jongeloos.
 3. Uw lippen zijn als een scharlaken snoer, en uw spraak is lieflijk; de slaap uws hoofds is als een stuk van een granaatappel tussen uw vlechten.

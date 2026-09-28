@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 1
+
 1. Hetgeen van de beginne was, hetgeen wij gehoord hebben, hetgeen wij gezien hebben met onze ogen, hetgeen wij aanschouwd hebben, en onze handen getast hebben, van het Woord des levens; 
 2. Want het Leven is geopenbaard, en wij hebben het gezien, en wij getuigen, en verkondigen ulieden dat eeuwige Leven, Hetwelk bij de Vader was, en ons is geopenbaard. 
 3. Hetgeen wij dan gezien en gehoord hebben, dat verkondigen wij u, opdat ook gij met ons gemeenschap zoudt hebben, en deze onze gemeenschap ook zij met de Vader, en met Zijn Zoon Jezus Christus. 

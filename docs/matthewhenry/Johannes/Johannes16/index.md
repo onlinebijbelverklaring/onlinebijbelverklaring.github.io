@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 16
+
 1. DEZE dingen heb Ik tot u gesproken, opdat gij niet geërgerd wordt.
 2. Zij zullen u uit de synagogen werpen; ja, de ure komt, dat een iegelijk die u zal doden, zal menen Gode een dienst te doen.
 3. En deze dingen zullen zij u doen, omdat zij den Vader niet gekend hebben noch Mij.

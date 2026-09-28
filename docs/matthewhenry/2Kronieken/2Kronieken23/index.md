@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 23
+
 1. Doch in het zevende jaar versterkte zich Jojada, en nam de oversten der honderden, Azarja, de zoon van Jeroham en Ismael, de zoon van Johanan, en Azarja, de zoon van Obed, en Maaseja, de zoon van Adaja, en Elisafat, de zoon van Zichri, met zich in een verbond. 
 2. Die togen om in Juda, en vergaderden de Levieten uit alle steden van Juda, en de hoofden der vaderen van Israël, en zij kwamen naar Jeruzalem. 
 3. En die ganse gemeente maakte een verbond in het huis Gods, met de koning; en hij zeide tot hen: Ziet, de zoon des konings zal koning zijn, gelijk als de HEERE van de zonen van David gesproken heeft. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 2
+
 1. MIJN zoon, zo gij mijn redenen aanneemt, en mijn geboden bij u weglegt,
 2. Om uw oren naar wijsheid te doen opmerken, zo gij uw hart tot verstandigheid neigt,
 3. Ja, zo gij tot het verstand roept, uw stem verheft tot de verstandigheid,

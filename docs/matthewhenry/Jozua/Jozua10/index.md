@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 10
+
 1. Het geschiedde nu, toen Adoni-zedek, de koning van Jeruzalem, gehoord had, dat Jozua Ai ingenomen, en haar verbannen had, en aan Ai en haar koning alzo gedaan had, gelijk als hij aan Jericho en haar koning gedaan had; en dat de inwoners van Gibeon vrede met Israël gemaakt hadden, en in derzelver midden waren; 
 2. Zo vreesden zij zeer; want Gibeon was een grote stad, als een der koninklijke steden; ja, zij was groter dan Ai, en al haar mannen waren sterk. 
 3. Daarom zond Adoni-zedek, koning van Jeruzalem, tot Hoham, de koning van Hebron, en tot Pir-am, de koning van Jarmuth, en tot Jafia, de koning van Lachis, en tot Debir, de koning van Eglon, zeggende: 

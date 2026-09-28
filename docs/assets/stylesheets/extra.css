@@ -1,0 +1,95 @@
+/* ==========================================================================
+   Tekstgrootte Logica - Uitsluitend de artikelinhoud (.md-content)
+   ========================================================================== */
+
+/* 1. Schaal alleen het hoofdartikel en NIET de sidebars of TOC */
+.md-content .md-typeset {
+  font-size: calc(0.8rem * var(--content-font-scale, 1)) !important;
+}
+
+/* 2. Zorg dat tekstblokken binnen het artikel de geschaalde grootte overnemen */
+.md-content .md-typeset p,
+.md-content .md-typeset li,
+.md-content .md-typeset td,
+.md-content .md-typeset blockquote {
+  font-size: inherit;
+}
+
+/* ==========================================================================
+   TOC & Zijbalken Fixeren (Voorkom meeschalen van de navigatie)
+   ========================================================================== */
+
+/* Zet de linker- en rechterzijbalk vast op de standaard theMAGrootte */
+.md-sidebar,
+.md-sidebar--primary,
+.md-sidebar--secondary,
+.md-nav--secondary,
+.md-nav__list,
+.md-nav__item,
+.md-nav__link {
+  font-size: 0.64rem !important;
+}
+
+/* De titel van de TOC ("Inhoudsopgave") vastzetten */
+.md-nav__title {
+  font-size: 0.65rem !important;
+}
+
+/* ==========================================================================
+   TOC Font Size Control Styling (Knoppenbalk)
+   ========================================================================== */
+
+.font-size-toc-container {
+  display: flex;
+  align-items: center;
+  justify-content: center;
+  padding: 0.4rem 0;
+  margin: 0.6rem 0.8rem 0.8rem 0.8rem;
+  font-size: 1rem; /* Blijft onafhankelijk van de schaal */
+}
+
+.font-size-buttons {
+  display: flex;
+  align-items: center;
+  justify-content: center;
+  gap: 8px;
+}
+
+.font-size-btn {
+  display: inline-flex;
+  align-items: center;
+  justify-content: center;
+  width: 32px;
+  height: 32px;
+  padding: 0;
+  margin: 0;
+  background-color: var(--md-default-bg-color--subtle, rgba(255, 255, 255, 0.05));
+  border: 1px solid var(--md-default-fg-color--lightest, rgba(255, 255, 255, 0.15));
+  border-radius: 6px;
+  color: var(--md-default-fg-color);
+  cursor: pointer;
+  box-sizing: border-box;
+  transition: background-color 0.15s ease, color 0.15s ease, border-color 0.15s ease;
+}
+
+.font-size-btn:hover {
+  background-color: var(--md-accent-fg-color, #3f51b5);
+  color: #ffffff;
+  border-color: var(--md-accent-fg-color, #3f51b5);
+}
+
+/* Standaard icoongrootte (reset-icoon) */
+.font-size-btn svg {
+  width: 17px;
+  height: 17px;
+  display: block;
+  pointer-events: none;
+  stroke-width: 2.2px;
+}
+
+/* Arrow UP en DOWN icoontjes */
+#fs-decrease svg,
+#fs-increase svg {
+  width: 20px;
+  height: 20px;
+}

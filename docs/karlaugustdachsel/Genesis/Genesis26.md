@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 26
+
 IZAAK’S OMZWERVEN EN VERBLIJF TE GERAR. TWIST OVER WATERPUTTEN. VERBOND MET ABIMELECH.
 
 ## I Vers 1-11

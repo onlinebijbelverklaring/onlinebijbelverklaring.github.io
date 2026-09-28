@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 27
+
 1. EEN psalm van David. De HEERE is mijn Licht en mijn Heil, voor wien zou ik vrezen? De HEERE is mijns levens Kracht, voor wien zou ik vervaard zijn?
 2. Als de bozen, mijn tegenpartijen en mijn vijanden tegen mij, tot mij naderden om mijn vlees te eten, stieten zij zelven aan, en vielen.
 3. Ofschoon mij een leger belegerde, mijn hart zou niet vrezen; ofschoon een oorlog tegen mij opstond, zo vertrouw ik hierop.

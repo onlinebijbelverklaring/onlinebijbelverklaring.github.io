@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 14
+
 1. Ziet, de dag komt de HEERE, dat uw roof zal uitgedeeld worden in het midden van u, o Jeruzalem! 
 2. Want Ik zal alle heidenen tegen Jeruzalem ten strijde verzamelen; en de stad zal ingenomen, en de huizen zullen geplunderd, en de vrouwen zullen geschonden worden; en de helft der stad zal uitgaan in de gevangenis; maar het overige des volks zal uit de stad niet uitgeroeid worden. 
 3. En de HEERE zal uittrekken, en Hij zal strijden tegen die heidenen, gelijk ten dage als Hij gestreden heeft, ten dage des strijds. 

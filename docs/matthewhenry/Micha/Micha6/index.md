@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 6
+
 1. Hoort nu, wat de HEERE zegt: Maak u op, twist met de bergen, en laat de heuvelen uw stem horen. 
 2. Hoort, gij bergen! de twist des HEEREN, mitsgaders gij sterke fondamenten der aarde! want de HEERE heeft een twist met Zijn volk, en Hij zal Zich met Israël in recht begeven. 
 3. O Mijn volk! wat heb Ik u gedaan, en waarmede heb Ik u vermoeid? Betuig tegen Mij. 

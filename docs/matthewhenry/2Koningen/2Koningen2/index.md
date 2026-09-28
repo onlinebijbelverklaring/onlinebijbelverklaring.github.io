@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 2
+
 1. Het geschiedde nu, als de HEERE Elia met een onweder ten hemel opnemen zou, dat Elia met Elisa ging van Gilgal. 
 2. En Elia zeide tot Elisa: Blijf toch hier, want de HEERE heeft mij naar Beth-el gezonden. Maar Elisa zeide: Zo waarachtig als de HEERE leeft en uw ziel leeft, ik zal u niet verlaten! Alzo gingen zij af naar Beth-el. 
 3. Toen gingen de zonen der profeten, die te Beth-el waren, tot Elisa uit, en zeiden tot hem: Weet gij, dat de HEERE heden uw heer van uw hoofd wegnemen zal? En hij zeide: Ik weet het ook wel, zwijgt gij stil. 

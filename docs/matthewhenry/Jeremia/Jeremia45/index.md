@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 45
+
 1. HET woord dat de profeet Jeremía gesproken heeft tot Baruch, den zoon van Neríja, als hij die woorden uit den mond van Jeremía in een boek schreef, in het vierde jaar van Jójakim, den zoon van Josía, den koning van Juda, zeggende:
 2. Alzo zegt de HEERE, de God Israëls, van u, o Baruch.
 3. Gij zegt: Wee nu mij, want de HEERE heeft droefenis tot mijn smart gedaan; ik ben moede van mijn zuchten en vind geen rust.

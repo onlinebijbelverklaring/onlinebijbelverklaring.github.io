@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 11
+
 1. Voorts woonden de oversten des volks te Jeruzalem; maar het overige des volks wierpen loten, om uit tien één uit te brengen die in de heilige stad Jeruzalem zou wonen, en negen delen in de andere steden.
 2. En het volk zegende al de mannen die vrijwilliglijk aanboden te Jeruzalem te wonen.
 3. En dit zijn de hoofden van het landschap die te Jeruzalem woonden (maar in de steden van Juda woonden, een iegelijk op zijn bezitting, in hun steden, Israël, de priesters en de Levieten en de Nethínim en de kinderen der knechten van Sálomo):

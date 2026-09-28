@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 36
+
 1. Dit nu zijn de geboorten van Ezau, welke is Edom. 
 2. Ezau nam zijn vrouwen uit de dochteren van Kanaän, Ada, de dochter van Elon, de Hethiet, en Aholibama, de dochter van Ana, de dochter van Zibeon, de Heviet; 
 3. En Basmath, de dochter van Ismaël, zuster van Nebajoth. 

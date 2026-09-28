@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 21
+
 1. Het geschiedde nu na deze dingen, alzo Naboth, een Jizreëliet, een wijngaard had, die te Jizreël was, bij het paleis van Achab, de koning van Samaria. 
 2. Dat Achab sprak tot Naboth, zeggende: Geef mij uw wijngaard, opdat hij mij zij tot een kruidhof, dewijl hij nabij mijn huis is; en ik zal u daarvoor geven een wijngaard, die beter is dan die; of, zo het goed in uw ogen is, zal ik u in geld deszelfs waarde geven. 
 3. Maar Naboth zeide tot Achab: Dat late de HEERE verre van mij zijn, dat ik u de erve mijner vaderen geven zou! 

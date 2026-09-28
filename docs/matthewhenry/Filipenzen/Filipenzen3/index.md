@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filipenzen 3
+
 1. VOORTS, mijne broeders, verblijdt u in den Heere. Dezelfde dingen aan u te schrijven is mij niet verdrietig, en het is u zeker.
 2. Ziet op de honden, ziet op de kwade arbeiders, ziet op de versnijding.
 3. Want wij zijn de besnijding, wij die God in den geest dienen, en in Christus Jezus roemen en niet in het vlees betrouwen;

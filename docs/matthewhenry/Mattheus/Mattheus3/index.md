@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 3
+
 1. EN in die dagen kwam Johannes de Doper, predikende in de woestijn van Judéa,
 2. En zeggende: Bekeert u, want het Koninkrijk der hemelen is nabijgekomen.
 3. Want deze is het van denwelken gesproken is door Jesaja, den profeet, zeggende: De stem des roependen in de woestijn: Bereidt den weg des Heeren, maakt Zijn paden recht.

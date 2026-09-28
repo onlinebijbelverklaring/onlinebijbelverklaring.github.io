@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 7
+
 OVER DE HUICHELARIJ DER FARIZEEEN, HET DOCHTERTJE VAN DE HEIDENSE VROUW, EN EEN DOOFSTOMME
 
 ## I. Vers 1-23

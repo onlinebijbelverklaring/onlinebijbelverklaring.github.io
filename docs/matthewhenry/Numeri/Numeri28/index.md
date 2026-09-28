@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 28
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Gebied de kinderen Israëls, en zeg tot hen: Mijn offerande, Mijn spijze voor Mijn vuurofferen, Mijn liefelijken reuk, zult gij waarnemen, om Mij te offeren op zijn gezetten tijd. 
 3. En gij zult tot hen zeggen: Dit is het vuuroffer, hetwelk gij de HEERE offeren zult: twee volkomen eenjarige lammeren des daags, tot een gedurig brandoffer. 

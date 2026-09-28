@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 13
+
 1. EEN wijs zoon hoort de tucht des vaders, maar een spotter hoort de bestraffing niet.
 2. Eenieder zal van de vrucht des monds het goede eten, maar de ziel der trouwelozen het geweld.
 3. Die zijn mond bewaart, behoudt zijn ziel; maar voor hem is verstoring, die zijn lippen wijd opendoet.

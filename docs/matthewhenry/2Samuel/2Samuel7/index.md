@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 7
+
 1. En het geschiedde, als de koning in zijn huis zat, en de HEERE hem rust gegeven had van al zijn vijanden rondom, 
 2. Zo zeide de koning tot de profeet Nathan: Zie toch, ik woon in een cederen huis, en de ark Gods woont in het midden der gordijnen. 
 3. En Nathan zeide tot de koning: Ga heen, doe al wat in uw hart is, want de HEERE is met u. 

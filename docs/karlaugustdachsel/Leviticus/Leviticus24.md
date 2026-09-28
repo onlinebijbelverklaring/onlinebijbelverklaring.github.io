@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 24
+
 VAN DE KANDELAAR, VAN DE TOONBRODEN, DE STRAF, VAN GODSLASTERAARS EN DOODSLAGERS.
 
 ***1. En de HEERE, over de bijzonder heilige tijden gehandeld hebbende, sprak tot Mozes ook over de wijze, waarop behalve de Sabbat iedere afzonderlijke dag van de week, en behalve de feesten iedere afzonderlijke week van het jaar in Israël moest geheiligd worden, zeggende:***

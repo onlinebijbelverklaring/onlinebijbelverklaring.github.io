@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 15
+
 1. Daarna sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: Wanneer gij gekomen zult zijn in het land uwer woningen, dat Ik u geven zal; 
 3. En gij een vuuroffer de HEERE zult doen, een brandoffer, of slachtoffer, om af te zonderen een gelofte, of in een vrijwillig offer, of in uw gezette hoogtijden, om de HEERE een liefelijken reuk te maken, van runderen of van klein vee; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 9
+
 1. EN Zijn twaalf discipelen samengeroepen hebbende, gaf Hij hun kracht en macht over al de duivelen, en om ziekten te genezen;
 2. En zond hen heen om te prediken het Koninkrijk Gods, en de kranken gezond te maken.
 3. En Hij zeide tot hen: Neemt niets mede tot den weg, noch staven, noch male, noch brood, noch geld; noch iemand van u zal twee rokken hebben.

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Esther
+
 ## EEN VERKLARING MET PRAKICALE OPMERKINGEN VAN HET BOEK ESTHER
 
 Hoe Gods voorzienigheid waakte over de Joden, die uit de gevangenschap waren teruggekeerd naar hun eigen land, en welke grote en goede dingen voor hen gedaan werden, lazen wij in de twee vorige boeken. Maar er waren nog velen achtergebleven, die geen ijver genoeg hadden voor Gods huis, voor het heilige land en de stad, om de moeilijkheden te trotseren, die aan een verhuizen daarheen waren verbonden. Nu zou men denken dat dezen van de bijzondere bescherming van God waren buitengesloten, als onwaardig de naam van Israëlieten te dragen; maar onze God doet niet met ons naar onze dwaasheid en zwakheid. Wij zien in dit boek dat zelfs voor die Joden, welke verstrooid waren in de gewesten der heidenen, gezorgd werd, evengoed als voor die in het land van Juda vergaderd waren, en dat zij wonderbaarlijk bewaard werden, toen zij ten verderve waren gewijd en als schapen voor de slachtbank overgegeven waren. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 17
+
 DE BELOFTE OMTRENT IZAAK WORDT DOOR DE BESNIJDENIS BEVESTIGD
 
 ## I. Vers 1-14

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 28
+
 1. Toen vergaderde David te Jeruzalem alle oversten van Israël, de oversten der stammen, en de oversten der verdelingen, de koning dienende, en de oversten der duizenden, en de oversten der honderden, en de oversten van alle have en vee des konings en zijner zonen, met de kamerlingen, en de helden, ja, allen kloeken held. 
 2. En de koning David stond op zijn voeten, en hij zeide: Hoort mij, mijn broeders, en mijn volk! Ik had in mijn hart een huis der rust voor de ark des verbonds des HEEREN te bouwen, en voor de voetbank der voeten onzes Gods, en ik heb gereedschap gemaakt om te bouwen. 
 3. Maar God heeft tot mij gezegd: Gij zult Mijn Naam geen huis bouwen, want gij zijt een krijgsman, en gij hebt veel bloeds vergoten. 

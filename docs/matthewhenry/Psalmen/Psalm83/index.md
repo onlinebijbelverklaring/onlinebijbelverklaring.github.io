@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 83
+
 1. EEN lied, een psalm van Asaf.
 2. O God, zwijg niet, houd U niet als doof, en zijt niet stil, o God.
 3. Want zie, Uw vijanden maken getier, en Uw haters steken den kop op.

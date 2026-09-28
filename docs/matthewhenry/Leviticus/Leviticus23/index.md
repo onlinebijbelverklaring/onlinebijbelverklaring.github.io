@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 23
+
 1. Daarna sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: De gezette hoogtijden des HEEREN, welke gijlieden uitroepen zult, zullen heilige samenroepingen zijn; deze zijn Mijn gezette hoogtijden. 
 3. Zes dagen zal men het werk doen, maar op de zevenden dag is de sabbat der rust, een heilige samenroeping; geen werk zult gij doen; het is des HEEREN sabbat, in al uw woningen. 

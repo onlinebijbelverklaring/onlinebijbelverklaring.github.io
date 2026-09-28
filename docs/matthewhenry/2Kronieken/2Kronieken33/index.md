@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 33
+
 1. Manasse was twaalf jaren oud, als hij koning werd, en regeerde vijf en vijftig jaren te Jeruzalem. 
 2. En hij deed dat kwaad was in de ogen des HEEREN, naar de gruwelen der heidenen, die de HEERE voor het aangezicht der kinderen Israëls uit de bezitting verdreven had. 
 3. Want hij bouwde de hoogten weder op, die zijn vader Jehizkia afgebroken had, en richtte de Baals altaren op, en maakte bossen, en boog zich neder voor al het heir des hemels, en diende ze; 

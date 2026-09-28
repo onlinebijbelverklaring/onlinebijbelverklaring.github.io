@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 36
+
 1. ELIHU ging nog voort en zeide:
 2. Verbeid mij een weinig, en ik zal u aanwijzen, dat er nog redenen voor God zijn.
 3. Ik zal mijn gevoelen van verre ophalen, en mijn Schepper gerechtigheid toewijzen.

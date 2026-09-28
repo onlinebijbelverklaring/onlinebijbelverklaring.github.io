@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 54
+
 1. EEN onderwijzing van David, voor den opperzangmeester, op Neginôth;
 2. Als de Zifieten gekomen waren en tot Saul gezegd hadden: Verbergt zich David niet bij ons?
 3. O God, verlos mij door Uw Naam, en doe mij recht door Uw macht.

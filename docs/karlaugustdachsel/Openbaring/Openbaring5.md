@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 5
+
 CHRISTUS, DE LEEUW EN HET LAM, DIE HET VERZEGELDE BOEK OPENT, WORDT IN EEN NIEUW LIED GEPREZEN
 
 ## II. Vers 1-14

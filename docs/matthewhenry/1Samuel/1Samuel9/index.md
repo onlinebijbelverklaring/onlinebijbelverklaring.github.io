@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 9
+
 1. Er was nu een man van Benjamin, wiens naam was Kis, een zoon van Abiel, de zoon van Zeror, de zoon van Bechorath, de zoon van Afiah, de zoon eens mans van Jemini, een dapper held. 
 2. Die had een zoon, wiens naam was Saul, een jongeling, en schoon, ja, er was geen schoner man dan hij onder de kinderen Israëls; van zijn schouderen en opwaarts was hij hoger dan al het volk. 
 3. De ezelinnen nu van Kis, de vader van Saul, waren verloren; daarom zeide Kis tot zijn zoon Saul: Neem nu een van de jongens met u, en maak u op, ga heen, zoek de ezelinnen. 

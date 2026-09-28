@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 2
+
 1. DAARNA ben ik, na veertien jaren, wederom naar Jeruzalem opgegaan met Bárnabas, ook Titus medegenomen hebbende.
 2. En ik ging op door een openbaring, en stelde hun het Evangelie voor, dat ik predik onder de heidenen; en in het bijzonder dengenen die in achting waren, opdat ik niet enigszins tevergeefs zou lopen of gelopen hebben.
 3. Maar ook Titus, die met mij was, een Griek zijnde, werd niet genoodzaakt zich te laten besnijden;

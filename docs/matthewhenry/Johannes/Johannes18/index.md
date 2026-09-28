@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 18
+
 1. JEZUS dit gezegd hebbende, ging uit met Zijn discipelen over de beek Kidron, waar een hof was, in welken Hij ging en Zijn discipelen.
 2. En Judas, die Hem verried, wist ook die plaats, dewijl Jezus aldaar dikwijls vergaderd was geweest met Zijn discipelen.
 3. Judas dan, genomen hebbende de bende krijgsknechten en enige dienaars van de overpriesters en farizeeën, kwam aldaar met lantaarnen en fakkels en wapenen.

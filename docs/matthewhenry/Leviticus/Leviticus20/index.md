@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 20
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Gij zult ook tot de kinderen Israëls zeggen: Een ieder uit de kinderen Israëls, of uit de vreemdelingen, die in Israël als vreemdelingen verkeren, die van zijn zaad de Molech gegeven zal hebben, zal zekerlijk gedood worden; het volk des lands zal hem met stenen stenigen. 
 3. En Ik zal Mijn aangezicht tegen dien man zetten, en zal hem uit het midden zijns volks uitroeien; want hij heeft van zijn zaad de Molech gegeven, opdat hij Mijn heiligdom ontreinigen, en Mijn heiligen Naam ontheiligen zou. 

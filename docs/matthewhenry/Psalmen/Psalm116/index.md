@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 116
+
 1. IK heb lief, want de HEERE hoort mijn stem, mijn smekingen.
 2. Want Hij neigt Zijn oor tot mij; dies zal ik Hem in mijn dagen aanroepen.
 3. De banden des doods hadden mij omvangen, en de angsten der hel hadden mij getroffen; ik vond benauwdheid en droefenis.

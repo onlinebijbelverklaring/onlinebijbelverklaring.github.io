@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Nehemia
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK NEHÉMIA
 
 Dit boek vervolgt de geschiedenis van de KINDEREN DER GEVANGENSCHAP, de arme Joden, die nu onlangs uit Babel naar hun eigen land waren teruggekeerd. Te dier tijd bloeide niet alleen de Perzische monarchie in grote pracht en macht, maar ook Griekenland en Rome begonnen zeer groot te worden, en een zeer aanzienlijke rol te spelen in de wereldgeschiedenis. Van de zaken dezer hoge en machtige staten zijn authentieke berichten in wezen; maar de gewijde, door de Heiligen Geest ingegeven, geschiedenis neemt slechts kennis van de staat der Joden, en maakt geen melding van andere volken, dan voor zover het Israël Gods tot hen in betrekking stond; want des Heeren deel is Zijn volk, zij zijn Zijn bijzondere schat, en in vergelijking met hen is het overige deel der wereld slechts van geringe waardij, Ezra, de Schriftgeleerde, en Nehémia, de tirsatha, hebben nooit een kroon gedragen, geen leger aangevoerd, geen land veroverd, waren niet beroemd voor filosofie of welsprekendheid, maar beiden weren Godvruchtige biddende mannen, en in hun tijd van zeer grote dienst voor de kerk Gods en de belangen van de Godsdienst, en daarom zijn zij in mijne schatting groter mannen en meer eerwaardig, niet alleen dan iemand uit de Romeinse consuls of dictators, maar dan Xenophon, of Demosthenes, of zelfs Plato, die in dezelfden tijd geleefd hebben, en de schitterende sieraden waren van Griekenland. 

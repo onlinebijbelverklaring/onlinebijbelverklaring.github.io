@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 10
+
 1. Dit nu zijn de geboorten van Noachs zonen: Sem, Cham, en Jafeth; en hun werden zonen geboren na de vloed. 
 2. De zonen van Jafeth zijn: Gomer, en Magog, en Madai, en Javan, en Tubal, en Mesech, en Thiras. 
 3. En de zonen van Gomer zijn: Askenaz, en Rifath, en Togarma. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 22
+
 1. En David zeide: Hier zal het huis Gods des HEEREN zijn, en hier zal het altaar des brandoffers voor Israël zijn. 
 2. En David zeide, dat men vergaderen zou de vreemdelingen, die in het land Israëls waren; en hij bestelde steenhouwers, om uit te houwen stenen, welke men behouwen zou, om het huis Gods te bouwen. 
 3. En David bereidde ijzer in menigte, tot nagelen aan de deuren der poorten, en tot de samenvoegingen; ook koper in menigte, zonder gewicht; 

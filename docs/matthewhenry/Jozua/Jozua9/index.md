@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 9
+
 1. En het geschiedde, toen dit hoorden al de koningen, die aan deze zijde van de Jordaan waren, op het gebergte, en in de laagte, en aan alle havens der grote zee, tegenover de Libanon: de Hethieten, en de Amorieten, de Kanaänieten, de Ferezieten, de Hevieten, en de Jebusieten; 
 2. Zo vergaderden zij zich samen, om tegen Jozua en tegen Israël te krijgen, eenmoedig. 
 3. Als de inwoners te Gibeon hoorden, wat Jozua met Jericho en met Ai gedaan had, 

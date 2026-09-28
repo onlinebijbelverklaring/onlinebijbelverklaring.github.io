@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 17
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot Aäron, en tot zijn zonen, en tot al de kinderen Israëls, en zeg tot hen: Dit is het woord, hetwelk de HEERE geboden heeft, zeggende: 
 3. Een ieder van het huis Israëls, die een os, of lam, of geit in het leger slachten zal, of die ze slachten zal buiten het leger; 

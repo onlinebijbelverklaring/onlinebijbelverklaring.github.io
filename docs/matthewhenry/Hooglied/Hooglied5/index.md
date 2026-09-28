@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 5
+
 1. IK ben in Mijn hof gekomen, o Mijn zuster, o bruid. Ik heb Mijn mirre geplukt, met Mijn specerij; Ik heb Mijn honingraten met Mijn honing gegeten; Ik heb Mijn wijn mitsgaders Mijn melk gedronken. Eet, vrienden, drinkt, en wordt dronken, o liefsten.
 2. Ik sliep, maar mijn hart waakte; de stem mijns Liefsten, Die klopte, was: Doe Mij open, Mijn zuster, Mijn vriendin, Mijn duive, Mijn volmaakte; want Mijn hoofd is vervuld met dauw, Mijn haarlokken met nachtdruppen.
 3. Ik heb mijn rok uitgetogen, hoe zal ik hem weder aantrekken? Ik heb mijn voeten gewassen, hoe zal ik ze weder bezoedelen?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 6
+
 WAARSCHUWING TEGEN AFVAL, AANMANING TOT VOLHARDING
 
 ***1. Laten wij ons daarom richten op de volmaaktheid, omdat het met de lange tijd dat gij christen zijt, beter overeenkomt u vast voedsel dan melk te geven en laten we het beginsel van de leer van Christus, de christelijke leer in haar eerste beginselen, die melk voor de onervarenen (hoofst. 5: 12v.), laten rusten. Laat ons zonder verder omhaal van woorden overgaan tot een zaak die alleen met de volwassenen (hoofst. 5: 14) kan worden behandeld. Wij willen dat doen, niet weer (hoofst. 5: 11) alsof gij nog ongeoefend was, door het fundament van de bekering van dode werken en van het geloof in God te leggen. Daarvan zouden wij moeten spreken als wij mensen voor ons hadden die nog bekeerd moesten worden van farizese werkheiligheid en die nog zonder het levend geloof in God zijn gebleven (hoofst. 9: 14 Jak. 2: 19).***

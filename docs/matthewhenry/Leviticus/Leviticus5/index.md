@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 5
+
 1. Als nu een mens zal gezondigd hebben, dat hij gehoord heeft een stem des vloeks, waarvan hij getuige is, hetzij dat hij het gezien of geweten heeft; indien hij het niet te kennen geeft, zo zal hij zijn ongerechtigheid dragen. 
 2. Of wanneer een mens enig onrein ding zal aangeroerd hebben, hetzij het dode aas van een wild onrein gedierte, of het dode aas van onrein vee, of het dode aas van onrein kruipend gedierte; al is het voor hem verborgen geweest, nochtans is hij onrein en schuldig. 
 3. Of als hij zal aangeroerd hebben de onreinheid van een mens, naar al zijn onreinheid, waarmede hij onrein wordt; en het is voor hem verborgen geweest, en hij is het gewaar geworden, zo is hij schuldig. 

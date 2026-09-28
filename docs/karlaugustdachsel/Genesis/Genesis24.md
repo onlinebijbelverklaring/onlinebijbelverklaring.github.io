@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 24
+
 ZAAK HUWT REBEKKA.
 
 ## I. Vers 1-9

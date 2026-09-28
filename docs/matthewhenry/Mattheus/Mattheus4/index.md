@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 4
+
 1. TOEN werd Jezus van den Geest weggeleid in de woestijn, om verzocht te worden van den duivel.
 2. En als Hij veertig dagen en veertig nachten gevast had, hongerde Hem ten laatste.
 3. En de verzoeker tot Hem gekomen zijnde, zeide: Indien Gij Gods Zoon zijt, zeg dat deze stenen broden worden.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 6
+
 1. En de kinderen der profeten zeiden tot Elisa: Zie nu, de plaats, waar wij wonen voor uw aangezicht, is voor ons te eng. 
 2. Laat ons toch tot aan de Jordaan gaan, en elk van daar een timmerhout halen, dat wij ons daar een plaats maken, om er te wonen. En hij zeide: Gaat heen. 
 3. En er zeide een: Het believe u toch te gaan met uw knechten. En hij zeide: Ik zal gaan. 

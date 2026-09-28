@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 3
+
 1. ALLES heeft een bestemden tijd, en alle voornemen onder den hemel heeft zijn tijd.
 2. Er is een tijd om geboren te worden en een tijd om te sterven; een tijd om te planten en een tijd om het geplante uit te roeien;
 3. Een tijd om te doden en een tijd om te genezen; een tijd om af te breken en een tijd om te bouwen;

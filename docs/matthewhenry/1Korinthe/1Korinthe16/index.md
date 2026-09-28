@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 16
+
 1. AANGAANDE nu de verzameling die voor de heiligen geschiedt, gelijk als ik den gemeenten in Galátië verordineerd heb, doet ook gij alzo.
 2. Op elken eersten dag der week legge een iegelijk van u iets bij zichzelven weg, vergaderende een schat, naar dat hij welvaren verkregen heeft; opdat de verzamelingen alsdan niet eerst geschieden wanneer ik gekomen zal zijn.
 3. En wanneer ik daar zal gekomen zijn, die gij zult bekwaam achten door brieven, dezelve zal ik zenden om uw gave naar Jeruzalem over te dragen.

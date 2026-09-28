@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 12
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, zeggende: Wanneer een vrouw zaad gegeven, en een knechtje gebaard zal hebben, zo zal zij zeven dagen onrein zijn; volgens de dagen der afzondering harer krankheid zal zij onrein zijn. 
 3. En op de achtsten dag zal het vlees zijner voorhuid besneden worden. 

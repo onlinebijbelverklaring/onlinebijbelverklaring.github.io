@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 20
+
 1. Toen sprak God al deze woorden, zeggende: 
 2. Ik ben de HEERE uw God, Die u uit Egypteland, uit het diensthuis, uitgeleid heb. 
 3. Gij zult geen andere goden voor Mijn aangezicht hebben. 

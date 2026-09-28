@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 19
+
 1. In de derde maand, na het uittrekken der kinderen Israëls uit Egypteland, ten zelfden dage kwamen zij in de woestijn Sinai. 
 2. Want zij togen uit Rafidim, en kwamen in de woestijn Sinai, en zij legerden zich in de woestijn; Israël nu legerde zich aldaar tegenover dien berg. 
 3. En Mozes klom op tot God. En de HEERE riep tot hem van de berg, zeggende: Aldus zult gij tot het huis van Jakob spreken, en de kinderen Israëls verkondigen: 

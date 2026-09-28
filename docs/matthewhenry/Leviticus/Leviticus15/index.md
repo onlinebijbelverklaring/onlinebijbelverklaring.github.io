@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 15
+
 1. Verder sprak de HEERE tot Mozes en tot Aäron, zeggende: 
 2. Spreekt tot de kinderen Israëls, en zegt tot hen: Een ieder man, als hij vloeiende zal zijn uit zijn vlees, zal om zijn vloed onrein zijn. 
 3. Dit nu zal zijn onreinheid om zijn vloed zijn: zo zijn vlees zijn vloed uitzevert, of zijn vlees van zijn vloed zich verstopt, dat is zijn onreinheid. 

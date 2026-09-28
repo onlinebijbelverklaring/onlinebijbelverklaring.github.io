@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 22
+
 1. DE naam is uitgelezener dan grote rijkdom, de goede gunst dan zilver en dan goud.
 2. Rijken en armen ontmoeten elkander; de HEERE heeft hen allen gemaakt.
 3. Een kloekzinnig mens ziet het kwaad en verbergt zich, maar de slechten gaan henen door en worden gestraft.

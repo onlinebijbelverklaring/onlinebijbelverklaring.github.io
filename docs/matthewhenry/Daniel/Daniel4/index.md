@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 4
+
 1. DE koning Nebukadnézar aan alle volken, natiën en tongen, die op den gansen aardbodem wonen: Uw vrede worde vermenigvuldigd.
 2. Het behaagt mij te verkondigen de tekenen en wonderen, die de allerhoogste God aan mij gedaan heeft.
 3. Hoe groot zijn Zijn tekenen, en hoe machtig Zijn wonderen! Zijn Rijk is een eeuwig Rijk en Zijn heerschappij is van geslacht tot geslacht.

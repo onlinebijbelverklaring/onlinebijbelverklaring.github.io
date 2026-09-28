@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 2
+
 1. En de HEERE sprak tot Mozes en tot Aäron, zeggende: 
 2. De kinderen Israëls zullen zich legeren, een ieder onder zijn banier, naar de tekenen van het huis hunner vaderen; rondom tegenover de tent der samenkomst zullen zij zich legeren. 
 3. Die zich nu legeren zullen oostwaarts tegen de opgang, zal zijn de banier des legers van Juda, naar hun heiren; en Nahesson, de zoon van Amminadab, zal de overste der zonen van Juda zijn. 

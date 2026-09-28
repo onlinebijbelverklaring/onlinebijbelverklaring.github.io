@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 5
+
 1. WANT wij weten dat, zo ons aardse huis dezes tabernakels gebroken wordt, wij een gebouw van God hebben, een huis niet met handen gemaakt, maar eeuwig, in de hemelen.
 2. Want ook in dezen zuchten wij, verlangende met onze woonstede die uit den hemel is, overkleed te worden;
 3. Zo wij ook bekleed en niet naakt zullen gevonden worden.

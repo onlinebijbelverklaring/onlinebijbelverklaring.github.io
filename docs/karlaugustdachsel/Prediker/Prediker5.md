@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 5
+
 OVER DEN WEG TOT HET WARE GELUK.
 
 ## III. Hoofdstuk 4:17-Hoofdstuk 5:19

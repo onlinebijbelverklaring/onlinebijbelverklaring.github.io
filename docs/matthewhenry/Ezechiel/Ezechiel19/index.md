@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 19
+
 1. VERDER, hef gij een weeklage op over de vorsten van Israël,
 2. En zeg: Wat was uw moeder? Een leeuwin, onder de leeuwen nederliggende; zij bracht haar welpen op in het midden der jonge leeuwen.
 3. Zij toog nu een van haar welpen op; het werd een jonge leeuw; die leerde roof te roven, hij at mensen op.

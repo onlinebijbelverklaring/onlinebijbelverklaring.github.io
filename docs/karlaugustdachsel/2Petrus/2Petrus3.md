@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Petrus 3
+
 OVER DE LAATSTE TIJDEN, CHRISTUS TOEKOMST EN DE WAARDIGE VOORBEREIDING DAARTOE
 
 b. Vs. 1-16. De tweede helft komt met die van het eerste deel in Hoofdstuk 1: 12-21 2Pe overeen. Deze bevatte een aanmaning tot getrouwheid in de vaste hoop op latere volmaking. Ook deze begint eveneens in enkele verzen tot inleiding met een woord van de apostel over het doel van zijn schrijven, waarbij hij tevens aan zijn vorig schrijven aan diezelfde lezers herinnert en ook de strekking ervan aanwijst (vs. 1 en 2). Daaraan knoopt hij vervolgens een waarschuwing aan, om zich te wachten voor de spotters, die aan het einde van de tijden te wachten zijn, die steunend op het bestaan van de wereld tot op deze tijd, de terugkomst van de Heere en een einde van de dingen loochenen, maar daarmee voor hen het gehele gebouw van de Christelijke hoop en van alle daarmee samenhangende vermaning omverstoten. Hij karakteriseert hen wat hun levenswandel aangaat en laat hen met hun eigen woorden hun mening uitspreken, om dadelijk de verkeerdheid ervan geschiedkundig aan te wijzen en met dat geschiedkundig feit de laatste ondergang van de wereld in parallel te stellen (vs. 3-7). Daarna wendt hij zich van hen af tot zijn lezers, om deze te zeggen, hoe het is met dat schijnbaar uitstel van de jongste dag, op welke wijze die eenmaal zal komen en hoe zij zich nu daarvoor moesten bereid houden, om de grote zaligheid, die die dag naast de eeuwige verdoemenis voor de goddelozen aan de waarheid voorbereiden, zal aanbrengen, deelachtig te worden (vs. 8-13). In voortzetting van zijn vermaning denkt hij aan zijn geliefde broeder Paulus, die de lezers ook reeds heeft vermaand, de lankmoedigheid van de Heere voor zaligheid te achten en verklaart zich tegen de verdraaiing, waarmee ongeleerde en onvaste mensen diens brieven verkeerd uitleggen en komt zo weer op de inhoud van Hoofdstuk 2 terug (vs. 14-16).

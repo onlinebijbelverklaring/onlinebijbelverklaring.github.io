@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 16
+
 1. Toen zeide de HEERE tot Samuël: Hoe lang draagt gij leed om Saul, dien Ik toch verworpen heb, dat hij geen koning zij over Israël? Vul uw hoorn met olie, en ga heen; Ik zal u zenden tot Isaï, de Bethlehemiet; want Ik heb Mij een koning onder zijn zonen uitgezien. 
 2. Maar Samuël zeide: Hoe zou ik heengaan? Saul zal het toch horen en mij doden. Toen zeide de HEERE: Neem een kalf van de runderen met u, en zeg: Ik ben gekomen, om de HEERE offerande te doen. 
 3. En gij zult Isaï ten offer nodigen, en Ik zal u te kennen geven, wat gij doen zult, en gij zult Mij zalven, dien Ik u zeggen zal. 

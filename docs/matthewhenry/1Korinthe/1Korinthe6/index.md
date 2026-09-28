@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 6
+
 1. DURFT iemand van ulieden, die een zaak heeft tegen een ander, te rechte gaan voor de onrechtvaardigen, en niet voor de heiligen?
 2. Weet gij niet dat de heiligen de wereld oordelen zullen? En indien door u de wereld geoordeeld wordt, zijt gij onwaardig de minste gerechtszaken?
 3. Weet gij niet dat wij de engelen oordelen zullen? Hoeveel te meer de zaken die dit leven aangaan!

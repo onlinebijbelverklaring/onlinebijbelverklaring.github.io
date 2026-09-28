@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 18
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, zeggende:
 2. Maak u op en ga af in het huis van den pottenbakker, en aldaar zal Ik u Mijn woorden doen horen.
 3. Zo ging ik af in het huis van den pottenbakker; en zie, hij maakte een werk op de schijven.

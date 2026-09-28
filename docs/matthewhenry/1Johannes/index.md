@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Johannes
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN DE EERSTE ALGEMENE BRIEF VAN DE APOSTEL JOHANNES
 
 Hoewel de voortdurende overlevering in de kerk verklaart, dat deze brief geschreven werd door de apostel Johannes, kunnen wij enige bewijzen daarvoor opmerken, die de zekerheid van deze overlevering bevestigen en in zeker opzicht in kracht overtreffen. Het blijkt dat de schrijver een van de twaalven was, door de duidelijke verklaring der zekerheid, die hij had van de waarheid van de persoon des Middelaars in Zijn menselijke natuur: Hetgeen wij gehoord hebben, hetgeen wij gezien hebben met onze ogen, hetgeen wij aanschouwd hebben en onze handen getast hebben van het woord des levens, vers 1. 

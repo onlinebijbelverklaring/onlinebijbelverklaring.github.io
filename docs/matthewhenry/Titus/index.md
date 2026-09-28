@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Titus
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN TITUS.
 
 De brief van Paulus aan Titus heeft veel overeenkomst met de brieven aan Timotheüs. Beiden waren door Paulus bekeerd en zijn deelgenoten in arbeid en in lijden; beiden waren in dienst als evangelisten, wier werk was de gemeenten nat te maken, welke de apostelen geplant hadden; en de dingen, die nog niet in orde waren, daar te regelen; zij waren vice-apostelen, werkende het werk des Heeren, en meest onder hun leiding; doch niet despotisch of willekeurig, maar met behoorlijk gebruik van eigen oordelen inzicht, 1 Corinthiërs 16:10,12. 

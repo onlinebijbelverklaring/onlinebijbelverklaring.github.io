@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 20
+
 1. EN op den eersten dag der week ging Maria Magdaléna vroeg, als het nog duister was, naar het graf, en zag den steen van het graf weggenomen.
 2. Zij liep dan en kwam tot Simon Petrus en tot den anderen discipel, welken Jezus liefhad, en zeide tot hen: Zij hebben den Heere weggenomen uit het graf, en wij weten niet waar zij Hem gelegd hebben.
 3. Petrus dan ging uit, en de andere discipel, en zij kwamen tot het graf.

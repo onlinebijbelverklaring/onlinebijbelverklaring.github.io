@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 13
+
 1. DIT is de derde maal dat ik tot u kom: in den mond van twee of drie getuigen zal alle woord bestaan.
 2. Ik heb het tevoren gezegd, en zeg het tevoren als tegenwoordig zijnde de tweede maal, en ik schrijf het nu afwezend aan degenen die tevoren gezondigd hebben, en aan al de anderen, dat zo ik wederom kom, ik hen niet zal sparen;
 3. Dewijl gij zoekt een proeve van Christus Die in mij spreekt, Welke in u niet zwak is, maar krachtig is onder u.

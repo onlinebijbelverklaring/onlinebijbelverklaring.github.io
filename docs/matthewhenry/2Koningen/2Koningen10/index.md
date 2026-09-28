@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 10
+
 1. Achab nu had zeventig zonen te Samaria; en Jehu schreef brieven, dewelke hij zond naar Samaria, tot de oversten van Jizreël, de oudsten, en tot de voedsterheren van Achab, zeggende: 
 2. Zo wanneer nu deze brief tot u zal gekomen zijn, dewijl de zonen van uw heer bij u zijn, ook de wagenen en de paarden bij u zijn, mitsgaders een vaste stad, en wapenen; 
 3. Zo ziet naar de beste en gerechtigste van de zonen uws heren, zet dien op zijns vaders troon; en strijdt voor het huis uws heren. 

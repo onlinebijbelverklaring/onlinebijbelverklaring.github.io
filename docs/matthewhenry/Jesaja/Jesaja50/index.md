@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 50
+
 1. ALZO zegt de HEERE: Waar is de scheidbrief van ulieder moeder, waarmede Ik haar weggezonden heb? Of wie is er van Mijn schuldeisers, aan wien Ik u verkocht heb? Zie, om uw ongerechtigheden zijt gij verkocht, en om uw overtredingen is uw moeder weggezonden.
 2. Waarom kwam Ik, en er was niemand? Waarom riep Ik, en niemand antwoordde? Is Mijn hand dus gans kort geworden, dat zij niet verlossen kan? Of is er in Mij geen kracht om uit te redden? Zie, door Mijn schelding maak Ik de zee droog, Ik stel de rivieren tot een woestijn, dat haar vis stinkt, omdat er geen water is, en sterft van dorst.
 3. Ik bekleed den hemel met zwartheid, en stel een zak tot zijn deksel.

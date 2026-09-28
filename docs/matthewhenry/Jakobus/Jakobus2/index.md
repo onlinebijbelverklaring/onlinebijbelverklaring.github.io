@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jakobus 2
+
 1. MIJNE broeders, hebt niet het geloof van onzen Heere Jezus Christus, den Heere der heerlijkheid, met aannemingen des persoons.
 2. Want zo in uw vergadering kwam een man met een gouden ring aan den vinger, in een sierlijke kleding, en er kwam ook een arm man in met een slechte kleding;
 3. En gij zoudt aanzien dengene die de sierlijke kleding draagt, en tot hem zeggen: Zit gij hier op een eerlijke plaats; en zoudt zeggen tot den arme: Sta gij daar; of: Zit hier onder mijn voetbank;

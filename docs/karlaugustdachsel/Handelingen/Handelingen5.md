@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 5
+
 PLOTSELINGE DOOD VAN ANANIAS EN SAFFIRA. GEVANGENNEMING EN REDDING VAN DE APOSTELEN.
 
 ***1. En een zeker man, met name Ananias of Hananja (Neh. 3: 23 Dan. 1: 6) (=" de Heere gedenkt" of "de Heere begenadigt, met Saffira (=" de Schone zijn vrouw, verkocht evenals Barnabas (hoofdstuk 4: 36v.) een have, bestaande in een stuk grond (vs. 3). Waar zo allen het deden (hoofdstuk 4: 34) die bezittingen hadden, meenden zij het vanwege hun welstand eveneens te moeten doen, het niet te kunnen laten.***

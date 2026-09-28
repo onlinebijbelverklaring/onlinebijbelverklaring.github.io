@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 4
+
 1. De kinderen van Juda waren Perez, Hezron en Charmi, en Hur, en Sobal. 
 2. En Reaja, de zoon van Sobal, gewon Jahath, en Jahath gewon Ahumai en Lahad; dit zijn de huisgezinnen der Zorathieten; 
 3. En dezen zijn van de vader Etam: Jizreël, en Isma, en Idbas; en de naam hunner zuster was Hazelelponi. 

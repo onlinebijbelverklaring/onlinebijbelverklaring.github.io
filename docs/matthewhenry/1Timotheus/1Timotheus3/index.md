@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Timotheus 3
+
 1. DIT is een getrouw woord: zo iemand tot eens opzieners ambt lust heeft, die begeert een treffelijk werk.
 2. Een opziener dan moet onberispelijk zijn, éner vrouwe man, wakker, matig, eerbaar, gaarne herbergende, bekwaam om te leren;
 3. Niet genegen tot den wijn, geen smijter, geen vuilgewinzoeker, maar bescheiden, geen vechter, niet geldgierig;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 10
+
 1. WEE dengenen die ongerechte inzettingen inzetten, en den schrijvers die moeite voorschrijven;
 2. Om de armen van het recht af te wenden en om het recht der ellendigen mijns volks te roven, opdat de weduwen hun buit worden en opdat zij de wezen mogen plunderen.
 3. Maar wat zult gijlieden doen ten dage der bezoeking, en der verwoesting die van verre komen zal? Tot wien zult gij vlieden om hulp en waar zult gij uw heerlijkheid laten?

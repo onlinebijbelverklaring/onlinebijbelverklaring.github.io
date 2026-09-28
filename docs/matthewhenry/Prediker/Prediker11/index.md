@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 11
+
 1. WERP uw brood uit op het water, want gij zult het vinden na vele dagen.
 2. Geef een deel aan zeven, ja, ook aan acht; want gij weet niet wat kwaad op de aarde wezen zal.
 3. Als de wolken vol geworden zijn, zo storten zij plasregen uit op de aarde; en als de boom naar het zuiden of als hij naar het noorden valt, in de plaats waar de boom valt, daar zal hij wezen.

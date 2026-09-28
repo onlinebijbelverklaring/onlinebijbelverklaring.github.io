@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 3
+
 1. Toen nu de zevende maand aankwam, en de kinderen Israëls in de steden waren, verzamelde zich het volk, als een enig man, te Jeruzalem. 
 2. En Jesua, de zoon van Jozadak, maakte zich op, en zijn broederen, de priesters en Zerubbabel, de zoon van Sealthiel, en zijn broederen, en zij bouwden het altaar des Gods van Israël, om daarop brandofferen te offeren, gelijk geschreven is in de wet van Mozes, de man Gods. 
 3. En zij vestigden het altaar op zijn stelling, maar met verschrikking, die over hen was, vanwege de volken der landen; en zij offerden daarop brandofferen de HEERE, brandofferen des morgens en des avonds. 

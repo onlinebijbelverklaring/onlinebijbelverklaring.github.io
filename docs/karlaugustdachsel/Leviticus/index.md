@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Leviticus
+
 HET DERDE BOEK VAN MOZES, LEVITICUS.
 
 (Priesterordening).

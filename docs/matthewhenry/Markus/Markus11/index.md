@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 11
+
 1. EN toen zij Jeruzalem genaakten, te Bethfagé en Bethanië aan den Olijfberg, zond Hij twee van Zijn discipelen uit,
 2. En zeide tot hen: Gaat heen in het vlek dat tegen u over is; en terstond als gij in hetzelve komt, zult gij vinden een veulen gebonden, op hetwelk geen mens gezeten heeft; ontbindt het en brengt het.
 3. En indien iemand tot u zegt: Waarom doet gij dat? zo zegt dat de Heere hetzelve van node heeft, en hij zal het terstond herwaarts zenden.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 31
+
 1. Toen hoorde hij de woorden der zonen van Laban, zeggende: Jakob heeft genomen alles, wat onzes vaders was, en van hetgeen, dat onzes vaders was, heeft hij al deze heerlijkheid gemaakt. 
 2. Jakob zag ook het aangezicht van Laban aan, en ziet, het was jegens hem niet als gisteren en eergisteren. 
 3. En de HEERE zeide tot Jakob: Keer weder tot het land uwer vaderen, en tot uw maagschap, en Ik zal met u zijn. 

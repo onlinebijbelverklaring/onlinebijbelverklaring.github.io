@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 20
+
 1. Het geschiedde nu na dezen, dat de kinderen Moabs, en de kinderen Ammons, en met hen anderen benevens de Ammonieten, kwamen tegen Jósafath ten strijde. 
 2. Toen kwamen er, die Jósafath boodschapten, zeggende: Daar komt een grote menigte tegen u van gene zijde der zee, uit Syrië; en zie, zij zijn te Hazezon-thamar, hetwelk is Engedi. 
 3. Jósafath nu vreesde, en stelde zijn aangezicht, om de HEERE te zoeken; en hij riep een vasten uit in gans Juda. 

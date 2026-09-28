@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 4
+
 1. Toen antwoordde Mozes, en zeide: Maar zie, zij zullen mij niet geloven, noch mijn stem horen; want zij zullen zeggen: De HEERE is u niet verschenen! 
 2. En de HEERE zeide tot hem: Wat is er in uw hand? En hij zeide: Een staf. 
 3. En Hij zeide: Werp hem ter aarde. En hij wierp hem ter aarde! Toen werd hij tot een slang; en Mozes vlood van haar. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 7
+
 1. Als nu Salomo voleind had te bidden, zo daalde het vuur van de hemel, en verteerde het brandoffer en de slachtofferen; en de heerlijkheid des HEEREN vervulde het huis. 
 2. En de priesters konden niet ingaan in het huis des HEEREN; want de heerlijkheid des HEEREN had het huis des HEEREN vervuld. 
 3. En als al de kinderen Israëls dat vuur zagen afdalen, en de heerlijkheid des HEEREN over het huis, zo bukten zij met hun aangezichten ter aarde op de vloer, en aanbaden en loofden de HEERE, dat Hij goedig is, dat Zijn weldadigheid is tot in eeuwigheid. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 21
+
 1. EN als zij nu Jeruzalem genaakten en gekomen waren te Bethfagé, aan den Olijfberg, toen zond Jezus twee discipelen, zeggende tot hen:
 2. Gaat heen in het vlek dat tegen u over ligt, en gij zult terstond een ezelin gebonden vinden en een veulen met haar; ontbindt ze en brengt ze tot Mij.
 3. En indien iemand u iets zegt, zo zult gij zeggen dat de Heere deze van node heeft, en hij zal ze terstond zenden.

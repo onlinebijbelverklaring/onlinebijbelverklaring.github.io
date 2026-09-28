@@ -1,10 +1,13 @@
+---
+icon: lucide/file-text
+---
 
 
 # Indeling
 
 Vijftig Bewijzen en Uitwerkselen van eigengerechtigheid, uit de Werken aangetoond door de Apostel Paulus aan de Galaten.
 
-## HOOFDSTUK I.
+## Hoofdstuk I
 1\. De mensen af te brengen van de roeping der genade.  
 2\. Een ander Evangelie te omhelzen.  
 3\. Der Gelovigen gemoederen te beroeren.  
@@ -17,7 +20,7 @@ Vijftig Bewijzen en Uitwerkselen van eigengerechtigheid, uit de Werken aangetoon
 10\. Dat de beste Gerechtigheid der wet niets is.  
 11\. De Gemeente Gods te verwoesten.  
 
-## HOOFDSTUK II.
+## Hoofdstuk II
 12\. Iemand te leren, dat hij door de Werken gerechtvaardigd wordt, betekent: te leren dat hij gerechtvaardigd wordt door iets dat onmogelijk is.  
 13\. De Gerechtvaardigde in Christus tot zondaars te stellen.  
 14\. Christus een dienaar der zonde te stellen.  
@@ -26,7 +29,7 @@ Vijftig Bewijzen en Uitwerkselen van eigengerechtigheid, uit de Werken aangetoon
 17\. De Genade van God te verwerpen.  
 18\. Te oordelen dat Christus tevergeefs gestorven is.  
 
-## HOOFDSTUK III.
+## Hoofdstuk III
 19\. Onzinnige Galaten te worden.  
 20\. Betoverd te worden.  
 21\. De Waarheid niet gehoorzaam te zijn.  
@@ -38,14 +41,14 @@ Vijftig Bewijzen en Uitwerkselen van eigengerechtigheid, uit de Werken aangetoon
 27\. Te maken dat de zonden overvloedig worden.  
 28\. Onder de zonden besloten te worden.  
 
-## HOOFDSTUK IV.
+## Hoofdstuk IV.
 29\. Onder de zwakke sobere eerste Beginselen (Elementen) dienstbaar te zijn.  
 30\. Dat het Evangelie tevergeefs alom verkondigd is.  
 31\. Dat de Gelovigen alles tevergeefs geleden en gewrocht hebben.  
 32\. Dienstbaar en een zoon van de slavin te worden.  
 33\. Met de zoon van de slavin uit de erfenis gesloten te worden.  
 
-## HOOFDSTUK V.
+## Hoofdstuk V
 34\. Dat Christus niet nut is.  
 35\. Schuldenaars te zijn om de gehele Wet te doen.  
 36\. Christus is u ijdel geworden.  
@@ -57,7 +60,7 @@ Vijftig Bewijzen en Uitwerkselen van eigengerechtigheid, uit de Werken aangetoon
 42\. Elkaar te verbijten en verteerd te worden.  
 43\. Zich nog onder de werken des vleses te bevinden, of daarvoor gehouden te worden.  
 
-## HOOFDSTUK VI.
+## Hoofdstuk VI
 44\. Zich inbeelden iets te zijn, daar hij niets is.  
 45\. In andere zaken dan in God te roemen.  
 46\. Vleselijk aan de vleselijke mensen te behagen.  

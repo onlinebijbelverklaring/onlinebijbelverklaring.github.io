@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 2
+
 1. GIJ dan, mijn zoon, word gesterkt in de genade die in Christus Jezus is;
 2. En hetgeen gij van mij gehoord hebt onder vele getuigen, betrouw dat aan getrouwe mensen, welke bekwaam zullen zijn om ook anderen te leren.
 3. Gij dan, lijd verdrukkingen, als een goed krijgsknecht van Jezus Christus.

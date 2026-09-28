@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 24
+
 1. ZIJT niet nijdig over de boze lieden, en laat u niet gelusten om bij hen te zijn.
 2. Want hun hart bedenkt verwoesting, en hun lippen spreken moeite.
 3. Door wijsheid wordt een huis gebouwd, en door verstandigheid bevestigd;

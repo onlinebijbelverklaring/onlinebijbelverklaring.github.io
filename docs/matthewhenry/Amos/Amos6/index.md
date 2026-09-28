@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 6
+
 1. Wee de gerusten te Sion, en de zekeren op de berg van Samaria! die de voornaamste zijn van de eerstelingen der volken, en tot dewelke die van het huis Israëls komen. 
 2. Gaat over naar Kalne, en ziet toe; en gaat van daar naar Hamath, de grote stad, en trekt af naar Gath der Filistijnen; of zij beter zijn dan deze koninkrijken, of hun landpaal groter dan uw landpale? 
 3. Gij, die de bozen dag verre stelt, en de stoel des gewelds nabij brengt. 

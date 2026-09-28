@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 18
+
 AAN ABRAHAM WORDT NOGMAALS IZAAK BELOOFD, EN TEVENS DE VERDELGING VAN SODOM GEOPENBAARD.
 
 ## I. Vers 1-15

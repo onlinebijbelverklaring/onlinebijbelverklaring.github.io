@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 4
+
 EEN GOED TOEZICHT BIJ HET PREDIKAMBT IS NODIG. PAULUS? STRIJD EN KROON
 
 ***1. Ik a) betuig dan en vermaan u onder plechtige verzekering (Hoofdstuk 2: 14. 1 Tim. 5: 21) voor God en de Heere Jezus Christus, die de levenden en doden oordelen zal en dus ook over u het oordeel zal vellen, hetzij dat u, als Hij komt, nog in leven bent of reeds ontslapen bent (Hand. 10: 42. 2 Thessalonicenzen. 1: 10. 1 Petrus 4: 5 in Zijn verschijning (1 Tim. 6: 14) en in Zijn koninkrijk, dat toekomstig is, dat u uw plicht getrouw betracht. Dan toch zal de vraag zijn, of u zult kunnen bestaan voor Hem, de Zoon des mensen (Luk. 21: 36) en een oordeel van Hem zult mogen vernemen, dat ons tot deelgenoten van zijn heerlijkheid verklaart (MATTHEUS. 25: 34).***

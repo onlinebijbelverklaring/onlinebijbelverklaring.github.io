@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 18
+
 1. VERDER geschiedde des HEEREN woord tot mij, zeggende:
 2. Wat is ulieden, dat gij dit spreekwoord gebruikt van het land Israëls, zeggende: De vaders hebben onrijpe druiven gegeten, en de tanden der kinderen zijn stomp geworden?
 3. Zo waarachtig als Ik leef, spreekt de Heere HEERE, zo het ulieden meer gebeuren zal, dit spreekwoord in Israël te gebruiken!

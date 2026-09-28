@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 10
+
 ***1. Dit uitzenden van arbeiders in de oogst van Zijn hemelse Vader wilde Hij, als de Zoon in het huis van de Vader (hoofdstuk 21: 37vv. ), voorlopig reeds aanstonds bewerken. En a) Zijn twaalf discipelen, die Hij reeds een half jaar geleden had gekozen, tot Zich geroepen hebbende, 1) heeft Hij hun, opdat zij niet alleen het Evangelie zouden verkondigen, maar ook de ongelukkigen helpen, macht gegeven over de onreine geesten om die uit te werpen en om elke ziekte en elke kwaal te genezen. 2) (hoofdstuk 4: 23vv. 8: 16vv. 9: 35).***
 
 a) Mark. 3: 13 Luk. 6: 18; 9: 1

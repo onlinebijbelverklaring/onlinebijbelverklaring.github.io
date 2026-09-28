@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 26
+
 1. EEN psalm van David. Doe mij recht, HEERE, want ik wandel in mijn oprechtheid; en ik vertrouw op den HEERE, ik zal niet wankelen.
 2. Proef mij, HEERE, en verzoek mij; toets mijn nieren en mijn hart.
 3. Want Uw goedertierenheid is voor mijn ogen, en ik wandel in Uw waarheid.

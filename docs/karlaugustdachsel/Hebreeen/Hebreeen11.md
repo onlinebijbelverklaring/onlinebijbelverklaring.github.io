@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 11
+
 OVER HET ZALIGMAKEND GELOOF
 
 Aan de toespraak in het vorige gedeelte sluit zich onmiddellijk het tweede, paranetische of vermanende gedeelte aan. In het eerste of dogmatische gedeelte was het doel van de schrijver in zijn lezers het besluit levend en werkzaam te maken: "wij behoren niet tot degenen die zich onttrekken ten verderve. " Nu wil hij ook het tweede "maar tot degenen die geloven tot behoud van de ziel" doen kennen en voelen als het doel, dat hun altijd voor ogen moet staan. Zoals toch de zaken nu staan in de tijd waarin hij schrijft, is het voor de christenen te Jeruzalem niet genoeg dat zij niet afvallig worden tot het Jodendom en hun christelijke staat tegenover de bestrijdingen, waardoor zij getroffen worden, met beslistheid vasthouden; integendeel staat nu reeds het uur voor de deur waarin moet worden gewaakt om niet met het ongelovige volk van de Joden verdoemd te worden, maar de ziel te redden, van Jeruzalem uit te gaan en te wijken van de stad die onrein is geworden en aan het verderf gewijd. Pas in hoofdstuk 13: 13v. Heb zal hij hun deze noodzaak op het hart drukken; maar eerst, dat weet hij in zijn pastorale wijsheid zeer goed, moet hij hun harten beter vertrouwd maken met die gedachte, waarvan de uitvoering nu nog niet moet plaatshebben, maar pas als het door de Heere zelf aangegeven teken (Luk. 21: 20v.) zal worden gezien.

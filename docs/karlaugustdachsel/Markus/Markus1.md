@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 1
+
 CHRISTUS, DOOR JOHANNES GEDOOPT, WORDT VERZOCHT, PREDIKT, ROEPT DISCIPELEN EN GENEEST ZIEKEN
 
 ## I. Vers 1-8

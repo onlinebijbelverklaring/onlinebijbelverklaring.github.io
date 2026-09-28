@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 2
+
 CHRISTUS’ GEBOORTE, BESNIJDENIS, VOORSTELLING EN GESPREK IN DE TEMPEL
 
 ## V. Vers 1-20

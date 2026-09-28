@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 6
+
 1. Dit zijn dan de geboden, de inzettingen en de rechten, die de HEERE, uw God, geboden heeft om u te leren; opdat gij ze doet in het land, naar hetwelk gij heentrekt, om dat erfelijk te bezitten; 
 2. Opdat gij de HEERE, uw God, vrezet, om te houden al Zijn inzettingen, en Zijn geboden, die ik u gebiede; gij, en uw kind, en kindskind, al de dagen uws levens; en opdat uw dagen verlengd worden. 
 3. Hoor dan, Israël! en neem waar, dat gij ze doet, opdat het u welga, en opdat gij zeer vermenigvuldigdet (gelijk als u de HEERE, uwer vaderen God, gesproken heeft) in het land, dat van melk en honig is vloeiende. 

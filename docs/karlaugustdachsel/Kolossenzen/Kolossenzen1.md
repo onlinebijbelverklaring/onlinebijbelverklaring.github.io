@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Kolossenzen 1
+
 DE ZALIGHEID, DOOR CHRISTUS VERWORVEN, WORDT DE MENSEN DOOR HET WOORD AANGEBODEN
 
 A. Reeds de aanvang van deze brief, die volgens onze opvatting omstreeks een vierde jaar later dan die aan de Efeziërs geschreven is (Deel VI Aanh. II a No. 3), onderscheidt zich van de laatste, waarmee hij veel overeenkomst heeft, daardoor, dat Paulus zich weer hier, zoals hij dat ook in zijn overige brieven doet, tot de lezers in een persoonlijke betrekking stelt en niet, zoals in de brief aan de Efeziërs geschiedt een meer algemene plaats tot hen inneemt. In de brief aan de Efeziërs vinden wij dan ook geen bijzondere omstandigheden aangevoerd, omdat hij niet alleen aan hen schreef, maar ook tegelijk aan de overige gemeenten in Klein-Azië, die tot hun cyclus behoorden.

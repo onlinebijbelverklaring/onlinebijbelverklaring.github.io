@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 19
+
 1. En Jósafath, de koning van Juda, keerde met vrede weder naar zijn huis te Jeruzalem. 
 2. En Jehu, de zoon van Hanani, de ziener, ging uit, hem tegen, en zeide tot de koning Jósafath: Zoudt gij de goddeloze helpen, en die de HEERE haten, liefhebben? Nu is daarom over u van het aangezicht des HEEREN grote toornigheid. 
 3. Evenwel goede dingen zijn bij u gevonden; want gij hebt de bossen uit het land weggedaan, en uw hart gericht om God te zoeken.

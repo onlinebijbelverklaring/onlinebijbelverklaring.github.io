@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 2
+
 1. Toen geschiedde het in de maand Nisan, in het twintigste jaar van de koning Arthahsasta, als er wijn voor zijn aangezicht was, dat ik de wijn opnam, en gaf hem de koning; nu was ik nooit treurig geweest voor zijn aangezicht. 
 2. Zo zeide de koning tot mij: Waarom is uw aangezicht treurig, zo gij toch niet krank zijt? Dit is niet dan treurigheid des harten. Toen vreesde ik gans zeer. 
 3. En ik zeide tot de koning: De koning leve in eeuwigheid! Hoe zou mijn aangezicht niet treurig zijn, daar de stad, de plaats der begrafenissen mijner vaderen, woest is, en haar poorten met vuur verteerd zijn? 

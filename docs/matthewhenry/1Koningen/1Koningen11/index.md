@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 11
+
 1. En de koning Salomo had veel vreemde vrouwen lief, en dat benevens de dochter van Farao: Moabietische, Ammonietische, Edomietische, Sidonische, Hethietische; 
 2. Van die volken, waarvan de HEERE gezegd had tot de kinderen Israëls: Gijlieden zult tot hen niet ingaan, en zij zullen tot u niet inkomen; zij zouden zekerlijk uw hart achter hun goden neigen; aan deze hing Salomo met liefde. 
 3. En hij had zevenhonderd vrouwen, vorstinnen, en driehonderd bijwijven en zijn vrouwen neigden zijn hart. 

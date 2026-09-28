@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 5
+
 1. En Mozes riep het ganse Israël, en zeide tot hen: Hoor, Israël! de inzettingen en rechten, die ik heden voor uw oren spreek, dat gij ze leert en waarneemt, om dezelve te doen. 
 2. De HEERE, onze God, heeft een verbond met ons gemaakt aan Horeb. 
 3. Met onze vaderen heeft de HEERE dit verbond niet gemaakt, maar met ons, wij die hier heden allen levend zijn. 

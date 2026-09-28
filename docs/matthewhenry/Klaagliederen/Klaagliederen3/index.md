@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Klaagliederen 3
+
 1. ALEPH. Ik ben de man die ellende gezien heeft door de roede Zijner verbolgenheid.
 2. Aleph. Hij heeft mij geleid en gevoerd in de duisternis en niet in het licht.
 3. Aleph. Hij heeft Zich immers tegen mij gewend, Hij heeft Zijn hand den gansen dag veranderd.

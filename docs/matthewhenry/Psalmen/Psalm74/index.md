@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 74
+
 1. EEN onderwijzing, voor Asaf. O God, waarom verstoot Gij in eeuwigheid? Waarom zou Uw toorn roken tegen de schapen Uwer weide?
 2. Gedenk aan Uw vergadering, die Gij vanouds verworven hebt; de roede Uwer erfenis, die Gij verlost hebt; den berg Sion, waarop Gij gewoond hebt.
 3. Hef Uw voeten op tot de eeuwige verwoestingen; de vijand heeft alles in het heiligdom verdorven.

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Exodus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET TWEEDE BOEK VAN MOZES, GENAAMD EXODUS
 
 Mozes, (de dienstknecht des Heeren, in het schrijven voor Hem, zowel als in het handelen voor Hem; met de pen Gods zowel als met de staf Gods in zijn hand), heeft in het eerste boek van zijne geschiedenis ons de oorkonden bewaard en overgeleverd van de kerk, terwijl zij bestond in particuliere gezinnen; en nu komt hij ons in dit tweede boek een bericht geven van haar wasdom tot een grote natie; en gelijk het eerste ons de beste huishoudkunde toont, zo voorziet dit ons van de beste staatkunde. Het begin van het vorige boek toont ons hoe God de wereld geformeerd heeft voor Hem; het begin van dit boek toont ons hoe Hij zich Israël geformeerd heeft; en beiden om Zijn lof te vertellen, Jesaja 43:21. Daar hebben wij de schepping der wereld in geschiedenis, hier de verlossing der wereld in type. De Griekse vertalers noemden dit boek Exodus (hetgeen een vertrek betekent, of een uittocht), omdat het begint met de geschiedenis van de uittocht der kinderen Israëls uit Egypte. 

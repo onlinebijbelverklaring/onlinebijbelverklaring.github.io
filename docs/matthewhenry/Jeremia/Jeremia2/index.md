@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 2
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Ga en roep voor de oren van Jeruzalem, zeggende: Zo zegt de HEERE: Ik gedenk der weldadigheid uwer jeugd, der liefde uwer ondertrouw, toen gij Mij nawandeldet in de woestijn, in onbezaaid land.
 3. Israël was den HEERE een heiligheid, de eerstelingen Zijner inkomst; allen die hem opaten, werden voor schuldig gehouden; kwaad kwam hun over, spreekt de HEERE.

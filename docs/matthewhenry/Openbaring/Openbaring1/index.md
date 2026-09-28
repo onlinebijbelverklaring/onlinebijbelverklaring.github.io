@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 1
+
 1. DE openbaring van JEZUS CHRISTUS, die God Hem gegeven heeft, om Zijn dienstknechten te tonen de dingen die haast geschieden moeten, en die Hij door Zijn engel gezonden en aan Zijn dienstknecht Johannes te kennen gegeven heeft;
 2. Dewelke het Woord Gods betuigd heeft, en de getuigenis van Jezus Christus, en al wat hij gezien heeft.
 3. Zalig is hij die leest en zijn zij die horen de woorden dezer profetie, en die bewaren hetgeen in dezelve geschreven is; want de tijd is nabij.

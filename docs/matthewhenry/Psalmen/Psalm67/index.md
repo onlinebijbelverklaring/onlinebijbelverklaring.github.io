@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 67
+
 1. EEN psalm, een lied, voor den opperzangmeester, op Neginôth.
 2. God zij ons genadig en zegene ons; Hij doe Zijn aanschijn aan ons lichten. Sela.
 3. Opdat men op de aarde Uw weg kenne, onder alle heidenen Uw heil.

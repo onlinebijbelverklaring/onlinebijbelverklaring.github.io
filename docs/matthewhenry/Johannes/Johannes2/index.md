@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 2
+
 1. EN op den derden dag was er een bruiloft te Kana in Galiléa; en de moeder van Jezus was aldaar.
 2. En Jezus was ook genood, en Zijn discipelen, tot de bruiloft.
 3. En als er wijn ontbrak, zeide de moeder van Jezus tot Hem: Zij hebben geen wijn.

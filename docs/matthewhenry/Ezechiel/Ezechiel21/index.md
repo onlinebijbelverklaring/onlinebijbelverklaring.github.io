@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 21
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen Jeruzalem, en drup tegen de heiligdommen, en profeteer tegen het land van Israël,
 3. En zeg tot het land van Israël: Alzo zegt de HEERE: Zie, Ik wil aan u, en Ik zal Mijn zwaard uit zijn schede trekken, en Ik zal van u uitroeien den rechtvaardige en den goddeloze.

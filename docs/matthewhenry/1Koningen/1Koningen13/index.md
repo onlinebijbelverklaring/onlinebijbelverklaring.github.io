@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 13
+
 1. En ziet, een man Gods kwam uit Juda, door het woord des HEEREN tot Beth-el; en Jerobeam stond bij het altaar, om te roken. 
 2. En hij riep tegen het altaar, door het woord des HEEREN, en zeide: Altaar, altaar, zo zegt de HEERE: Zie, een zoon zal aan het huis Davids geboren worden, wiens naam zal zijn Josia; die zal op u offeren de priesters der hoogten, die op u roken, en men zal mensenbeenderen op u verbranden. 
 3. En hij gaf ten zelfden dage een wonderteken, zeggende: Dit is dat wonderteken, waarvan de HEERE gesproken heeft; ziet, het altaar zal vaneen gescheurd, en de as, die daarop is, afgestort worden. 

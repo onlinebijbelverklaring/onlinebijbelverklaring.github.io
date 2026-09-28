@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 4
+
 1. En het woord van Samuël geschiedde aan gans Israël. En Israël toog uit, de Filistijnen tegemoet, ten strijde, en legerde zich bij Eben-Haezer, maar de Filistijnen legerden zich bij Afek. 
 2. En de Filistijnen stelden zich in slagorden, om Israël te ontmoeten; en als zich de strijd uitspreidde, zo werd Israël voor der Filistijnen aangezicht geslagen; want zij sloegen in de slagorden in het veld omtrent vier duizend man. 
 3. Als het volk wederom in het leger gekomen was, zo zeiden de oudsten van Israël: Waarom heeft ons de HEERE heden geslagen voor het aangezicht der Filistijnen? Laat ons van Silo tot ons nemen de ark des verbonds des HEEREN, en laat die in het midden van ons komen, opdat zij ons verlosse van de hand onzer vijanden. 

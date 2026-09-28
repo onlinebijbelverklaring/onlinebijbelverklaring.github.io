@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Maleachi
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET MALEÁCHI
 
 Gods profeten waren Zijne getuigen bij de kerk, elk op zijn tijd, gedurende verscheidene eeuwen, getuigen van Hem en van Zijn gezag, getuigen tegen de zonde en de zondaars, betuigende de ware betekenis van Gods leidingen met Zijn volk en de vriendelijke genadevolle bedoelingen met de kerk in de dagen van de Messias, Wie alle profeten getuigenis gaven, want aller getuigenis stemde overeen. Al is Maleáchi de laatste en al eindigt in hem de profetie, de Geest der profetie schijnt toch in hem even klaar en sterk en heerlijk als in enigen der hem voorafgaande, zodat zijne profetie gelijke aandacht vraagt. De Joden zeggen, dat de profetie veertig jaren onder de tweeden tempel voortduurde, en dezen profeet noemen zij het zeges der profetie, omdat in hem de reeks of opeenvolging der profeten afgebroken werd en een einde nam. God heeft in Zijne wijsheid verordend, dat de goddelijke openbaring enige eeuwen zou zwijger voor de komst van de Messias, opdat de grootste Profeet te meer op de voorgrond zou treden, de opmerkzaamheid boeien en te welkomer zijn. Laat ons overwegen, 

@@ -1,3 +1,7 @@
+---
+icon: lucide/file-text
+---
+
 # Voorrede
 
 De Hervorming plaatste het licht weder op de kandelaar en stelde de Schrift in het middelpunt van het Christelijk leven. Hare uitlegging werd met

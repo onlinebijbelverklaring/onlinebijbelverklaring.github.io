@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 37
+
 1. Alzo maakte Bezaleel de ark van sittimhout; twee ellen en een halve was haar lengte, en anderhalve el haar breedte, en anderhalve el haar hoogte. 
 2. En hij overtrok ze met louter goud, van binnen en van buiten; en hij maakte ze een gouden krans rondom. 
 3. En hij goot voor dezelve vier gouden ringen, aan haar vier hoeken, alzo dat twee ringen op derzelver ene zijde waren, en twee ringen op haar andere zijde. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 57
+
 1. DE rechtvaardige komt om, en er is niemand die het ter harte neemt; en de weldadige lieden worden weggeraapt, zonder dat er iemand op let dat de rechtvaardige weggeraapt wordt vóór het kwaad.
 2. Hij zal ingaan in den vrede; zij zullen rusten op hun slaapsteden, een iegelijk die in zijn oprechtheid gewandeld heeft.
 3. Doch nadert gijlieden hiertoe, gij kinderen der guichelares, gij overspelig zaad, en gij die hoererij bedrijft.

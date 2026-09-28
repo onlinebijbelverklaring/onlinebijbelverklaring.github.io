@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 5
+
 1. EN zij kwamen over op de andere zijde der zee, in het land der Gadarénen.
 2. En als Hij uit het schip gegaan was, terstond ontmoette Hem uit de graven een mens met een onreinen geest;
 3. Dewelke zijn woning in de graven had, en niemand kon hem binden, ook zelfs niet met ketenen.

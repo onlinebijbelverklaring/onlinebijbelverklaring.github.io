@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 6
+
 ## Vers 1 
 ***Broeders, indien ook een mens overvallen ware door enige misdaad, gij, die geestelijk zijt, brengt de zodanige terecht met de geest der zachtmoedigheid.*** Een ander zedelijk, voortreffelijk voorschrift is ook in deze onze tijd zeer noodzakelijk. De Sacramentariërs grijpen deze tekst aan en trachten daaruit aan te tonen, dat wij aan gevallen broeders wat moeten toegeven in verdraagzaamheid en hun dwaling door de liefde bedekken, die alles gelooft, alles hoopt, alles verdraagt, vooral daar Paulus hier met duidelijke woorden leert, dat zij, die geestelijk zijn, de dwalenden moeten terecht-brengen door de geest der zachtmoedigheid, dat het geen zaak van zo groot gewicht is, dat wij om dit éne Artikel de christelijke eendracht zouden verbreken, daar er niets mooiers noch nuttigers is in de Gemeente, dan eendracht.
 

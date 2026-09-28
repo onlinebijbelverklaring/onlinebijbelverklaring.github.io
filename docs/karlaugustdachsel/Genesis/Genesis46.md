@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 46
+
 JAKOBS REIS NAAR EGYPTE.
 
 ## I. Vers 1-7. 

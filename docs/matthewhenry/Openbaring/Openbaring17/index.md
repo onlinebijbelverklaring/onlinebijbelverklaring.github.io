@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 17
+
 1. EN een uit de zeven engelen, die de zeven fiolen hadden, kwam en sprak met mij, en zeide tot mij: Kom herwaarts, ik zal u tonen het oordeel der grote hoer, die daar zit op vele wateren;
 2. Met welke de koningen der aarde gehoereerd hebben, en die de aarde bewonen zijn dronken geworden van den wijn harer hoererij.
 3. En hij bracht mij weg in een woestijn, in den geest; en ik zag een vrouw, zittende op een scharlakenrood beest, dat vol was van namen der godslastering, en had zeven hoofden en tien hoornen.

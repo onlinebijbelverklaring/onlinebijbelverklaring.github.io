@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 15
+
 CHRISTUS' LIJDEN VOOR PILATUS, KRONING, KRUISIGING, DOOD EN BEGRAFENIS
 
 ## V. Vers 1-21

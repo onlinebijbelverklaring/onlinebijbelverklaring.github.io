@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 30
+
 1. WEE den kinderen die afvallen, spreekt de HEERE, om een raadslag te maken, maar niet uit Mij; en om zich met een bedekking te bedekken, maar niet uit Mijn Geest, om zonde tot zonde te doen;
 2. Die gaan om af te trekken in Egypte, en vragen Mijn mond niet; om zich te sterken met de macht van Farao en om hun toevlucht te nemen onder de schaduw van Egypte.
 3. Want de sterkte van Farao zal ulieden tot schaamte zijn, en die toevlucht onder de schaduw van Egypte tot schande.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 9
+
 1. BEN ik niet een apostel? Ben ik niet vrij? Heb ik niet Jezus Christus, onzen Heere, gezien? Zijt gijlieden niet mijn werk in den Heere?
 2. Zo ik anderen geen apostel ben, nochtans ben ik het ulieden; want het zegel mijns apostelschaps zijt gijlieden in den Heere.
 3. Mijn verantwoording aan degenen die onderzoek over mij doen, is deze.

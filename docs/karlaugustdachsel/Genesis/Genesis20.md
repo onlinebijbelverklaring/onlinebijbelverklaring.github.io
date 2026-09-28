@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 20
+
 SARA WORDT DOOR ABIMELECH ABRAHAM ONTNOMEN EN MET ERE WEERGEGEVEN.
 
 ## I. Vers 1-7

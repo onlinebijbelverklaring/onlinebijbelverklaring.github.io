@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 90
+
 1. EEN gebed van Mozes, den man Gods. Heere, Gij zijt ons geweest een Toevlucht van geslacht tot geslacht.
 2. Eer de bergen geboren waren, en Gij de aarde en de wereld voortgebracht hadt, ja, van eeuwigheid tot eeuwigheid zijt Gij God.
 3. Gij doet den mens wederkeren tot verbrijzeling, en zegt: Keert weder, gij mensenkinderen.

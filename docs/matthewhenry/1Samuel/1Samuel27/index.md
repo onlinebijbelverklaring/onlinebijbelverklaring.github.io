@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 27
+
 1. David nu zeide in zijn hart: Nu zal ik een der dagen door Sauls hand omkomen; mij is niet beter, dan dat ik haastelijk ontkome in het land der Filistijnen, opdat Saul van mij de hoop verlieze, om mij meer te zoeken in de ganse landpale van Israël; zo zal ik ontkomen uit zijn hand. 
 2. Toen maakte zich David op, en hij ging door, hij en de zeshonderd mannen, die bij hem waren, tot Achis, de zoon van Maoch, de koning van Gath. 
 3. En David bleef bij Achis te Gath, hij en zijn mannen, een iegelijk met zijn huis; David met zijn beide vrouwen, Ahinoam, en Jizreelietische, en Abigaïl, de huisvrouw van Nabal, de Karmelietische. 

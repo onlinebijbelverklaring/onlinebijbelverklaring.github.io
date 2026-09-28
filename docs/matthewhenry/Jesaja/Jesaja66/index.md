@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 66
+
 1. ALZO zegt de HEERE: De hemel is Mijn troon en de aarde is de voetbank Mijner voeten; waar zou dat huis zijn, dat gijlieden Mij zoudt bouwen? En waar is de plaats Mijner rust?
 2. Want Mijn hand heeft al deze dingen gemaakt, en al deze dingen zijn geweest, spreekt de HEERE; maar op dezen zal Ik zien, op den arme en verslagene van geest en die voor Mijn woord beeft.
 3. Wie een os slacht, slaat een man; wie een lam offert, breekt een hond den hals; wie spijsoffer offert, is als die zwijnenbloed offert; wie wierook brandt ten gedenkoffer, is als die een afgod zegent. Dezen verkiezen ook hun wegen, en hun ziel heeft lust aan hun verfoeiselen.

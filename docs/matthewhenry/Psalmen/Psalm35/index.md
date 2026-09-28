@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 35
+
 1. EEN psalm van David. Twist, HEERE, met mijn twisters; strijd met mijn bestrijders.
 2. Grijp het schild en de rondas, en sta op tot mijn hulp.
 3. En breng de spies voort, en sluit den weg toe, mijn vervolgers tegemoet; zeg tot mijn ziel: Ik ben uw Heil.

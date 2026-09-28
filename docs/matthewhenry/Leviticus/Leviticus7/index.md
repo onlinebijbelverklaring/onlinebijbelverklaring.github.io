@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 7
+
 1. Dit is nu de wet des schuldoffers; het is een heiligheid der heiligheden. 
 2. In de plaats, waar zij het brandoffer slachten, zullen zij het schuldoffer slachten; en men zal deszelfs bloed rondom op het altaar sprengen. 
 3. En daarvan zal men al zijn vet offeren, de staart, en het vet, dat het ingewand bedekt; 

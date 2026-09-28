@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 20
+
 OVER DE GEBONDEN EN ONTBONDEN DRAAK, GOG EN MAGOG EN HET LAATSTE OORDEEL
 
 ## I. Vers 1-15

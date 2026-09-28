@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 1
+
 1. HET begin des Evangelies van JEZUS CHRISTUS, den Zone Gods.
 2. Gelijk geschreven is in de Profeten: Zie, Ik zend Mijn engel voor Uw aangezicht, die Uw weg voor U heen bereiden zal.
 3. De stem des roependen in de woestijn: Bereidt den weg des Heeren, maakt Zijn paden recht.

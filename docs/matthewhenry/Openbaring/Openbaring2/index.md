@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 2
+
 1. SCHRIJF aan den engel der gemeente van Éfeze: Dit zegt Hij Die de zeven sterren in Zijn rechterhand houdt, Die in het midden der zeven gouden kandelaren wandelt:
 2. Ik weet uw werken, en uw arbeid, en uw lijdzaamheid, en dat gij de kwaden niet kunt dragen; en dat gij beproefd hebt degenen die uitgeven dat zij apostelen zijn, en zij zijn het niet, en hebt hen leugenaars bevonden;
 3. En gij hebt verdragen en hebt geduld, en gij hebt om Mijns Naams wil gearbeid, en zijt niet moede geworden.

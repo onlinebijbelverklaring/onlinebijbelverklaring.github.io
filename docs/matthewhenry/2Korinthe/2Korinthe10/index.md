@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 10
+
 1. VOORTS ik, Paulus, zelf bid u door de zachtmoedigheid en goedertierenheid van Christus, die tegenwoordig zijnde wel gering ben onder u, maar afwezend stout ben tegen u;
 2. Ik bid dan dat ik tegenwoordig zijnde, niet stout moge zijn met die vrijmoedigheid, waarmede ik geacht word stoutelijk gehandeld te hebben tegen sommigen die ons achten alsof wij naar het vlees wandelden.
 3. Want wandelende in het vlees, voeren wij den krijg niet naar het vlees;

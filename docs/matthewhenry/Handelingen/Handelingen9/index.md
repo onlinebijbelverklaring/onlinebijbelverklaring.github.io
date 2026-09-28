@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 9
+
 1. EN Saulus blazende nog dreiging en moord tegen de discipelen des Heeren, ging tot den hogepriester,
 2. En begeerde brieven van hem naar Damascus aan de synagogen, opdat zo hij enigen die van dien weg waren, vond, hij dezelve, beide mannen en vrouwen, zou gebonden brengen naar Jeruzalem.
 3. En als hij reisde, is het geschied dat hij nabij Damascus kwam, en hem omscheen snellijk een licht van den hemel;

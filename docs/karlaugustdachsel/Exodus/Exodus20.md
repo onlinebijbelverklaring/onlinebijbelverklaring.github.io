@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 20
+
 MOZES ONTVANGT DE TIEN GEBODEN VAN GOD.
 
 ***1. Toen Mozes nu weer onderaan de berg stond, sprak God al deze woorden, 1) met verheven stem voor de oren van geheel Israël (Deuteronomium. 4:12,33; 5:22), zeggende:***

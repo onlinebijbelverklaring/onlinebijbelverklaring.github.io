@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 17
+
 1. Gij zult de HEERE, uw God, geen os of klein vee offeren, waaraan een gebrek zij of enig kwaad; want dat is de HEERE, uw God, een gruwel. 
 2. Wanneer in het midden van u, in een uwer poorten, die de HEERE, uw God, u geeft, een man of vrouw gevonden zal worden, die doen zal, dat kwaad is in de ogen des HEEREN, uws Gods, overtredende Zijn verbond; 
 3. Dat hij heengaat, en dient andere goden, en buigt zich voor die, of voor de zon, of voor de maan, of voor het ganse heir des hemels, hetwelk ik niet geboden heb; 

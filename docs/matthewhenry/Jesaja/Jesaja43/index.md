@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 43
+
 1. MAAR nu, alzo zegt de HEERE, uw Schepper, o Jakob, en uw Formeerder, o Israël: Vrees niet, want Ik heb u verlost; Ik heb u bij uw naam geroepen, gij zijt Mijne.
 2. Wanneer gij zult gaan door het water, Ik zal bij u zijn, en door de rivieren, zij zullen u niet overstromen; wanneer gij door het vuur zult gaan, zult gij niet verbranden, en de vlam zal u niet aansteken.
 3. Want Ik ben de HEERE uw God, de Heilige Israëls, uw Heiland; Ik heb Egypte, Morenland en Seba gegeven tot uw losgeld, in uw plaats.

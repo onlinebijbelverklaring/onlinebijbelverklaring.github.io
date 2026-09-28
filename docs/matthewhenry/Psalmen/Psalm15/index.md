@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 15
+
 1. EEN psalm van David.
 HEERE, wie zal verkeren in Uw tent? Wie zal wonen op den berg Uwer heiligheid?
 2. Die oprecht wandelt en gerechtigheid werkt, en die met zijn hart de waarheid spreekt;

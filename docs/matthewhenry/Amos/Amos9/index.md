@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 9
+
 1. Ik zag de Heere staan op het altaar, en Hij zeide: Sla dien knoop, dat de posten beven, en doorkloof ze allen in het hoofd; en Ik zal hun achterste met het zwaard doden; en vliedende zal onder hen niet ontvlieden, noch de ontkomende onder hen behouden worden. 
 2. Al groeven zij tot in de hel, zo zal Mijn hand ze van daar halen, en al klommen zij in de hemel, zo zal Ik ze van daar doen nederdalen. 
 3. En al verstaken zij zich op de hoogte van Karmel, zo zal Ik ze naspeuren en van daar halen; en al verborgen zij zich van voor Mijn ogen in de grond van de zee, zo zal Ik van daar een slang gebieden, die zal ze bijten. 

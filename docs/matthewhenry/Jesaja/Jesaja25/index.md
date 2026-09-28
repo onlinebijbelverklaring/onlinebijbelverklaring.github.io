@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 25
+
 1. HEERE, Gij zijt mijn God, U zal ik verhogen, Uw Naam zal ik loven, want Gij hebt wonder gedaan; Uw raadslagen van verre zijn waarheid en vastigheid.
 2. Want Gij hebt van de stad een steenhoop gemaakt, de vaste stad tot een vervallen hoop; het paleis der vreemdelingen, dat het geen stad meer zij; in eeuwigheid zal zij niet herbouwd worden.
 3. Daarom zal U een machtig volk eren, de stad der tirannige volken zal U vrezen.

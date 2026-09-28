@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 8
+
 1. TE dienzelven dage gaf de koning Ahasvéros aan de koningin Esther het huis van Haman, den vijand der Joden; en Mórdechai kwam voor het aangezicht des konings, want Esther had te kennen gegeven wat hij van haar was.
 2. En de koning toog zijn ring af, dien hij van Haman genomen had, en gaf hem aan Mórdechai; en Esther stelde Mórdechai over het huis van Haman.
 3. En Esther sprak verder voor het aangezicht des konings, en zij viel voor zijn voeten; en zij weende en zij smeekte hem, dat hij de boosheid van Haman, den Agagiet, en zijn gedachte die hij tegen de Joden gedacht had, zou wegnemen.

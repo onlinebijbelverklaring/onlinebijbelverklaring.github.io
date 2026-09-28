@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 19
+
 1. En Achab zeide Izébel aan al wat Elia gedaan had, en allen, die hij gedood had, te weten al de profeten, met het zwaard. 
 2. Toen zond Izébel een bode tot Elia, om te zeggen: Zo doen mij de goden, en doen zo daartoe, voorzeker, ik zal morgen omtrent dezen tijd uw ziel stellen, als de ziel van een hunner. 
 3. Toen hij dat zag, maakte hij zich op, en ging heen, om zijns levens wil, en kwam te Ber-seba, dat in Juda is, en liet zijn jongen aldaar. 

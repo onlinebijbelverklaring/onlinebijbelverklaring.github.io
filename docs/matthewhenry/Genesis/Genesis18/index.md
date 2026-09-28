@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 18
+
 1. Daarna verscheen hem de HEERE aan de eikenbossen van Mamre, als hij in de deur der tent zat, toen de dag heet werd. 
 2. En hij hief zijn ogen op en zag; en ziet, daar stonden drie mannen tegenover hem; als hij hen zag, zo liep hij hun tegemoet van de deur der tent, en boog zich ter aarde. 
 3. En hij zeide: Heere! heb ik nu genade gevonden in Uw ogen, zo gaat toch niet aan Uw knecht voorbij. 

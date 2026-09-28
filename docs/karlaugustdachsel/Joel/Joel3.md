@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Joel 3
+
 BESCHERMING DER KERK TEGEN DE VIJANDEN.
 
 ***1. Alleen in het geloof aan 's Heeren naam zal redding en zaligheid te vinden zijn (vs. 5); want ziet in diebedoelde dagen van de uitstorting Mijns Geestes over allen, en te dier tijd, als alle Mijne raadsbesluiten zullen volbracht worden, dat met de verschijning van den Leraar der gerechtigheid zal aanvangen, als Ik, om dien tijd nog nader aan te wijzen, de gevangenis, elke vernedering en slavernij van Juda en Jeruzalem door verlossing van alle zonde en ellende zal wenden, en Mijn uitverkoren volk tot een waarlijk heilig en bekeerd volk zal maken (Hosea 6:11);***

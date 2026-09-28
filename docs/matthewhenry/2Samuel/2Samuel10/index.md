@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 10
+
 1. En het geschiedde daarna, dat de koning der kinderen Ammons stierf, en zijn zoon Hanun werd koning in zijn plaats. 
 2. Toen zeide David: Ik zal weldadigheid doen aan Hanun, de zoon van Nahas, gelijk als zijn vader weldadigheid aan mij gedaan heeft. Zo zond David heen, om hem door de dienst zijner knechten te troosten over zijn vader. En de knechten van David kwamen in het land van de kinderen Ammons. 
 3. Toen zeiden de vorsten der kinderen Ammons tot hun heer Hanun: Eert David uw vader in uw ogen, omdat hij troosters tot u gezonden heeft? Heeft David zijn knechten niet daarom tot u gezonden, dat hij deze stad doorzoeke, en die verspiede, en die omkere? 

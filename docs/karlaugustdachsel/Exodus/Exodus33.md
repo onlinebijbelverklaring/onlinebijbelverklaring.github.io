@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 33
+
 MOZES BIDT VOOR HET VOLK EN BEGEERT DE HEERLIJKHEID VAN DE HEERE TE ZIEN.
 
 ## I. Vers 1-11

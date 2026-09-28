@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 6
+
 GIERIGHEID EN WERELDSE EER ZIJN IJDEL.
 
 C. De derde rede, die van Hoofdstuk 6:1-Hoofdstuk 8:15 loopt, onderzoekt in aansluiting aan de vorige afdeling, welke gezindheid voor den mens noodzakelijk is, om het in de vorige rede beschreven levensgeluk te verkrijgen en te bewaren, waarin alzo de ware levenswijsheid bestaat. In 3 afdelingen wordt uiteengezet, dat zij niet kan gelegen zijn in het jagen naar het bezit en het genot van allerlei aardse goederen en eerbewijzingen, maar veeleer daarin, dat men de wereld verachte, lijdzaam zij, en God vreze; daarnaar moet men, niettegenstaande de verleidingen, onderdrukkingen en tegenspoeden, streven.

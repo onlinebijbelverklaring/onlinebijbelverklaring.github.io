@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 12
+
 VAN DE WIJNGAARD, DE SCHATTING, DE OPSTANDING, HET VOORNAAMSTE GEBOD, DE MESSIAS, DE SCHRIFTGELEERDEN EN DE ARME WEDUWE
 
 ***1. En Hij begon naar de uitwendige vorm tot het volk, naar het inwendige eigenlijk tot de overpriesters en oudsten (Hoofdstuk 11: 27) door gelijkenissen tot hen te zeggen wat Hem op het harte lag. Zo kon Hij beter Zijn mening uitdrukken dan het, bij al hetgeen waarop gelet moestworden, in een gewone rede mogelijk zou zijn geweest. Eerst stelde Hij in de gelijkenis van de twee zonen hun gedrag als private personen tegenover dat van de tollenaars en zondaars, vervolgens karakteriseerde Hij hen naar hun gedrag als oversten van het volk in de nu volgende gelijkenis. Hij zei tot hen: Een mens a) plantte een wijngaard, zette een tuin daarom, groef een wijnpersbak, bouwde een toren, verhuurde die aan de landlieden en reisde naar het buitenland.***

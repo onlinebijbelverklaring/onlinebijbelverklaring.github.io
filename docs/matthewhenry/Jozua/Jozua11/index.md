@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 11
+
 1. Het geschiedde daarna, als Jabin, de koning van Hazor, dit hoorde, zo zond hij tot Jobab, de koning van Madon, en tot de koning van Simron, en tot de koning van Achsaf, 
 2. En tot de koningen, die tegen het noorden op het gebergte, en op het vlakke, tegen het zuiden van Cinneroth, en in de laagte, en in Nafoth-dor, aan de zee waren; 
 3. Tot de Kanaänieten tegen het oosten en tegen het westen, en de Amorieten, en de Hethieten, en de Ferezieten; en de Jebusieten op het gebergte, en de Hevieten onder aan Hermon, in het land van Mizpa. 

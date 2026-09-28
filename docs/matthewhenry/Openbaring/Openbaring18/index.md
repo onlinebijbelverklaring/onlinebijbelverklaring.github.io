@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 18
+
 1. EN na dezen zag ik een anderen engel afkomen uit den hemel, hebbende grote macht, en de aarde is verlicht geworden van zijn heerlijkheid.
 2. En hij riep krachtiglijk met een grote stem, zeggende: Zij is gevallen, zij is gevallen, het grote Babylon, en is geworden een woonstede der duivelen, en een bewaarplaats van alle onreine geesten, en een bewaarplaats van alle onrein en hatelijk gevogelte;
 3. Dewijl uit den wijn des toorns harer hoererij alle volken gedronken hebben, en de koningen der aarde met haar gehoereerd hebben, en de kooplieden der aarde rijk zijn geworden uit de kracht harer weelde.

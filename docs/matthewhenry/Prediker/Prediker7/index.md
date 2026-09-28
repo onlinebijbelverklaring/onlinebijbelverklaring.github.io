@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 7
+
 1. BETER is een goede naam dan goede olie, en de dag des doods dan de dag dat iemand geboren wordt.
 2. Het is beter te gaan in het klaaghuis dan te gaan in het huis des maaltijds; want in hetzelve is het einde aller mensen, en de levende legt het in zijn hart.
 3. Het treuren is beter dan het lachen, want door de droefheid des aangezichts wordt het hart gebeterd.

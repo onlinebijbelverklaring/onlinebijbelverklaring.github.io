@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 23
+
 1. MAAR Job antwoordde en zeide:
 2. Ook heden is mijn klacht wederspannigheid; mijn plaag is zwaar boven mijn zuchten.
 3. Och, of ik wist, dat ik Hem vinden zou! Ik zou tot Zijn stoel komen;

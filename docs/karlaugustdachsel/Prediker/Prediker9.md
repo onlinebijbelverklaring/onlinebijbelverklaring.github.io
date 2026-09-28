@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 9
+
 MEN MOET DE IJDELHEID VOORKOMEN EN NAAR HET BEZIT DER WIJSHEID STREVEN.
 
 ***1. Zeker dit alles, dat ik nu noemen zal, heb ik, toen ik mij voornam de eeuwige wetten en verborgen oorzaken van het wondervolle Godsbestuur in de lotgevallen der mensen te doorgronden, in mijn hart gelegd, opdat ik dit alles klaarlijk mocht verstaan, namelijk, dat de rechtvaardigen en de wijzen, en hun werken in de hand Gods zijn, zodat Hij met hen doet naar Zijn welbehagen, en niemand door zijne gezindheid en zijne handelingen zijn lot zelf bepalen kan, en ook niet in staat is, ook van zijne beste werken ene goede uitkomst te voorspellen of te bepalen; ook liefde, ook haat, geluk of ongeluk, goed of kwaad, dat God hem laat wedervaren, weet de mens niet uit al hetgeen voor zijn aangezicht is, 1) ziet gebeuren; ook de rechtvaardige mag er niet op rekenen, dat God hem zijne vroomheid door openlijke bewijzen Zijner gunst zal vergelden.***

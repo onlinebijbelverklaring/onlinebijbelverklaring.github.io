@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 41
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. Welgelukzalig is hij die zich verstandiglijk gedraagt jegens een ellendige; de HEERE zal hem bevrijden ten dage des kwaads.
 3. De HEERE zal hem bewaren en zal hem bij het leven behouden, hij zal op aarde gelukzalig gemaakt worden. Geef hem ook niet over in zijner vijanden begeerte.

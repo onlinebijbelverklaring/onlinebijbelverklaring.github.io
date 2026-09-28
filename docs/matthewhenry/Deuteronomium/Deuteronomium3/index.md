@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 3
+
 1. Daarna keerden wij ons en togen op, de weg van Bazan; en Og, de koning van Bazan, trok uit ons tegemoet, hij en al zijn volk, ten strijde bij Edrei. 
 2. Toen zeide de HEERE tot mij: Vrees hem niet, want Ik heb hem, en al zijn volk, en zijn land, in uw hand gegeven; en gij zult hem doen, gelijk als gij Sihon, de koning der Amorieten, die te Hesbon woonde, gedaan hebt. 
 3. En de HEERE, onze God, gaf ook Og, de koning van Bazan, en al zijn volk, in onze hand, zodat wij hem sloegen, totdat wij hem niemand lieten overblijven. 

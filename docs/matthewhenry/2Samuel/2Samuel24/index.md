@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 24
+
 1. En de toorn des HEEREN voer voort te ontsteken tegen Israël; en Hij porde David aan tegen henlieden, zeggende: Ga, tel Israël en Juda. 
 2. De koning dan zeide tot Joab, de krijgsoverste, die bij hem was: Trek nu om, door alle stammen van Israël, van Dan tot Ber-seba toe, en tel het volk, opdat ik het getal des volks wete. 
 3. Toen zeide Joab tot de koning: Nu doe de HEERE, uw God, tot dit volk, zoals deze en die nu zijn, honderdmaal meer, dat de ogen van mijn heer de koning het aanzien; maar waarom heeft mijn heer de koning lust tot deze zaak? 

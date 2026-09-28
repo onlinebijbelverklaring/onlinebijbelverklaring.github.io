@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 2
+
 1. EN ik, broeders, als ik tot u ben gekomen, ben niet gekomen met uitnemendheid van woorden of van wijsheid, u verkondigende de getuigenis Gods.
 2. Want ik heb niet voorgenomen iets te weten onder u dan Jezus Christus, en Dien gekruisigd.
 3. En ik was bij ulieden in zwakheid en in vreze en in veel beving.

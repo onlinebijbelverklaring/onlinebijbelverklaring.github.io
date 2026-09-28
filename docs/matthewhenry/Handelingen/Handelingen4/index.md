@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 4
+
 1. EN terwijl zij tot het volk spraken, kwamen daarover tot hen de priesters en de hoofdman des tempels en de sadduceeën,
 2. Zeer ontevreden zijnde, omdat zij het volk leerden en verkondigden in Jezus de opstanding uit de doden;
 3. En sloegen de handen aan hen en zetten hen in bewaring tot den anderen dag; want het was nu avond.

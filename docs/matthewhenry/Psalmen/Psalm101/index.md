@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 101
+
 1. EEN psalm van David. Ik zal van goedertierenheid en recht zingen; U zal ik psalmzingen, o HEERE.
 2. Ik zal verstandiglijk handelen in den oprechten weg; wanneer zult Gij tot mij komen? Ik zal in het midden mijns huizes wandelen in oprechtheid mijns harten.
 3. Ik zal geen Belialsstuk voor mijn ogen stellen; ik haat het doen der afvalligen, het zal mij niet aankleven.

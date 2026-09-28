@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 13
+
 1. In het drie en twintigste jaar van Joas, de zoon van Ahazia, de koning van Juda, werd Joahaz, de zoon van Jehu, koning over Israël, te Samaria, en regeerde zeventien jaren. 
 2. En hij deed dat kwaad was in de ogen des HEEREN; want hij wandelde na de zonden van Jerobeam, de zoon van Nebat, die Israël zondigen deed; hij week daarvan niet af. 
 3. Daarom ontstak des HEEREN toorn tegen Israël; en Hij gaf hen in de hand van Hazaël, de koning van Syrië, en in de hand van Benhadad, de zoon van Hazaël, al die dagen. 

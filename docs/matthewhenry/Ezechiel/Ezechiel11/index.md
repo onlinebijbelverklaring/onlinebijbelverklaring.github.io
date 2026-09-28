@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 11
+
 1. TOEN hief mij de Geest op, en bracht mij tot de Oostpoort van het huis des HEEREN, dewelke ziet oostwaarts; en zie, aan de deur der poort waren vijf en twintig mannen; en in het midden van hen zag ik Jaäzánja, den zoon van Azzur, en Pelátja, den zoon van Benája, vorsten des volks.
 2. En Hij zeide tot mij: Mensenkind, dezen zijn de mannen die ongerechtigheid bedenken, en die kwaden raad raden in deze stad;
 3. Die zeggen: Men moet geen huizen nabij bouwen; deze stad zou de pot en wij het vlees zijn.

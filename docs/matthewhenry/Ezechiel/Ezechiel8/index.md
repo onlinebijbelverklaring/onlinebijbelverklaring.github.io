@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 8
+
 1. HET geschiedde nu in het zesde jaar, in de zesde maand, op den vijfde der maand, als ik in mijn huis zat en de oudsten van Juda voor mijn aangezicht zaten, dat de hand des Heeren HEEREN daar over mij viel.
 2. Toen zag ik, en zie, een gelijkenis als de gedaante van vuur; van de gedaante Zijner lendenen en nederwaarts was vuur, en van Zijn lendenen en opwaarts als de gedaante ener klaarheid, als de verve van hasmal.
 3. En Hij stak de gelijkenis ener hand uit en nam mij bij het haar mijns hoofds; en de Geest voerde mij op tussen de aarde en tussen den hemel, en bracht mij in de gezichten Gods te Jeruzalem, tot de deur der poort van het binnenste voorhof, dewelke ziet naar het noorden, alwaar de zitplaats was van een beeld der ijvering, dat tot ijver verwekt.

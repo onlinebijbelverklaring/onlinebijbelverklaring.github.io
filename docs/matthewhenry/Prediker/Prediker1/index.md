@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 1
+
 1. DE woorden van den Prediker, den zoon van David, den koning te Jeruzalem.
 2. IJdelheid der ijdelheden, zegt de Prediker; ijdelheid der ijdelheden, het is al ijdelheid.
 3. Wat voordeel heeft de mens van al zijn arbeid dien hij arbeidt onder de zon?

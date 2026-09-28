@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 2
+
 1. Dit zijn de kinderen van dat landschap, die optogen uit de gevangenis, van de weggevoerden, die Nebukadnézar, koning van Babel, weggevoerd had naar Babel, die naar Jeruzalem en Juda zijn wedergekeerd, een iegelijk naar zijn stad; 
 2. Dewelken kwamen met Zerubbabel, Jesua, Nehémia, Seraja, Reelaja, Mordechaï, Bilsan, Mizpar, Bigvai, Rehum en Baena. Dit is het getal der mannen des volks van Israël. 
 3. De kinderen van Paros, twee duizend honderd twee en zeventig. 

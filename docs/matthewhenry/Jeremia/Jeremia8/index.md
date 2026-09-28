@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 8
+
 1. TERZELFDER tijd, spreekt de HEERE, zullen zij de beenderen der koningen van Juda en de beenderen hunner vorsten en de beenderen der priesters en de beenderen der profeten en de beenderen der inwoners van Jeruzalem uit hun graven uithalen.
 2. En zij zullen ze uitspreiden voor de zon en voor de maan en voor het ganse heir des hemels, die zij liefgehad en die zij gediend en die zij nagewandeld en die zij gezocht hebben, en voor dewelke zij zich nedergebogen hebben; zij zullen niet verzameld noch begraven worden, tot mest op den aardbodem zullen zij zijn.
 3. En de dood zal voor het leven verkoren worden bij het ganse overblijfsel der overgeblevenen uit dit boze geslacht, in al de plaatsen der overgeblevenen waar Ik hen heen gedreven zal hebben, spreekt de HEERE der heirscharen.

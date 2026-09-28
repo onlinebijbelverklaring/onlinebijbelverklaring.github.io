@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 19
+
 1. EN na dezen hoorde ik als een grote stem ener grote schare in den hemel, zeggende: Hallelujah; de zaligheid en de heerlijkheid en de eer en de kracht zij den Heere onzen God;
 2. Want Zijn oordelen zijn waarachtig en rechtvaardig, dewijl Hij de grote hoer geoordeeld heeft, die de aarde verdorven heeft met haar hoererij, en Hij het bloed Zijner dienaren van haar hand gewroken heeft.
 3. En zij zeiden ten tweeden male: Hallelujah. En haar rook gaat op in alle eeuwigheid.

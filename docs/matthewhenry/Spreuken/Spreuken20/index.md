@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 20
+
 1. DE wijn is een spotter, de sterke drank is woelachtig; al wie daarin dwaalt, zal niet wijs zijn.
 2. De schrik eens konings is als het brullen eens jongen leeuws; die zich tegen hem vergramt, zondigt tegen zijn ziel.
 3. Het is eer voor een man, van twist af te blijven; maar een ieder dwaas zal er zich in mengen.

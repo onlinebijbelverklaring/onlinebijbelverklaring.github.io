@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 5
+
 VAN PETRUS’ VISVANGST, EEN MELAATSE EN VERLAMDE, MATTHEÜS ROEPING EN HET VASTEN VAN DE DISCIPELEN
 
 ## III. Vers 1-11

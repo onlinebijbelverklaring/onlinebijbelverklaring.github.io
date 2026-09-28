@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 22
+
 STRAFFEN OP DIEFSTAL EN ANDERE ZONDEN.
 
 ## I. Vers 1-17

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 11
+
 1. Want de HEERE had tot Mozes gesproken: Ik zal nog een plaag over Farao, en over Egypte brengen, daarna zal hij ulieden van hier laten trekken; als hij u geheel zal laten trekken, zo zal hij u haastelijk van hier uitdrijven. 
 2. Spreek nu voor de oren des volks, dat ieder man van zijn naaste, en iedere vrouw van haar naaste zilveren vaten en gouden vaten eise. 
 3. En de HEERE gaf het volk genade in de ogen der Egyptenaren; ook was de man Mozes zeer groot in Egypteland voor de ogen van Farao's knechten, en voor de ogen des volks. 

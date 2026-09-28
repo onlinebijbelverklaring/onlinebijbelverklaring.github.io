@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 19
+
 1. En Joab werd aangezegd: Zie, de koning weent, en bedrijft rouw over Absalom. 
 2. Toen werd de verlossing te dienzelven dage het ganse volk tot rouw; want het volk had te dienzelven dage horen zeggen: Het smart de koning over zijn zoon. 
 3. En het volk kwam te dienzelven dage steelsgewijze in de stad, gelijk als het volk zich wegsteelt, dat beschaamd is, wanneer zij in de strijd gevloden zijn. 

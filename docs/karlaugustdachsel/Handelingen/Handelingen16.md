@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 16
+
 PAULUS’ WERK EN LIJDEN TE LYSTRE, IN AZIE EN BITHYNIE, TROAS EN FILIPPI
 
 ***1. En hij kwam, toen hij op de weg, in hoofdst. 15: 41 genoemd, Tarsus aandeed, te Derbe en Lystre. En zie daar, namelijk te Lystre, was een zeker discipel genaamd Timotheüs (=" ere zij God, " of "die God vreest, " een naam bij de Grieken zeer gewoon), zoon van een gelovige Joodse vrouw, Eunice (2 Tim. 1: 5), die gelovig was geworden in Christus toen Paulus en Barnabas eerder in die stad predikten (hoofdst. 14: 6vv.), maar van een Griekse vader, die in het heidendom was gebleven.***

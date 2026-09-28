@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 8
+
 1. TOEN Hij nu van den berg afgeklommen was, zijn Hem vele scharen gevolgd.
 2. En zie, een melaatse kwam en aanbad Hem, zeggende: Heere, indien Gij wilt, Gij kunt mij reinigen.
 3. En Jezus de hand uitstrekkende, heeft hem aangeraakt, zeggende: Ik wil, word gereinigd. En terstond werd hij van zijn melaatsheid gereinigd.

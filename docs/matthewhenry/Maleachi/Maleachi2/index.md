@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Maleachi 2
+
 1. En nu, gij priesters! tot u wordt dit gebod gezonden; 
 2. Indien gij het niet zult horen, en indien gij het niet zult ter harte nemen, om Mijn Naam eer te geven, zegt de HEERE der heirscharen, zo zal Ik de vloek onder u zenden, en Ik zal uw zegeningen vervloeken; ja, Ik heb ook alreeds elkeen derzelve vervloekt, omdat gij het niet ter harte neemt. 
 3. Ziet, Ik zal u het zaad verderven; en Ik zal drek op uw aangezichten strooien, de drek uwer feesten, zodat men u met denzelven wegnemen zal. 

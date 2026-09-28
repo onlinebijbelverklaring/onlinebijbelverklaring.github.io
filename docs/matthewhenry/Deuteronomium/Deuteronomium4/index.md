@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 4
+
 1. Nu dan, Israël! hoor naar de inzettingen en naar de rechten, die ik ulieden lere te doen; opdat gij leeft, en henen inkomt, en erft het land, dat de HEERE, uwer vaderen God, u geeft. 
 2. Gij zult tot dit woord, dat ik u gebiede, niet toedoen, ook daarvan niet afdoen; opdat gij bewaart de geboden van de HEERE, uw God, die ik u gebiede. 
 3. Uw ogen hebben gezien, wat God om Baal-peor gedaan heeft; want alle man, die Baal-Peor navolgde, dien heeft de HEERE, uw God, uit het midden van u verdaan. 

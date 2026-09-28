@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 24
+
 1. EN op den eersten dag der week, zeer vroeg in den morgenstond, gingen zij naar het graf, dragende de specerijen die zij bereid hadden, en sommigen met haar.
 2. En zij vonden den steen afgewenteld van het graf.
 3. En ingegaan zijnde, vonden zij het lichaam van den Heere Jezus niet.

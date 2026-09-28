@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 9
+
 1. EN de vijfde engel heeft gebazuind, en ik zag een ster, gevallen uit den hemel op de aarde, en haar werd gegeven de sleutel van den put des afgronds.
 2. En zij heeft den put des afgronds geopend; en er is rook opgegaan uit den put, als rook eens groten ovens; en de zon en de lucht is verduisterd geworden van den rook des puts.
 3. En uit den rook kwamen sprinkhanen op de aarde, en hun werd macht gegeven, gelijk de schorpioenen der aarde macht hebben.

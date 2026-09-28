@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 10
+
 1. HOORT het woord dat de HEERE tot ulieden spreekt, o huis Israëls.
 2. Zo zegt de HEERE: Leert den weg der heidenen niet, en ontzet u niet voor de tekenen des hemels, dewijl zich de heidenen voor dezelve ontzetten.
 3. Want de inzettingen der volken zijn ijdelheid; want het is hout dat men uit het woud gehouwen heeft, een werk van des werkmeesters handen met de bijl.

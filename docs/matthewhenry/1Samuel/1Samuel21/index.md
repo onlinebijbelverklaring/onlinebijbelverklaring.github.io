@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 21
+
 1. Toen kwam David te Nob, tot de priester Achimelech; en Achimelech kwam bevende David tegemoet, en hij zeide tot hem: Waarom zijt gij alleen, en geen man met u? 
 2. En David zeide tot de priester Achimelech: De koning heeft mij een zaak bevolen, en zeide tot mij: Laat niemand iets van de zaak weten, om dewelke ik u gezonden heb, en die ik u geboden heb; de jongelingen nu heb ik de plaats van zulk een te kennen gegeven. 
 3. En nu wat is er onder uw hand? Geef mij vijf broden in mijn hand, of wat er gevonden wordt. 

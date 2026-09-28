@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 15
+
 1. En het geschiedde daarna, dat Absalom zich liet bereiden wagenen en paarden, en vijftig mannen, lopende voor zijn aangezicht henen. 
 2. Ook maakte zich Absalom des morgens vroeg op, en stond aan de zijde van de weg der poort. En het geschiedde, dat Absalom allen man, die een geschil had, om tot de koning ten gerichte te komen, tot zich riep, en zei: Uit welke stad zijt gij? Als hij dan zei: Uw kencht is uit een der stammen Israëls; 
 3. Zo zei Absalom tot hem: Zie, uw zaken zijn goed en recht; maar gij hebt geen verhoorder van des konings wege. 

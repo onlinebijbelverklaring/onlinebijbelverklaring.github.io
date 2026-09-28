@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 13
+
 1. En de kinderen Israëls voeren voort te doen, dat kwaad was in de ogen des HEEREN; zo gaf de HEERE hen in de hand der Filistijnen veertig jaren. 
 2. En er was een man van Zora, uit het geslacht van een Daniet, wiens naam was Manoach; en zijn huisvrouw was onvruchtbaar en baarde niet. 
 3. En een Engel des HEEREN verscheen aan deze vrouw, en Hij zeide tot haar: Zie nu, gij zijt onvruchtbaar, en hebt niet gebaard; maar gij zult zwanger worden, en een zoon baren. 

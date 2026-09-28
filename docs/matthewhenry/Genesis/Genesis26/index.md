@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 26
+
 1. En er was honger in dat land, behalve de eersten honger, die in de dagen van Abraham geweest was; daarom toog Izak tot Abimelech, de koning der Filistijnen, naar Gerar. 
 2. En de HEERE verscheen hem en zeide: Trek niet af naar Egypte; woon in het land, dat Ik u aanzeggen zal; 
 3. Woon als vreemdeling in dat land, en Ik zal met u zijn, en zal u zegenen; want aan u en uw zaad zal Ik al deze landen geven, en Ik zal de eed bevestigen, dien Ik Abraham uw vader gezworen heb. 

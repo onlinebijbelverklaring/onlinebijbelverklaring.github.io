@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 16
+
 1. In het zes en dertigste jaar van het koninkrijk van Asa, toog Baesa, de koning van Israël, op tegen Juda, en bouwde Rama, opdat hij niemand toeliet uit te gaan en in te komen tot Asa, de koning van Juda. 
 2. Toen bracht Asa het zilver en het goud voort, uit de schatten van het huis des HEEREN en van het huis des konings, en zond tot Benhadad, de koning van Syrië, die te Damaskus woonde, zeggende: 
 3. Er is een verbond tussen mij en tussen u, en tussen mijn vader en tussen uw vader; zie, ik zend u zilver en goud, ga heen, maak uw verbond te niet met Baesa, de koning van Israël, dat hij van tegen mij aftrekke. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 4
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Spreek tot de kinderen Israëls, zeggende: Als een ziel zal gezondigd hebben, door afdwaling van enige geboden des HEEREN, dat niet zou gedaan worden, en tegen een van die zal gedaan hebben; 
 3. Indien de priester, die gezalfd is, zal gezondigd hebben, tot schuld des volks, zo zal hij voor zijn zonde, die hij gezondigd heeft, offeren een var, een volkomen jong rund, de HEERE ten zondoffer. 

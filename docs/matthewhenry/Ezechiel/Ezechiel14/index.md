@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 14
+
 1. DAARNA kwamen tot mij mannen uit de oudsten van Israël, en zaten neder voor mijn aangezicht.
 2. Toen geschiedde des HEEREN woord tot mij, zeggende:
 3. Mensenkind, deze mannen hebben hun drekgoden in hun hart opgezet en hebben den aanstoot hunner ongerechtigheid recht voor hun aangezichten gesteld; word Ik dan ernstiglijk van hen gevraagd?

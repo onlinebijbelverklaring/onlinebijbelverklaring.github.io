@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 37
+
 1. En Jakob woonde in het land der vreemdelingschappen zijns vaders, in het land Kanaän. 
 2. Dit zijn Jacobs geschiedenissen. Jozef, zijnde een zoon van zeventien jaren, weidde de kudde met zijn broeders (en hij was een jongeling), met de zonen van Bilha, en de zonen van Zilpa, zijns vaders vrouwen; en Jozef bracht hun kwaad gerucht tot hun vader. 
 3. En Israel had Jozef lief, boven al zijn zonen; want hij was hem een zoon des ouderdoms; en hij maakte hem een veelvervigen rok. 

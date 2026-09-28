@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 15
+
 1. En het geschiedde na sommige dagen, in de dagen van de tarweoogst, dat Simson zijn huisvrouw bezocht met een geitenbokje, en hij zeide: Laat mij tot mijn huisvrouw ingaan in de kamer; maar haar vader liet hem niet toe in te gaan. 
 2. want haar vader zeide: Ik sprak zeker, dat gij haar ganselijk haattet, zo heb ik haar aan uw metgezel gegeven. Is niet haar kleinste zuster schoner dan zij? Laat ze u toch zijn in de plaats van haar. 
 3. Toen zeide Simson tot henlieden: Ik ben ditmaal onschuldig van de Filistijnen, wanneer ik aan hen kwaad doe. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 14
+
 1. ELKE wijze vrouw bouwt haar huis, maar die zeer dwaas is, breekt het af met haar handen.
 2. Die in zijn oprechtheid wandelt, vreest den HEERE; maar die afwijkt in zijn wegen, veracht Hem.
 3. In den mond des dwazen is een roede des hoogmoeds, maar de lippen der wijzen bewaren hen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 12
+
 1. DAARENTUSSEN als vele duizenden der schare bijeenvergaderd waren, zodat zij elkander vertraden, begon Hij te zeggen tot Zijn discipelen: Vooreerst wacht uzelven voor den zuurdesem der farizeeën, welke is geveinsdheid.
 2. En er is niets bedekt, dat niet zal ontdekt worden, en verborgen, dat niet zal geweten worden.
 3. Daarom, al wat gij in de duisternis gezegd hebt, zal in het licht gehoord worden; en wat gij in het oor gesproken hebt in de binnenkamers, zal op de daken gepredikt worden.

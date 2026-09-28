@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 9
+
 1. MAAR Job antwoordde en zeide:
 2. Waarlijk, ik weet dat het zo is; want hoe zou de mens rechtvaardig zijn bij God?
 3. Zo hij lust heeft om met Hem te twisten, niet één uit duizend zal hij Hem beantwoorden.

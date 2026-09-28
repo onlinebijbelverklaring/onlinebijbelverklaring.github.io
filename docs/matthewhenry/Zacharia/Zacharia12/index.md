@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 12
+
 1. De last van het woord des HEEREN over Israël. De HEERE spreekt, Die de hemel uitbreidt, en de aarde grondvest, en des mensen geest in zijn binnenste formeert. 
 2. Ziet, Ik zal Jeruzalem stellen tot een drinkschaal der zwijmeling allen volken rondom; ja, ook zal zij zijn over Juda, in de belegering tegen Jeruzalem. 
 3. En het zal te dien dage geschieden, dat Ik Jeruzalem stellen zal tot een lastigen steen allen volken; allen, die zich daarmede beladen, zullen gewisselijk doorsneden worden; en al de volken der aarde zullen zich tegen haar verzamelen. 

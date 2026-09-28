@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 56
+
 1. ALZO zegt de HEERE: Bewaart het recht en doet gerechtigheid, want Mijn heil is nabij om te komen en Mijn gerechtigheid om geopenbaard te worden.
 2. Welgelukzalig is de mens die zulks doet, en des mensen kind dat daaraan vasthoudt; die den sabbat houdt, zodat hij dien niet ontheiligt, en die zijn hand bewaart van enig kwaad te doen.
 3. En de vreemde die zich tot den HEERE gevoegd heeft, spreke niet, zeggende: De HEERE heeft mij gans en al van Zijn volk gescheiden; en de gesnedene zegge niet: Zie, ik ben een dorre boom.

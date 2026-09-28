@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 6
+
 1. BROEDERS, indien ook een mens overvallen ware door enige misdaad, gij die geestelijk zijt, brengt den zodanige terecht met den geest der zachtmoedigheid; ziende op uzelven, opdat ook gij niet verzocht wordt.
 2. Draagt elkanders lasten, en vervult alzo de wet van Christus.
 3. Want zo iemand meent iets te zijn, daar hij niets is, die bedriegt zichzelven in zijn gemoed.

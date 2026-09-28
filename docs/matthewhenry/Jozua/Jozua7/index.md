@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 7
+
 1. Maar de kinderen Israëls overtraden door overtreding met het verbannene; want Achan, de zoon van Charmi, de zoon van Zabdi, de zoon van Zerah, uit de stam van Juda, nam van het verbannene. Toen ontstak de toorn des HEEREN tegen de kinderen Israëls. 
 2. Als Jozua mannen zond van Jericho naar Ai, dat bij Beth-aven ligt, aan het oosten van Beth-el, zo sprak hij tot hen, zeggende: Trekt opwaarts en bespiedt het land. Die mannen nu trokken op en bespiedden Ai. 
 3. Daarna keerden zij weder naar Jozua, en zeiden tot hem: Dat het ganse volk niet optrekke, dat er omtrent twee duizend mannen, of omtrent drie duizend mannen optrekken, om Ai te slaan; vermoei daarheen al het volk niet; want zij zijn weinige. 

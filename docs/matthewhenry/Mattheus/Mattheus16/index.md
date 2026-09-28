@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 16
+
 1. EN de farizeeën en sadduceeën tot Hem gekomen zijnde en Hem verzoekende, begeerden van Hem dat Hij hun een teken uit den hemel zou tonen.
 2. Maar Hij antwoordde en zeide tot hen: Als het avond geworden is, zegt gij: Schoon weder, want de hemel is rood.
 3. En des morgens: Heden onweder, want de hemel is droevig rood. Gij geveinsden, het aanschijn des hemels weet gij wel te onderscheiden, en kunt gij de tekenen der tijden niet onderscheiden?

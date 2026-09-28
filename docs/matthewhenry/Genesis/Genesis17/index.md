@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 17
+
 1. Als nu Abram negen en negentig jaren oud was, zo verscheen de HEERE aan Abram, en zeide tot hem: Ik ben God, de Almachtige! Wandel voor Mijn aangezicht, en zijt oprecht! 
 2. En Ik zal Mijn verbond stellen tussen Mij en tussen u, en Ik zal u gans zeer vermenigvuldigen. 
 3. Toen viel Abram op zijn aangezicht, en God sprak met hem, zeggende: 

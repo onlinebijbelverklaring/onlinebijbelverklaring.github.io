@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 22
+
 PAULUS’ VERANTWOORDING
 
 ***1. Mannen, broeders en vaders! (hoofdstuk 7: 2) Hoort mijn verantwoording, die ik nu voor u zal afleggen omtrent hetgeen ik ben geworden, namelijk een belijder van Christus en een apostel van Zijn evangelie, hetgeen gij mij als een schuld toerekent.***

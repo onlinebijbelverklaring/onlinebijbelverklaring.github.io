@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 42
+
 1. DAARNA bracht Hij mij uit tot het buitenste voorhof, den weg naar den weg van het noorden; en Hij bracht mij tot de kamers die tegenover de afgesneden plaats en die tegenover het gebouw tegen het noorden waren:
 2. Vóór aan de lengte van de honderd ellen naar de deur van het noorden, en de breedte was vijftig ellen.
 3. Tegenover de twintig ellen die het binnenste voorhof had, en tegenover het plaveisel dat het buitenste voorhof had, was galerij tegen galerij, in drie rijen.

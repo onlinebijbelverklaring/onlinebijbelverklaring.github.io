@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 3
+
 PETRUS VERRICHT EEN WONDER AAN EEN LAMME EN DRINGT AAN DAT MEN ZICH TOT CHRISTUS BEKERE
 
 ### c. Vers 1-Hoofdstuk 4:4 

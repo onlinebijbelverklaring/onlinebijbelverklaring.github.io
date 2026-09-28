@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 11
+
 1. IK nu, ik stond in het eerste jaar van Daríus, den Meder, om hem te versterken en te stijven.
 2. En nu, ik zal u de waarheid te kennen geven: Zie, er zullen nog drie koningen in Perzië staan, en de vierde zal verrijkt worden met groten rijkdom, meer dan al de anderen; en nadat hij zich in zijn rijkdom zal versterkt hebben, zal hij hen allen verwekken tegen het koninkrijk van Griekenland.
 3. Daarna zal er een geweldig koning opstaan, die met grote heerschappij heersen zal, en hij zal doen naar zijn welgevallen.

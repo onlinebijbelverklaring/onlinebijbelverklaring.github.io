@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 7
+
 1. WANT deze Melchizédek was koning van Salem, een priester des allerhoogsten Gods, die Abraham tegemoetging als hij wederkeerde van het slaan der koningen, en hem zegende;
 2. Aan welken ook Abraham van alles de tiende deelde; die vooreerst overgezet wordt: koning der gerechtigheid, en daarna ook was een koning van Salem, hetwelk is een koning des vredes;
 3. Zonder vader, zonder moeder, zonder geslachtsrekening, noch begin der dagen, noch einde des levens hebbende; maar den Zone Gods gelijk geworden zijnde, blijft hij een priester in eeuwigheid.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 9
+
 1. DAARNA riep Hij voor mijn oren met luider stem, zeggende: Doet de opzieners der stad naderen, en elkeen met zijn verdervend wapen in zijn hand.
 2. En zie, zes mannen kwamen van den weg der Hoge poort, die gekeerd is naar het noorden, en elkeen met zijn verpletterend wapen in zijn hand, en één Man in het midden van hen was met linnen bekleed, en een schrijvers-inktkoker was aan Zijn lendenen; en zij kwamen in en stonden bij het koperen altaar.
 3. En de heerlijkheid van den God Israëls hief zich op van den cherub, waarop Hij was, tot den dorpel van het huis; en Hij riep tot den Man Die met linnen bekleed was, Die den schrijvers-inktkoker aan Zijn lendenen had.

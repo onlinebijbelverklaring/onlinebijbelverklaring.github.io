@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 45
+
 1. ALS gijlieden nu het land zult doen vallen in erfenis, zo zult gij een hefoffer den HEERE offeren, tot een heilige plaats, van het land; de lengte zal zijn de lengte van vijf en twintig duizend meetrieten en de breedte tienduizend; dat zal in zijn gehele grens rondom heilig zijn.
 2. Hiervan zullen tot het heiligdom zijn vijfhonderd met vijfhonderd, vierkant rondom; en het zal vijftig ellen hebben tot een buitenruim rondom.
 3. Alzo zult gij meten van deze maat, de lengte van vijf en twintig duizend en de breedte van tienduizend; en daarin zal het heiligdom zijn met het heilige der heiligen.

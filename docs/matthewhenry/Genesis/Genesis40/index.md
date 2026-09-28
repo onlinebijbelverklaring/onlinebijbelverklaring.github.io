@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 40
+
 1. En het geschiedde na deze dingen, dat de schenker des konings van Egypte, en de bakker, zondigden tegen hun Heere, tegen de koning van Egypte. 
 2. Zodat Farao zeer toornig werd op zijn twee hovelingen, op de overste der schenkers, en op de overste der bakkers. 
 3. En hij leverde hen in bewaring, ten huize van de overste der trawanten, in het gevangenhuis, ter plaatse, waar Jozef gevangen was. 

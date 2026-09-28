@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 35
+
 1. DE woestijn en de dorre plaatsen zullen hierover vrolijk zijn, en de wildernis zal zich verheugen en zal bloeien als een roos.
 2. Zij zal lustig bloeien en zich verheugen, ja, met verheuging en juichen; de heerlijkheid van Libanon is haar gegeven, het sieraad van Karmel en Saron; zij zullen zien de heerlijkheid des HEEREN, het sieraad onzes Gods.
 3. Versterkt de slappe handen, en stelt de struikelende knieën vast.

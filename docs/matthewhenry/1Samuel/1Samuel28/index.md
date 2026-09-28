@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 28
+
 1. En het geschiedde in die dagen, als de Filistijnen hun legers vergaderden tot de strijd, om tegen Israël te strijden, zo zeide Achis tot David: Gij zult zekerlijk weten, dat gij met mij in het leger zult uittrekken, gij en uw mannen. 
 2. Toen zeide David tot Achis: Aldus zult gij weten, wat uw knecht doen zal. En Achis zeide tot David: Daarom zal ik u ten bewaarder mijns hoofds zetten, te allen dage. 
 3. Samuël nu was gestorven, en gans Israël had rouw over hem bedreven; en zij hadden hem begraven te Rama, te weten in zijn stad. En Saul had uit het land weggedaan de waarzeggers en duivelskunstenaars. 

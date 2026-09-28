@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 6
+
 1. Jericho nu sloot de poorten toe, en was gesloten, voor het aangezicht van de kinderen Israëls; er ging niemand uit, en er ging niemand in. 
 2. Toen zeide de HEERE tot Jozua: Zie, Ik heb Jericho met haar koning en strijdbare helden in uw hand gegeven. 
 3. Gij dan allen, die krijgslieden zijt, zult rondom de stad gaan, de stad omringende eenmaal; alzo zult gij doen zes dagen lang. 

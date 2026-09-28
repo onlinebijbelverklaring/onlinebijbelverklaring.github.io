@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 33
+
 1. Dit nu is de zegen, met welken Mozes, de man Gods, de kinderen Israëls gezegend heeft, voor zijn dood. 
 2. Hij zeide dan: De HEERE is van Sinaï gekomen, en is hunlieden opgegaan van Seir; Hij is blinkende verschenen van het gebergte Paran, en is aangekomen met tien duizenden der heiligen; tot Zijn rechterhand was een vurige wet aan hen. 
 3. Immers bemint Hij de volken! Al zijn heiligen zijn in Uw hand; zij zullen in het midden tussen Uw voeten gezet worden; een ieder zal ontvangen van Uw woorden. 

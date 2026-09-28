@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nahum 1
+
 1. De last van Nineve. Het boek des gezichts van Nahum, de Elkosiet. 
 2. Een ijverig God en een wreker is de HEERE, een wreker is de HEERE, en zeer grimmig; een wreker is de HEERE aan Zijn wederpartijders, en Hij behoudt de toorn Zijn vijanden. 
 3. De HEERE is lankmoedig, doch van grote kracht, en Hij houdt de schuldige geenszins onschuldig. Des HEEREN weg is in wervelwind, en in storm, en de wolken zijn het stof Zijner voeten. 

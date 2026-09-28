@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 6
+
 1. EN het woord des HEEREN geschiedde tot mij, zeggende:
 2. Mensenkind, zet uw aangezicht tegen de bergen Israëls, en profeteer tegen dezelve,
 3. En zeg: Gij bergen Israëls, hoort het woord des Heeren HEEREN; zo zegt de Heere HEERE tot de bergen en tot de heuvelen, tot de beken en tot de dalen: Zie, Ik, Ik breng over u het zwaard, en Ik zal uw hoogten verderven.

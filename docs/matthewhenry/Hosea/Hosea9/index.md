@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 9
+
 1. Verblijd u niet, o Israël! tot opspringens toe, gelijk de volken; want gij hoereert van uw God af; gij hebt hoerenloon lief, op alle dorsvloeren des korens. 
 2. De dors vloer en de wijnkuip zal henlieden niet voeden; en de most zal hun liegen. 
 3. Zij zullen in des HEEREN land niet blijven; maar Efraïm zal weder tot Egypte keren, en zij zullen in Assyrie het onreine eten. 

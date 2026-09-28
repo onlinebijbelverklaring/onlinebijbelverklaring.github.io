@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 26
+
 BOUW VAN DE TABERNAKEL.
 
 ## I. Vers 1-14

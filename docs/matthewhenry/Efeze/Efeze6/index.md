@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 6
+
 1. GIJ kinderen, zijt uw ouders gehoorzaam in den Heere; want dat is recht.
 2. Eer uw vader en moeder (hetwelk het eerste gebod is met een belofte),
 3. Opdat het u welga en dat gij lang leeft op de aarde.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 17
+
 1. MIJN geest is verdorven, mijn dagen worden uitgeblust, de graven zijn voor mij.
 2. Zijn niet bespotters bij mij, en overnacht niet mijn oog in hunlieder verbittering?
 3. Zet toch bij, stel mij een borg bij U; wie zal hij zijn, dat in mijn hand geklapt worde?

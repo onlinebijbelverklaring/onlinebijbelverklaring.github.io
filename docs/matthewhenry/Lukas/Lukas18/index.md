@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 18
+
 1. EN Hij zeide ook een gelijkenis tot hen, daartoe strekkende dat men altijd bidden moet en niet vertragen;
 2. Zeggende: Er was een zeker rechter in een stad, die God niet vreesde en geen mens ontzag.
 3. En er was een zekere weduwe in dezelve stad, en zij kwam tot hem, zeggende: Doe mij recht tegen mijn wederpartij.

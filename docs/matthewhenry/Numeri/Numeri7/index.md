@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 7
+
 1. En het geschiedde ten dage, als Mozes geeindigd had de tabernakel op te richten, en dat hij dien gezalfd, en dien geheiligd had, en al zijn gereedschap, mitsgaders het altaar en al zijn gereedschap, en hij ze gezalfd, en dezelve geheiligd had; 
 2. Dat de oversten van Israël, de hoofden van het huis hunner vaderen, offerden; deze waren de oversten der stammen, die over de getelden stonden. 
 3. En zij brachten hun offerande voor het aangezicht des HEEREN, zes overdekte wagens, en twaalf runderen; een wagen voor twee oversten, en een os voor elk een; en brachten ze voor de tabernakel. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Joel 1
+
 AANKONDIGING VAN GODS STRAFFEN AAN DE JODEN.
 
 ***1. Het woord des HEEREN, dat geschied is (Deut. 18:22) tot Joël (= de Heere is God) 1), den zoon van Pethuël (= eenvoudigheid van God), enen man te Jeruzalem, waarschijnlijk uit een priesterlijk geslacht, ons overigens onbekend.***

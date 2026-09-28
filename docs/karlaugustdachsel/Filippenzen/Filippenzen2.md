@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filippenzen 2
+
 DE VERNEDERING EN VERHOGING VAN CHRISTUS MOET TOT EENHEID EN OOTMOEDIGHEID DRINGEN
 
 ***1. Als er dan, om op mijn vorige vermaning (Hoofdstuk 1: 27) terug te komen, aan welker behartiging volgens hetgeen daar gezegd is zoveel gelegen ligt als er dan enige vertroosting is in Christus, als er enige troost is van de liefde, als er enige gemeenschap is van de Geest, als er enige innerlijke bewegingen en ontfermingen zijn, zoals ik dat bij u, die het Christendom heeft aangenomen (Hoofdstuk 1: 5 v.), mag veronderstellen.***

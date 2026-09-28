@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 34
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, profeteer tegen de herders Israëls, profeteer en zeg tot hen, tot de herders: Alzo zegt de Heere HEERE: Wee den herders Israëls die zichzelven weiden; zullen niet de herders de schapen weiden?
 3. Gij eet het vette en bekleedt u met de wol, gij slacht het gemeste, maar de schapen weidt gij niet.

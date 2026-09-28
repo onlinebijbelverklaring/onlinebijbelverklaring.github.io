@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 18
+
 1. Het geschiedde nu na dezen, dat David de Filistijnen sloeg, en hen ten onder bracht; en hij nam Gath, en haar onderhorige plaatsen, uit der Filistijnen hand. 
 2. Hij sloeg ook de Moabieten, alzo dat de Moabieten Davids knechten werden, brengende geschenken. 
 3. David sloeg ook Hadar-ezer, de koning van Zoba, naar Hamath toe, toen hij heentoog, om zijn hand te stellen aan de rivier Frath. 

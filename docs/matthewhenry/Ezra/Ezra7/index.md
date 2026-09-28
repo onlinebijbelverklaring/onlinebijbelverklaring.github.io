@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 7
+
 1. Na deze geschiedenissen nu, in het koninkrijk van Arthahsasta, koning van Perzië: Ezra, de zoon van Seraja, de zoon van Azarja, de zoon van Hilkia, 
 2. de zoon van Sallum, de zoon van Zadok, de zoon van Ahitub, 
 3. de zoon van Amarja, de zoon van Azarja, de zoon van Merajoth, 

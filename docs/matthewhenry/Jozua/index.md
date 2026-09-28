@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jozua
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK JOZUA
 
 I. Wij hebben nu voor ons de geschiedenis van het Joodse volk, in dit en de volgende boeken tot aan het einde van het boek Esther. De Joodse schrijvers noemen deze boeken tot aan het einde van de boeken der Koningen, het eerste boek der profeten, omdat zij de boeken van het Oude Testament verdelen in de Wet, de Profeten en de Chetubim, of Hagiografa, Lukas 24:44. Want hoewel geschiedenis het onderwerp is, dat er in behandeld wordt, wordt toch met recht verondersteld dat profeten er de schrijvers van waren. De boeken, die zuiver en in de eigenlijken zin profetisch zijn, dragen de naam van de profeet, omdat de geloofwaardigheid der profetieën zeer veel afhing van het karakter van de profeten; maar deze historische boeken zijn waarschijnlijk verzamelingen, bijeengebracht uit de authentieke registers van het vork, die sommige profeten (de Joodse kerk was gedurende vele eeuwen meer of minder voortdurend gezegend en bevoorrecht met de zodanige) op bevel en met de hulp van God samengesteld hebben ten diepste der kerk tot aan het einde der wereld. Evenals hun andere ambtlieden ontvingen ook hun geschiedschrijvers hun gezag van boven. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 60
+
 1. MAAK u op, word verlicht, want uw Licht komt, en de heerlijkheid des HEEREN gaat over u op.
 2. Want zie, de duisternis zal de aarde bedekken en donkerheid de volken; doch over u zal de HEERE opgaan, en Zijn heerlijkheid zal over u gezien worden.
 3. En de heidenen zullen tot uw licht gaan, en koningen tot den glans die u is opgegaan.

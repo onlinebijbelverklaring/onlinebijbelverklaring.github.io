@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 28
+
 WETTEN VAN VERSCHILLENDE OFFERS HERHAALD.
 
 Hoofdstuk 28 en 29. Nadat Israël, dat tot de dienst van Baäl Peor verleid, en door het gericht van God gelouterd was, in de tweede monstering (hoofdstuk 26) en in de feitelijke bekrachtiging van het bezit van het heilige land (hoofdstuk 27:1,11), en in de benoeming van een opvolger aan Mozes (hoofdstuk 27:12-23) weer geheel en al tot een volk van God was aangenomen, wordt de wederaanneming tot gemeente van de Heere nog daardoor verzegeld, dat de wetgeving, die 38 jaar geleden was afgebroken, in die punten, welke nog een vervolmaking nodig hebben, verder wordt voortgezet. Dit gebeurt door een nauwkeurige bepaling van de dagelijkse- en de feestoffers van de gemeente: deze verordening op het offeren is juist nu daarom des te meer op haar plaats, daar Israël pas hier in staat zal zijn, de offerdienst in haar gehele omvang uit te oefenen.

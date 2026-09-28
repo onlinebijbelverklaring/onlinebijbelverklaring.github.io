@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 7
+
 ANTWOORD OP VERSCHILLENDE VRAGEN OVER GEHUWDEN, ONGEHUWDEN EN DE WEDUWENSTAAT
 
 C. In het tweede deel van zijn brief, dat nu volgt en van Hoofdstuk 7-14 loopt, behandelt de apostel de brief, die hem door de gemeente is toegezonden 1Co 1: 2. Hij antwoordt op de hem voorgelegde vragen, of verbindt zijn onderwijs aan uitdrukkingen daarin gebruikt, om wat onduidelijk is op te helderen, misbruik te voorkomen en overal de juiste gezichtspunten vast te stellen.

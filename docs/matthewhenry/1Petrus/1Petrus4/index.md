@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 4
+
 1. DEWIJL dan Christus voor ons in het vlees geleden heeft, zo wapent gij u ook met dezelfde gedachte, namelijk dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde;
 2. Om nu niet meer naar de begeerlijkheden der mensen, maar naar den wil van God den tijd die overig is in het vlees, te leven.
 3. Want het is ons genoeg dat wij den voorgaanden tijd des levens der heidenen wil volbracht hebben, en gewandeld hebben in ontuchtigheden, begeerlijkheden, wijnzuiperijen, brasserijen, drinkerijen en gruwelijke afgoderijen;

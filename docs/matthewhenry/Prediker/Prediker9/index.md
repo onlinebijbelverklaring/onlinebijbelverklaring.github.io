@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 9
+
 1. ZEKERLIJK, dit alles heb ik in mijn hart gelegd, opdat ik dit alles klaarlijk mocht verstaan, dat de rechtvaardigen en de wijzen en hun werken in de hand Gods zijn; ook liefde, ook haat weet de mens niet uit al hetgeen dat voor zijn aangezicht is.
 2. Alle ding wedervaart hun gelijk allen anderen; enerlei wedervaart den rechtvaardige en den goddeloze, den goede en den reine, als den onreine; zo dien die offert, als dien die niet offert; gelijk den goede, alzo ook den zondaar; dien die zweert, gelijk als dien die den eed vreest.
 3. Dit is een kwaad onder alles wat onder de zon geschiedt, dat enerlei ding allen wedervaart, en dat ook het hart der mensenkinderen vol boosheid is en dat er in hun leven onzinnigheden zijn in hun hart; en daarna moeten zij naar de doden toe.

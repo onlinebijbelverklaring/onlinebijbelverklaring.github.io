@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 57
+
 1. EEN gouden kleinood van David, voor den opperzangmeester, Altáscheth; als hij voor Sauls aangezicht vlood in de spelonk.
 2. Zijt mij genadig, o God, zijt mij genadig; want mijn ziel betrouwt op U en ik neem mijn toevlucht onder de schaduw Uwer vleugelen, totdat de verdervingen zullen voorbij zijn gegaan.
 3. Ik zal roepen tot God, den Allerhoogste, tot God, Die het aan mij voleinden zal.

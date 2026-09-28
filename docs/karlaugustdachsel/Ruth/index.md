@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Ruth
+
 ## HET BOEK RUTH.
 
 Het boek Ruth vormt enigszins de overgang tussen het boek der Richteren en de boeken van Samuël. Het leidt ons in in het familieleven van de voorouders van David, terwijl het ons tevens meedeelt de geschiedenis van een Israëlitisch gezin, dat hoogstwaarschijnlijk geleefd heeft in de dagen van Gideon; toen, tengevolge van de verschrikkelijke verdrukking de Midianieten, noodzakelijk de Israëlieten aan hongersnood ten prooi waren.

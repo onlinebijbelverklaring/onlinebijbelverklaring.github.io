@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 143
+
 1. EEN psalm van David. O HEERE, hoor mijn gebed, neig de oren tot mijn smekingen; verhoor mij naar Uw waarheid, naar Uw gerechtigheid.
 2. En ga niet in het gericht met Uw knecht; want niemand die leeft, zal voor Uw aangezicht rechtvaardig zijn.
 3. Want de vijand vervolgt mijn ziel, hij vertreedt mijn leven ter aarde; hij legt mij in duisternissen, als degenen die overlang dood zijn.

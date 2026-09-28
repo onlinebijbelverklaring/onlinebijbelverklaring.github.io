@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 9
+
 1. Het geschiedde nu, als Salomo voleind had te bouwen het huis des HEEREN en het huis des konings, en al de begeerte van Salomo, die hem gelust had te maken; 
 2. Dat de HEERE ten anderen male aan Salomo verscheen, gelijk als Hij hem in Gibeon verschenen was. 
 3. En de HEERE zeide tot hem: Ik heb uw gebed en uw smeking gehoord, die gij voor Mijn aangezicht smekende gedaan hebt; Ik heb dat huis geheiligd, hetwelk gij gebouwd hebt, opdat Ik Mijn Naam aldaar tot in eeuwigheid zette; en Mijn ogen en Mijn hart zullen daar zijn te allen dage. 

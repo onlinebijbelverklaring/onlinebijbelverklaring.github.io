@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 1
+
 1. Welgelukzalig is de man, die niet wandelt in de raad der goddelozen, noch staat op de weg der zondaren, noch zit in het gestoelte der spotters; 
 2. Maar zijn lust is in des HEEREN wet, en hij overdenkt Zijn wet dag en nacht. 
 3. Want hij zal zijn als een boom, geplant aan waterbeken, die zijn vrucht geeft op zijn tijd, en welks blad niet afvalt; en al wat hij doet, zal wel gelukken. 

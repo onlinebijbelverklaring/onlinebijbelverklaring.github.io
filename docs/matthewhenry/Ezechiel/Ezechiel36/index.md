@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 36
+
 1. EN gij, mensenkind, profeteer tot de bergen Israëls, en zeg: Gij bergen Israëls, hoort des HEEREN woord.
 2. Alzo zegt de Heere HEERE: Omdat de vijand van u zegt: Heah, zelfs de eeuwige hoogten zijn ons ten erve geworden!
 3. Daarom, profeteer en zeg: Zo zegt de Heere HEERE: Daarom, omdat men u van rondom verwoest en opgeslokt heeft, opdat gij voor het overblijfsel der heidenen ten erve zoudt zijn, en gij gebracht zijt op de klapachtige lip en in opspraak des volks;

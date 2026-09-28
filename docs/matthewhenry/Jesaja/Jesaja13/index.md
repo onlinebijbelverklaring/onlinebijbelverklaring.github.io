@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 13
+
 1. DE last van Babel, dien Jesaja, de zoon van Amoz, gezien heeft.
 2. Heft op een banier op een hogen berg, verheft een stem tot hen; beweegt de hand omhoog, dat zij intrekken door de deuren der prinsen.
 3. Ik heb aan Mijn geheiligden bevel gegeven; ook heb Ik tot Mijn toorn geroepen Mijn helden, de vrolijken Mijner hoogheid.

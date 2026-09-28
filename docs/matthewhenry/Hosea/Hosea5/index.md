@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 5
+
 1. Hoort dit, gij priesters! en merkt op, gij huis Israëls! en neemt ter oren, gij huis des konings! want ulieden gaat dit oordeel aan, omdat gij een strik zijt geworden te Mizpa, en een uitgespannen net op Thabor. 
 2. En die afwijken, verdiepen zich om te slachten; maar Ik zal hun allen een tuchtmeester zijn. 
 3. Ik ken Efraïm, en Israël is voor Mij niet verborgen; dat gij, o Efraïm! nu hoereert, en Israël verontreinigd is. 

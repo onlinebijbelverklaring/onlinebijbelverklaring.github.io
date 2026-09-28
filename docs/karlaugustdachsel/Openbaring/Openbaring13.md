@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 13
+
 ## VI. Vers 1-10
 In de eerste plaats ziet Johannes uit de zee een dier opstijgen. Dit is de antichristelijke wereldmacht. De gedaante van het dier is op zo karakteristieke wijze beschreven, dat wij in de wereldmacht, hier bedoeld, niet alleen een vereniging moeten zien van de vier wereldmonarchieën van Daniël in haar toppunt, maar ook reeds in staat worden gesteld, het land en volk, dat in de gezichtskring van de profetie treedt, uit te vinden, waaruit dan ten einde van de tijden de anti-christ zal voortkomen. Ja zelfs kan de vraag, die die dynastie zal zijn, worden beantwoord en nu worden ook de aanmatigingen van hem, die uit die dynastie als mens van de zonde en kind van het verderf zal voortkomen, beschreven in nauwe verwantschap met 2 Thess. 2: 4 ; maar tevens ontvangt die Kerk, die zich met deze mens van de zonde verenigt en hem tot zijn heerschappij brengt, de losmaking uit alle verhouding tot Christus en de aankondiging van het gericht, dat hem treft.
 

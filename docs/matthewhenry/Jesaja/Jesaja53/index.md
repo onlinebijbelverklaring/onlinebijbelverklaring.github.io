@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 53
+
 1. WIE heeft onze prediking geloofd? En aan wien is de arm des HEEREN geopenbaard?
 2. Want Hij is als een rijsje voor Zijn aangezicht opgeschoten, en als een wortel uit een dorre aarde; Hij had geen gedaante noch heerlijkheid; als wij Hem aanzagen, zo was er geen gestalte dat wij Hem zouden begeerd hebben.
 3. Hij was veracht en de onwaardigste onder de mensen, een Man van smarten en verzocht in krankheid; en een iegelijk was als verbergende het aangezicht voor Hem; Hij was veracht, en wij hebben Hem niet geacht.

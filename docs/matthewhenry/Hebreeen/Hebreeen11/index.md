@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 11
+
 1. HET geloof nu is een vaste grond der dingen die men hoopt, en een bewijs der zaken die men niet ziet.
 2. Want door hetzelve hebben de ouden getuigenis bekomen.
 3. Door het geloof verstaan wij dat de wereld door het woord Gods is toebereid, alzo dat de dingen die men ziet, niet geworden zijn uit dingen die gezien worden.

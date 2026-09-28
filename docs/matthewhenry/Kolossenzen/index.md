@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Kolossenzen
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN DE COLOSSENZEN
 
 Colosse was een aanzienlijke stad in Frygië, waarschijnlijk niet ver van Laodicéa en Hierápolis gelegen, welke plaatsen wij tezamen vermeld vinden in Hoofdstuk 4:13. Zij ligt thans geheel in puin, en de gedachtenis van de plaats wordt voornamelijk door dezen brief bewaard. 

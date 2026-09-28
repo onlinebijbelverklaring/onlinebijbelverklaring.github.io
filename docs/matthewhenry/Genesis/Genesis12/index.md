@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 12
+
 1. De HEERE nu had tot Abram gezegd: Ga gij uit uw land, en uit uw maagschap, en uit uws vaders huis, naar het land, dat Ik u wijzen zal. 
 2. En Ik zal u tot een groot volk maken, en u zegenen, en uw naam groot maken; en wees een zegen! 
 3. En Ik zal zegenen, die u zegenen, en vervloeken, die u vloekt; en in u zullen alle geslachten des aardrijks gezegend worden. 

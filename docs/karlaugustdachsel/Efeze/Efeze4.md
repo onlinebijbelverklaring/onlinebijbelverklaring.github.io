@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 4
+
 VERMANING TOT GODZALIGHEID EN EENSGEZINDHEID. WAARSCHUWING TEGEN ZONDEN EN VERKEERDHEDEN
 
 C. Aan de volle doxologie, waarmee het eerste deel besloot, dat, zonder direct didactisch te zijn, toch alles, wat de apostel ter lering zijn lezers op het hart wilde leggen, invoegde tussen de daarin vervatte lof- en dankzeggingen en voorbeden, sluit zich nu het tweede, paranetische deel van het epistel aan. Het thema daarvan is de Geest, die in de kerk van Christus werkt, die in de verhouding van haar leden onder elkaar een Geest is van eenheid en tegenover het wezen van de kinderen van deze wereld, een Geest van heiligheid. Daar, waar Hij onverhinderd Zijn verheerlijkende macht kon openbaren, brengt hij de gemeenten tot haar juiste toestand in alle levensomstandigheden. Wel strijden de sterke machten in de onzichtbare geestenwereld als samengezworenen ertegen en werken vijanden tegen, die met hoogst gevaarlijke wapens strijden, maar daarom ook moeten de discipelen van Christus zich voorzien van de wapenrusting, die nog sterker is en door God is gegeven. Daar, waar zij zelf geen slagen kunnen of mogen doen, moeten zij hun toevlucht nemen tot bidden en smeken in de Geest.

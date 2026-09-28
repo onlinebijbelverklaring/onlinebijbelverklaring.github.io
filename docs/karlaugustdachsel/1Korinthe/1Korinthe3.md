@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 3
+
 LERAARS ZIJN DIENAREN, AKKER- EN BOUWLIEDEN. DE HEERE EN DE BEWERKER VAN DE ZALIGHEID IS CHRISTUS
 
 ### c. Vers 1-23

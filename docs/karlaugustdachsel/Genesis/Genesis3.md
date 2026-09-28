@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 3
+
 ADAM EN EVA ZONDIGEN. HUN STRAF. BELOFTE VAN DE MESSIAS.
 
 ## I. Vers 1-7

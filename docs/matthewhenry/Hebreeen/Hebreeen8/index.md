@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 8
+
 1. DE hoofdsom nu der dingen waarvan wij spreken, is, dat wij hebben zodanigen Hogepriester, Die gezeten is aan de rechterhand van den troon der Majesteit in de hemelen,
 2. Een Bedienaar des heiligdoms, en des waren tabernakels, welken de Heere heeft opgericht, en geen mens.
 3. Want een iegelijk hogepriester wordt gesteld om gaven en slachtoffers te offeren; waarom het noodzakelijk was dat ook Deze wat had dat Hij zou offeren.

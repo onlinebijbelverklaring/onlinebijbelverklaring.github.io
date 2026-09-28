@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 4
+
 1. Maar in het laatste der dagen zal het geschieden, dat de berg van het huis des HEEREN zal vastgesteld zijn op de top der bergen; en hij zal verheven zijn boven de heuvelen, en de volken zullen tot hem toevloeien. 
 2. En vele heidenen zullen heengaan, en zeggen: Komt en laat ons opgaan tot de berg des HEEREN, en ten huize van de God Jakobs, opdat Hij ons lere van Zijn wegen, en wij in Zijn paden wandelen; want uit Sion zal de wet uitgaan, en des HEEREN woord uit Jeruzalem. 
 3. En Hij zal onder grote volken richten, en machtige heidenen straffen, tot verre toe; en zij zullen hun zwaarden slaan tot spaden, en hun spiesen tot sikkelen; het een volk zal tegen het andere volk geen zwaard opheffen, en zij zullen de krijg niet meer leren. 

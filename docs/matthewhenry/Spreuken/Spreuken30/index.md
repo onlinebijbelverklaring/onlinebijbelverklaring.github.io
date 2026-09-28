@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 30
+
 1. DE woorden van Agur, zoon van Jake; een last. De man spreekt tot Ithiël, tot Ithiël en Uchal.
 2. Voorwaar, ik ben onvernuftiger dan iemand, en ik heb geen mensenverstand;
 3. En ik heb geen wijsheid geleerd, noch de wetenschap der heiligen gekend.

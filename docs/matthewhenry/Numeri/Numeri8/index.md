@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 8
+
 1. En de HEERE sprak tot Mozes, zeggende: 
 2. Spreek tot Aäron, en zeg tot hem: Als gij de lampen aansteken zult, recht tegenover de kandelaar zullen de zeven lampen lichten. 
 3. En Aäron deed alzo: tegenover vooraan de kandelaar stak hij deszelfs lampen aan; gelijk als de HEERE Mozes geboden had. 

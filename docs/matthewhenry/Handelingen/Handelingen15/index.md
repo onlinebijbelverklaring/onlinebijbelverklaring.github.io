@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 15
+
 1. EN sommigen, die afgekomen waren van Judéa, leerden de broederen, zeggende: Indien gij niet besneden wordt naar de wijze van Mozes, zo kunt gij niet zalig worden.
 2. Als er dan geen kleine wederstand en twisting geschiedde bij Paulus en Bárnabas tegen hen, zo hebben zij geordineerd dat Paulus en Bárnabas en enige anderen uit hen zouden opgaan tot de apostelen en ouderlingen naar Jeruzalem over deze vraag.
 3. Zij dan van de gemeente uitgeleid zijnde, reisden door Fenícië en Samaría, verhalende de bekering der heidenen, en deden al den broederen grote blijdschap aan.

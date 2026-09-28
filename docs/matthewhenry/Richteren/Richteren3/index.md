@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 3
+
 1. Dit nu zijn de heidenen, die de HEERE liet blijven, om door hen Israël te verzoeken, allen, die niet wisten van al de krijgen van Kanaän; 
 2. Alleenlijk, opdat de geslachten der kinderen Israëls die wisten, opdat Hij hun de krijg leerde, tenminste dengenen, die daar te voren niet van wisten. 
 3. Vijf vorsten der Filistijnen, en al de Kanaänieten, en de Sidoniers, en de Hevieten, wonende in het gebergte van de Libanon, van de berg Baäl-hermon, tot daar men komt te Hamath. 

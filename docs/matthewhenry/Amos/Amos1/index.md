@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 1
+
 1. De woorden van Amos, die onder de veeherderen was van Thekoa, dewelk hij gezien heeft over Israël, in de dagen van Uzzia, koning van Juda, en in de dagen van Jerobeam, zoon van Joas, koning van Israël; twee jaren voor de aardbeving. 
 2. En hij zeide: De HEERE zal brullen uit Sion, en Zijn stem verheffen uit Jeruzalem; en de woningen der herderen zullen treuren, en de hoogte van Karmel zal verdorren. 
 3. Alzo zegt de HEERE: Om drie overtredingen van Damaskus, en om vier zal Ik dat niet afwenden; omdat zij Gilead met ijzeren dorswagens hebben gedorst. 

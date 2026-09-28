@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 15
+
 1. En David maakte zich huizen in zijn stad; en hij bereidde der ark Gods een plaats, en spande een tent voor haar. 
 2. Toen zeide David: Niemand mag de ark Gods dragen, dan de Levieten; want die heeft de HEERE verkoren, om de ark Gods te dragen, en om Hem te dienen tot in der eeuwigheid. 
 3. Ook vergaderde David gans Israël te Jeruzalem, om de ark des HEEREN op te halen aan haar plaats, die hij haar bereid had. 

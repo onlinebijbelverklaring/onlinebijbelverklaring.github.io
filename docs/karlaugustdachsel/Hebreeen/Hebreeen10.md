@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 10
+
 VOORTREFFELIJKHEID VAN HET ZOENOFFER VAN CHRISTUS
 
 ***1. Zo’n eenmalig offer als Christus, de Middelaar van het Nieuwe Testament gebracht heeft, kon er ook ten tijde van het Oude Testament nog niet zijn. Want daar de wet, die in het Oude Testament de godsdienst regelt, slecht een schaduw van de toekomende goederen heeft en niet het beeld, het wezen zelf van de zaken (hoofdstuk 8: 5 Kol. 2: 17), is zij daartoe ongeschikt. Zij kan toch met dezelfde offers (hoofdstuk 9: 25 b), die zij, de priesters, zoals de voorschriften luiden, elk jaar weer op de grote Verzoendag offeren, nooit degenen heiligen die daar toetreden. Zij, die door middel van het offer de genade en gemeenschap van God trachten te verkrijgen, kunnen nooit als vrucht van hun offer verkrijgen wat zij nodig hebben en wensen (hoofdstuk 7: 19; 9: 9).***

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 12
+
 1. EN omtrent denzelven tijd sloeg de koning Herodes de handen aan sommigen van de gemeente, om die kwalijk te behandelen.
 2. En hij doodde Jakobus, den broeder van Johannes, met het zwaard.
 3. En toen hij zag dat het den Joden behaaglijk was, voer hij voort om ook Petrus te vangen (en het waren de dagen der ongehevelde broden);

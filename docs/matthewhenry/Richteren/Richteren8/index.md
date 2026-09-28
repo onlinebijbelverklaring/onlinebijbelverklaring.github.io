@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 8
+
 1. Toen zeiden de mannen van Efraim tot hem: Wat stuk is dit, dat gij ons gedaan hebt, dat gij ons niet riept, toen gij heentoogt om te strijden tegen de Midianieten? En zij twistten sterk met hem. 
 2. Hij daarentegen zeide tot hen: Wat heb ik nu gedaan, gelijk gijlieden; zijn niet de nalezingen van Efraim beter dan de wijnoogst van Abi-ezer? 
 3. God heeft de vorsten der Midianieten, Oreb en Zeeb, in uw hand gegeven; wat heb ik dan kunnen doen, gelijk gijlieden? Toen liet hun toorn van hem af, als hij dit woord sprak. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 27
+
 1. En Mozes, te zamen met de oudsten van Israël, gebood het volk, zeggende: Behoudt al deze geboden, die ik ulieden heden gebiede. 
 2. Het zal dan geschieden, ten dage als gij over de Jordaan zult gegaan zijn in het land, dat u de HEERE, uw God, geven zal, zo zult gij u grote stenen oprichten, en bestrijken ze met kalk; 
 3. En gij zult daarop schrijven alle woorden dezer wet, als gij overgegaan zult zijn; opdat gij komt in het land, dat de HEERE, uw God, u geven zal, een land vloeiende van melk en honig, gelijk als de HEERE, uwer vaderen God, tot u gesproken heeft. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 1
+
 1. Het woord des HEEREN, dat geschied is tot Hoséa, de zoon van Beeri, in de dagen van Uzzia, Jotham, Achaz, Hizkia, koningen van Juda, en in de dagen van Jerobeam, zoon van Joas, koning van Israël. 
 2. Het begin van het woord des HEEREN door Hoséa. De HEERE dan zeide tot Hoséa: Ga heen, neem u een vrouw der hoererijen, en kinderen der hoererijen; want het land hoereert ganselijk van achter de HEERE. 
 3. Zo ging hij heen, en nam Gomer, een dochter van Diblaim; en zij ontving; en baarde hem een zoon. 

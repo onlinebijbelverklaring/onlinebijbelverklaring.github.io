@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 4
+
 1. Hij maakte ook een koperen altaar, van twintig ellen in zijn lengte, en twintig ellen in zijn breedte, en tien ellen in zijn hoogte. 
 2. Daartoe maakte hij de gegoten zee; van tien ellen was zij, van haar enen rand tot haar anderen rand, rondom rond, en van vijf ellen in haar hoogte, en een meetsnoer van dertig ellen omving ze rondom. 
 3. Onder dezelve nu was de gelijkenis van runderen, rondom henen, die omsingelende, tien in een el, omringende de zee rondom; twee rijen dezer runderen waren in haar gieting gegoten. 

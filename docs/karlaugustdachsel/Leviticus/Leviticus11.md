@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 11
+
 OVER HET ONDERSCHEID TUSSEN REINE EN ONREINE DIEREN.
 
 ## I. Vers 1-47

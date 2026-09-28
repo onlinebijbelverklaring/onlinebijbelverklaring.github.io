@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 52
+
 1. WAAK op, waak op, trek uw sterkte aan, o Sion, trek uw sierlijke klederen aan, o Jeruzalem, gij heilige stad, want in u zal voortaan geen onbesnedene noch onreine meer komen.
 2. Schud u uit het stof, maak u op, zit neder, o Jeruzalem; maak u los van de banden van uw hals, gij gevangen dochter Sions.
 3. Want zo zegt de HEERE: Gijlieden zijt om niet verkocht, gij zult ook zonder geld gelost worden.

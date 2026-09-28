@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 13
+
 AANMANING TOT BEKERING
 
 ***1. Wat nu het tweede punt aangaat, het, "dat ik door u gevonden zal worden, zoals u niet wilt" (Hoofdstuk 12: 20), zo verklaar ik daarover: Dit is de derde maal, dat ik tot u (1 Kor. 16: 5 v.) kom en daarom behoort een strenge uitoefening van de tucht voor de vergaderde gemeente plaats te hebben over degene, die in Hoofdstuk 12: 21 genoemd zijn en op een manier geheel overeenkomstig de wet van God (Deut. 19: 15) met hen te worden gehandeld (Joh. 8: 17), namelijk naar het woord: in de mond van twee of drie getuigen zal alle woord, elke rechtszaak bestaan (vgl. 1 Tim. 5: 19).***

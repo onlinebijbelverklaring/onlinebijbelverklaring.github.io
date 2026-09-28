@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 125
+
 1. EEN lied Hammaäloth. Die op den HEERE vertrouwen, zijn als de berg Sion, die niet wankelt, maar blijft in eeuwigheid.
 2. Rondom Jeruzalem zijn bergen; alzo is de HEERE rondom Zijn volk, van nu aan tot in der eeuwigheid.
 3. Want de scepter der goddeloosheid zal niet rusten op het lot der rechtvaardigen, opdat de rechtvaardigen hun handen niet uitstrekken tot onrecht.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Daniel 3
+
 1. DE koning Nebukadnézar maakte een beeld van goud, welks hoogte was zestig ellen, zijn breedte zes ellen; hij richtte het op in het dal Dura, in het landschap van Babel.
 2. En de koning Nebukadnézar zond heen om te verzamelen de stadhouders, de overheden en de landvoogden, de wethouders, de schatmeesters, de raadsheren, de ambtlieden en al de heerschappers der landschappen, dat zij komen zouden tot de inwijding van het beeld hetwelk de koning Nebukadnézar had opgericht.
 3. Toen verzamelden zich de stadhouders, de overheden, de landvoogden, de wethouders, de schatmeesters, de raadsheren, de ambtlieden en al de heerschappers der landschappen tot inwijding van het beeld hetwelk de koning Nebukadnézar had opgericht; en zij stonden voor het beeld dat Nebukadnézar opgericht had.

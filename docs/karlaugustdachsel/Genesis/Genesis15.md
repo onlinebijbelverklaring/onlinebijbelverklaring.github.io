@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 15
+
 ABRAM’S GELOOF EN GERECHTIGHEID WORDEN GEPREZEN.
 
 ## I. Vers 1-11

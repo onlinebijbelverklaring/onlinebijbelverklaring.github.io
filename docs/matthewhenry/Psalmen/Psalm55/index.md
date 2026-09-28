@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 55
+
 1. EEN onderwijzing van David, voor den opperzangmeester, op Neginôth.
 2. O God, neem mijn gebed ter ore, en verberg U niet voor mijn smeking.
 3. Merk op mij en verhoor mij; ik bedrijf misbaar in mijn klacht en maak getier;

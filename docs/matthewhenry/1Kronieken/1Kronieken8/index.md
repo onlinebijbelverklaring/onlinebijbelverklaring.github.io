@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 8
+
 1. Benjamin nu gewon Bela, zijn eerstgeborene, Asbel, de tweede, en Ahrah, de derde, 
 2. Naho, de vierde, en Rafa, de vijfde, 
 3. Bela nu had deze kinderen: Addar, en Gera, en Abihud, 

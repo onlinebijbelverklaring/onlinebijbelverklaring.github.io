@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 112
+
 1. HALLELUJAH. Aleph. Welgelukzalig is de man die den HEERE vreest; Beth. die groten lust heeft in Zijn geboden.
 2. Gimel. Zijn zaad zal geweldig zijn op aarde; Daleth. het geslacht der oprechten zal gezegend worden.
 3. He. In zijn huis zal have en rijkdom wezen; Vau. en zijn gerechtigheid bestaat in eeuwigheid.

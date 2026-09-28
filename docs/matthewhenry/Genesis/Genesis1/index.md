@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 1
+
 1. In de beginne schiep God de hemel en de aarde. 
 2. De aarde nu was woest en ledig, en duisternis was op de afgrond; en de Geest Gods zweefde op de wateren. 
 3. En God zeide: Daar zij licht! en daar werd licht. 

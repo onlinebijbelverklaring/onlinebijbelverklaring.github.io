@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 33
+
 1. GIJ rechtvaardigen, zingt vrolijk in den HEERE; lof betaamt den oprechten.
 2. Looft den HEERE met de harp; psalmzingt Hem met de luit en het tiensnarig instrument.
 3. Zingt Hem een nieuw lied; speelt wel met vrolijk geschal.

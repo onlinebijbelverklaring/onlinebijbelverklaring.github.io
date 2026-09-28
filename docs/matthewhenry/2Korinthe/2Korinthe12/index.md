@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 12
+
 1. TE roemen is mij waarlijk niet oorbaar; want ik zal komen tot gezichten en openbaringen des Heeren.
 2. Ik ken een mens in Christus, voor veertien jaren (of het geschied is in het lichaam, weet ik niet, of buiten het lichaam, weet ik niet, God weet het), dat de zodanige opgetrokken is geweest tot in den derden hemel.
 3. En ik ken een zodanig mens (of het in het lichaam of buiten het lichaam geschied is, weet ik niet, God weet het),

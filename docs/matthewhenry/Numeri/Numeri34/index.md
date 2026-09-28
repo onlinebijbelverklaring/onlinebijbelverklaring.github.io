@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 34
+
 1. Voorts sprak de HEERE tot Mozes, zeggende: 
 2. Gebied de kinderen Israëls, en zeg tot hen: Wanneer gij in het land Kanaan ingaat, zo zal dit land zijn, dat u ter erfenis vallen zal, het land Kanaan, naar zijn landpalen. 
 3. De zuiderhoek nu zal u zijn van de woestijn Zin, aan de zijden van Edom; en de zuider landpale zal u zijn van het einde der Zoutzee tegen het oosten; 

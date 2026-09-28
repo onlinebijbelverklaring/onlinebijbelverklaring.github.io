@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 2
+
 1. TOEN nu Jezus geboren was te Bethlehem, gelegen in Judéa, in de dagen van den koning Herodes, zie, enige wijzen van het oosten zijn te Jeruzalem aangekomen,
 2. Zeggende: Waar is de geboren Koning der Joden? Want wij hebben gezien Zijn ster in het oosten, en zijn gekomen om Hem te aanbidden.
 3. De koning Herodes nu, dit gehoord hebbende, werd ontroerd, en geheel Jeruzalem met hem;

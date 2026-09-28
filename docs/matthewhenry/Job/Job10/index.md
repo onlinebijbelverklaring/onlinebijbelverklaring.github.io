@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 10
+
 1. MIJN ziel is verdrietig over mijn leven; ik zal mijn klacht op mij laten, ik zal spreken in bitterheid mijner ziel.
 2. Ik zal tot God zeggen: Verdoem mij niet; doe mij weten waarover Gij met mij twist.
 3. Is het U goed, dat Gij verdrukt, dat Gij verwerpt den arbeid Uwer handen, en over den raad der goddelozen schijnsel geeft?

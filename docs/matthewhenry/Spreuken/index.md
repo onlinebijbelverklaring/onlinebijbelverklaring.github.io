@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Spreuken
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN DE SPREUKEN VAN SALOMO
 
 Wij hebben voor ons:  

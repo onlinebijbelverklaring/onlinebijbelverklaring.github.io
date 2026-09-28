@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 32
+
 1. Neig de oren, gij hemel, en ik zal spreken; en de aarde hore de redenen mijns monds. 
 2. Mijn leer druipe als een regen, mijn rede vloeie als een dauw; als een stofregen op de grasscheutjes, en als druppelen op het kruid. 
 3. Want ik zal de Naam des HEEREN uitroepen; geeft onzen God grootheid! 

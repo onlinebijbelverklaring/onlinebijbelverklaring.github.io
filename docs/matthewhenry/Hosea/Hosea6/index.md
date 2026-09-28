@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 6
+
 1. Komt en laat ons wederkeren tot de HEERE, want Hij heeft verscheurd, en Hij zal ons genezen; Hij heeft geslagen, en Hij zal ons verbinden. 
 2. Hij zal ons na twee dagen levend maken; op de derden dag zal Hij ons doen verrijzen, en wij zullen voor Zijn aangezicht leven. 
 3. Dan zullen wij kennen, wij zullen vervolgen, om de HEERE te kennen; Zijn uitgang is bereid als de dageraad; en Hij zal tot ons komen als een regen, als de spade regen en vroege regen des lands. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 3
+
 1. Daarna toonde Hij mij Josua, de hogepriester, staande voor het aangezicht van de Engel des HEEREN; en de satan stond aan zijn rechterhand, om hem te wederstaan. 
 2. Doch de HEERE zeide tot de satan: De HEERE schelde u, gij satan! ja, de HEERE schelde u, Die Jeruzalem verkiest; is deze niet een vuurbrand uit het vuur gerukt? 
 3. Josua nu was bekleed met vuile klederen, als hij voor het aangezicht des Engels stond. 

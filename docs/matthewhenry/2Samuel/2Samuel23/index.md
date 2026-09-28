@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 23
+
 1. Voorts zijn dit de laatste woorden van David. David, de zoon van Isaï zegt, en de man, die hoog is opgericht, de gezalfde van Jakobs God, en liefelijk in Psalmen van Israël, zegt: 
 2. De Geest des HEEREN heeft door mij gesproken, en Zijn rede is op mijn tong geweest. 
 3. De God Israëls heeft gezegd, de Rotssteen Israëls heeft tot mij gesproken: Er zal zijn een Heerser over de mensen, een Rechtvaardige, een Heerser in de vreze Gods. 

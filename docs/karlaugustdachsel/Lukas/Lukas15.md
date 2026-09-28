@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 15
+
 LOF VAN GODS BARMHARTIGHEID DOOR GELIJKENISSEN
 
 ### IV. Vers 1-32

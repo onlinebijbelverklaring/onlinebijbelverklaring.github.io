@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 3 Johannes 1
+
 1. De ouderling aan de geliefden Gajus, welken ik in waarheid liefheb. 
 2. Geliefde, voor alle dingen wens ik, dat gij welvaart en gezond zijt, gelijk uw ziel welvaart. 
 3. Want ik ben zeer verblijd geweest, als de broeders kwamen, en getuigden van uw waarheid, gelijk gij in de waarheid wandelt. 

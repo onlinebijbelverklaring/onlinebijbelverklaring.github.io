@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 13
+
 1. En het geschiedde daarna, alzo Absalom, Davids zoon, een schone zuster had, welker naam was Thamar, dat Amnon, Davids zoon, haar lief kreeg. 
 2. En Amnon was benauwd tot krank wordens toe, om zijner zuster Thamars wil; want zij was een maagd, zodat het in Amnons ogen zwaar was, haar iets te doen. 
 3. Doch Amnon had een vriend, wiens naam was Jonadab, een zoon van Simea, Davids broeder; en Jonadab was een zeer wijs man. 

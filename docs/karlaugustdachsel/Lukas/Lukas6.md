@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 6
+
 DE UITGEWREVEN AREN, DE VERDORDE HAND, DE ROEPING VAN DE APOSTELEN EN CHRISTUS’ VELDPREDIKING
 
 ## I. Vers 1-11

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Prediker
+
 ## HET BOEK DE PREDIKER.
 
 Het Boek der H. Schrift, in het Hebreeuws genaamd, Kohèleth, in de Septuaginta, Ekklesiastes en insgelijks aldus in de Vulgata geheten, is wat zijn inhoud aangaat van Salomo, den zoon van David, gedreven door den H. Geest, vervaardigd hoogstwaarschijnlijk in zijn ouderdom, en wat zijn tegenwoordigen vorm betreft, ons door de bijzondere Voorzienigheid Gods overgeleverd door een der Godsmannen uit de dagen van Ezra of Nehemia, in de tijden na de Ballingschap uit Babel.

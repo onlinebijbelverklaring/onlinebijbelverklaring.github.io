@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jona
+
 ## DE PROFEET JONA.
 
 Het Boek der Profetieën van Jona, den zoon van Amitthaï, bevat de voorspelling van den Profeet omtrent Ninevé, tegelijk met wat die voorspelling voorafging en wat daarop volgde.

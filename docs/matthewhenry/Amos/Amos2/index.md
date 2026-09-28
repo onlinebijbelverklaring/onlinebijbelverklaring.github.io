@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 2
+
 1. Alzo zegt de HEERE: Om drie overtredingen van Moab, en om vier zal Ik dat niet afwenden; omdat hij de beenderen des konings van Edom tot kalk verbrand heeft. 
 2. Daarom zal Ik een vuur in Moab zenden, dat zal de paleizen van Kerioth verteren; en Moab zal sterven met groot gedruis, met gejuich, met geluid der bazuin. 
 3. En Ik zal de rechter uit het midden van haar uitroeien; en al haar vorsten zal Ik met hem doden, zegt de HEERE. 

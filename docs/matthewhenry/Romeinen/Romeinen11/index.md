@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 11
+
 1. IK zeg dan: Heeft God Zijn volk verstoten? Dat zij verre; want ik ben ook een Israëliet, uit het zaad Abrahams, van den stam van Benjamin.
 2. God heeft Zijn volk niet verstoten, hetwelk Hij tevoren gekend heeft. Of weet gij niet wat de Schrift zegt van Elía? Hoe hij God aanspreekt tegen Israël, zeggende:
 3. Heere, zij hebben Uw profeten gedood en Uw altaren omgeworpen, en ik ben alleen overgebleven, en zij zoeken mijn ziel.

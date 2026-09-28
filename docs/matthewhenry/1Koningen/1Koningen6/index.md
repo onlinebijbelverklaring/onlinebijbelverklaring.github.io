@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 6
+
 1. Het geschiedde nu in het vierhonderd en tachtigste jaar, na de uitgang der kinderen Israëls uit Egypte, in het vierde jaar van het koninkrijk van Salomo over Israël, in de maand Ziv (deze is de tweede maand), dat hij het huis des HEEREN bouwde. 
 2. En dat huis, hetwelk de koning Salomo de HEERE bouwde, was van zestig ellen in zijn lengte, en van twintig in zijn breedte, en van dertig ellen in zijn hoogte. 
 3. En het voorhuis, vooraan de tempel van dat huis, was in zijn lengte van twintig ellen, naar de breedte van het huis, tien ellen in zijn breedte, vooraan het huis. 

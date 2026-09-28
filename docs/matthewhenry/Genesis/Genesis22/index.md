@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 22
+
 1. En het geschiedde na deze dingen, dat God Abraham verzocht; en Hij zeide tot hem: Abraham! En hij zeide: Zie, hier ben ik! 
 2. En Hij zeide: Neem nu uw zoon, uw enige, dien gij liefhebt, Izak, en ga heen naar het land Moria, en offer hem aldaar tot een brandoffer, op een van de bergen, dien Ik u zeggen zal. 
 3. Toen stond Abraham des morgens vroeg op, en zadelde zijn ezel, en nam twee van zijn jongeren met zich, en Izak zijn zoon; en hij kloofde hout tot het brandoffer, en maakte zich op, en ging naar de plaats, die God hem gezegd had. 

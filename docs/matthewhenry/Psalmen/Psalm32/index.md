@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 32
+
 1. EEN onderwijzing van David. Welgelukzalig is hij wiens overtreding vergeven, wiens zonde bedekt is.
 2. Welgelukzalig is de mens dien de HEERE de ongerechtigheid niet toerekent, en in wiens geest geen bedrog is.
 3. Toen ik zweeg, werden mijn beenderen verouderd, in mijn brullen den gansen dag.

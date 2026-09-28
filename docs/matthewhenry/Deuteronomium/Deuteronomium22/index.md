@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 22
+
 1. Gij zult uws broeders os of klein vee niet zien afgedreven, en u van die verbergen; gij zult ze uw broeder ganselijk weder toesturen. 
 2. En indien uw broeder niet nabij u is, of gij hem niet kent, zo zult gij ze binnen in uw huis vergaderen, dat zij bij u zijn, totdat uw broeder die zoeke, en gij ze hem wedergeeft. 
 3. Alzo zult gij ook doen aan zijn ezel, en alzo zult gij doen aan zijn kleding, ja, alzo zult gij doen aan al het verlorene uws broeders, dat van hem verloren zal zijn, en dat gij zult hebben gevonden; gij zult u niet mogen verbergen. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 6
+
 1. EN in dezelve dagen, als de discipelen vermenigvuldigden, ontstond een murmurering der Grieksen tegen de Hebreeën, omdat hun weduwen in de dagelijkse bediening verzuimd werden.
 2. En de twaalve riepen de menigte der discipelen tot zich, en zeiden: Het is niet behoorlijk dat wij het Woord Gods nalaten en de tafelen dienen.
 3. Ziet dan om, broeders, naar zeven mannen uit u, die goede getuigenis hebben, vol des Heiligen Geestes en der wijsheid, welke wij mogen stellen over deze nodige zaak.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zefanja 3
+
 1. Wee der ijselijke, en der bevlekte, der verdrukkende stad! 
 2. Zij hoort naar de stem niet; zij neemt de tucht niet aan; zij vertrouwt niet op de HEERE; tot haar God nadert zij niet. 
 3. Haar vorsten zijn brullende leeuwen in het midden van haar; haar rechters zijn avondwolven, die de beenderen niet breken tot aan de morgen. 

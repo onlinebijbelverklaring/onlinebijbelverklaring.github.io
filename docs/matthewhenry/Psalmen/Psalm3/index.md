@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 3
+
 1. EEN psalm van David, als hij vlood voor het aangezicht van zijn zoon Absalom.
 2. O HEERE, hoe zijn mijn tegenpartijders vermenigvuldigd! Velen staan tegen mij op.
 3. Velen zeggen van mijn ziel: Hij heeft geen heil bij God. Sela.

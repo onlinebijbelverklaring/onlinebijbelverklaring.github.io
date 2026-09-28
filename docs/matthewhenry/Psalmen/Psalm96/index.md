@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 96
+
 1. ZINGT den HEERE een nieuw lied, zingt den HEERE, gij ganse aarde.
 2. Zingt den HEERE, looft Zijn Naam; boodschapt Zijn heil van dag tot dag.
 3. Vertelt onder de heidenen Zijn eer, onder alle volken Zijn wonderen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 15
+
 1. Ten einde van zeven jaren zult gij een vrijlating maken. 
 2. Dit nu is de zaak der vrijlating, dat ieder schuldheer, die zijn naaste zal geleend hebben, vrijlate; hij zal zijn naaste of zijn broeder niet manen, dewijl men de HEERE een vrijlating heeft uitgeroepen. 
 3. de vreemde zult gij manen; maar wat gij bij uw broeder hebt, zal uw hand vrijlaten; 

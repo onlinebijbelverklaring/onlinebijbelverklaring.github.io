@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 24
+
 1. Daarna verzamelde Jozua al de stammen van Israël te Sichem, en hij riep de oudsten van Israël, en deszelfs hoofden, en deszelfs richters, en deszelfs ambtlieden; en zij stelden zich voor het aangezicht van God. 
 2. Toen zeide Jozua tot het ganse volk: Alzo zegt de HEERE, de God Israëls: Over gene zijde der rivier hebben uw vaders van ouds gewoond, namelijk Terah, de vader van Abraham, en de vader van Nahor; en zij hebben andere goden gediend. 
 3. Toen nam Ik uw vader Abraham van gene zijde der rivier, en deed hem wandelen door het ganse land Kanaän; Ik vermeerderde ook zijn zaad en gaf hem Izak. 

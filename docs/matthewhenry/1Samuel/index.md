@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Samuel
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EERSTE BOEK VAN SAMUËL
 
 Dit boek en het boek, dat er op volgt, dragen de naam van Samuël in het opschrift, niet omdat hij er de schrijver van was (behalve van hetgeen er voorviel in zijn eigen tijd, tot aan het vijf en twintigste hoofdstuk van het eerste boek, waarin wij een bericht hebben van zijn dood) maar omdat het eerste boek begint met een uitvoerig bericht nopens hem, zijne geboorte en kindsheid, zijn leven en zijne regering; en het overige van de twee boeken, die naar hem genoemd zijn, de geschiedenis bevat van de regeringen van Saul en David, die beiden door hem gezalfd zijn geworden. En omdat de geschiedenis van deze twee koningen het grootste gedeelte van deze boeken in beslag neemt, noemt de Vulgata ze het eerste en tweede Boek der Koningen, en de twee, die er op volgen, het derde en vierde. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 1 Kronieken
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EERSTE BOEK DER KRONIEKEN
 
 Herhalingen worden in gewone zaken onnodig en vervelend gevonden, maar in heilige zaken moet gebod op gebod, regel op regel zijn. Dezelfde dingen aan u te schrijven, is mij niet verdrietig, zegt de apostel, en het is u zeker, Filippenzen 3:1. Deze Boeken der Kronieken zijn in een grote mate herhaling, veel van het tweede en derde der vier Evangeliën is dit ook, en toch zijn zij geen tautologieën, noch hier, noch daar; geen ijdele herhalingen. Wij zouden geneigd zijn te denken dat wij van al de boeken der Heilige Schrift deze twee Boeken der Kronieken het best zouden kunnen missen. Het kan zijn, maar toch zouden wij ze zeer slecht kunnen missen, want er zijn vele zeer voortreffelijke en nuttige dingen in, die wij elders niet vinden. En wat nu betreft hetgeen wij hier vinden en elders reeds ontmoet hebben: 

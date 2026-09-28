@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Jakobus
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN, VAN DE ALGEMENE BRIEF VAN DE APOSTEL JAKOBUS
 
 De schrijver van dezen brief was niet Jakobus, de zoon van Zebedeüs; want die was door Herodes ter dood gebracht, Handelingen 12; nog voordat het Christendom zoveel voet gewonnen had onder de Joden in de verstrooiing, als hier wordt ondersteld. Maar het was de andere Jakobus, de zoon van Alpheus; die van moederszijde de neef van de Heere Jezus, en een van de twaalf apostelen was, Mattheus 10:3. Hij wordt een pilaar genoemd, Galaten 2:9, en wie dezen brief van hem tegenspreekt, verliest of mist waarlijk een grondsteen. 

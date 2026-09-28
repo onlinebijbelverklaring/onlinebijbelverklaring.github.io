@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 18
+
 AMBT EN ONDERHOUD VAN DE PRIESTERS EN LEVIETEN.
 
 ## I. Vers 1-32

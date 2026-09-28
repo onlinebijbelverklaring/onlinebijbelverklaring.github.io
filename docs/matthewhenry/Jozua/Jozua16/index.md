@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 16
+
 1. Daarna kwam het lot der kinderen van Jozef uit: van de Jordaan bij Jericho, aan het water van Jericho, oostwaarts, de woestijn opgaande van Jericho, door het gebergte Beth-el; 
 2. En het komt van Beth-el uit naar Luz; en het gaat door tot de landpaal des Archiets, tot Ataroth toe; 
 3. En het gaat af tegen het westen naar de landpaal Jafleti, tot aan de landpaal van het benedenste Beth-horon, en tot Gezer; en haar uitgangen zijn aan de zee. 

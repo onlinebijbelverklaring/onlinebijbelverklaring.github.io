@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Genesis
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET EERSTE BOEK VAN MOZES, GENAAMD GENESIS
  
 I. Wij hebben vóór ons de Bijbel, of het Boek, want dat is de betekenis van het woord Bijbel. Wij noemen hem het Boek bij uitnemendheid, want hij is onvergelijkbaar het beste boek dat ooit geschreven werd, het Boek der boeken, schitterende als de zon aan de hemel der wetenschap; andere kostelijke en nuttige boeken zijn als de maan en de sterren, die er hun licht aan ontlenen. Wij noemen hem het Heilige Boek, omdat het door heilige mannen werd geschreven, en ingegeven is door de Heiligen Geest. Hij is volkomen rein van alle leugen, en verdorvene bedoelingen, en de blijkbare strekking er van is heiligheid te bevorderen onder de mensen. De grote dingen van Gods Wet en Evangelie zijn hier voor ons geschreven, ten einde tot grotere zekerheid te worden gebracht, verder verspreid te zullen worden, van langere duur te zijn en naar ver verwijderde plaatsen en tijden zuiverder en vollediger overgebracht te worden, dan dit bij mogelijkheid door gerucht of overlevering had kunnen geschieden. En wij zullen zeer veel te verantwoorden hebben, indien deze dingen, die tot onzen vrede dienen, ons in zwart en wit overgegeven zijnde, door ons veronachtzaamd worden als wat vreemds, Hoséa 8:12. De geschriften der onderscheidene door Gods Geest gedrevene schrijvers, van Mozes tot op Johannes, waarin het Goddelijk licht, zoals dat van de morgen, trapsgewijze geschenen heeft (de heilige canon nu voltooid zijnde) zijn allen in die gezegende Bijbel bij elkaar gevoegd, en Gode zij dank, in onze handen, en zij doen een zo vollen, helderen dag voor ons opgaan, als wij aan deze zijde des hemels kunnen verwachten. Elk deel is goed, maar het alles tezamen is zeer goed. Dat is licht, schijnende in een duistere plaats, 2 Petrus 1:19; en een duistere plaats, voorwaar! zou zonder de Bijbel, de wereld zijn.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 5
+
 BESTRAFFING VAN ONTUCHT. WEGDOEN VAN HET ZUURDEEG. HOE EN WAAROM DE ZONDEN TE MIJDEN
 
 ## II. Hoofdstuk 5 en 6 

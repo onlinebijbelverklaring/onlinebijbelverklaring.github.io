@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 5
+
 1. GAAT om door de wijken van Jeruzalem, en ziet nu toe en verneemt en zoekt op haar straten, of gij iemand vindt, of er één is die recht doet, die waarheid zoekt; zo zal Ik haar genadig zijn.
 2. En of zij al zeggen: Zo waarachtig als de HEERE leeft; zo zweren zij toch valselijk.
 3. O HEERE, zien Uw ogen niet naar waarheid? Gij hebt hen geslagen, maar zij hebben geen pijn gevoeld; Gij hebt hen verteerd, maar zij hebben geweigerd de tucht aan te nemen; zij hebben hun aangezichten harder gemaakt dan een steenrots, zij hebben geweigerd zich te bekeren.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 9
+
 HOE DE APOSTEL BIJ HET UITOEFENEN VAN ZIJN AMBT VAN DE CHRISTELIJKE VRIJHEID GEBRUIK MAAKT
 
 ### b. Vers 1-23

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 23
+
 1. TOEN sprak Jezus tot de scharen en tot Zijn discipelen,
 2. Zeggende: De schriftgeleerden en de farizeeën zijn gezeten op den stoel van Mozes;
 3. Daarom, al wat zij u zeggen dat gij houden zult, houdt dat en doet het; maar doet niet naar hun werken; want zij zeggen het, en doen het niet.

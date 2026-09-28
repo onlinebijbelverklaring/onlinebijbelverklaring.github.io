@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 28
+
 PAULUS WONDERDAAD OP HET EILAND MELITE. AANKOMST TE ROME.
 
 ***1. En toen zij in veiligheid waren, het leven hadden behouden en aan land gekomen waren, toen begrepen zij op de vraag aan de bewoners die zij ontmoetten, dat het eiland Melite heette. Thans wordt het Malta genoemd, het is 8 vierkante mijlen groot en 15 mijlen van Sicilie, 50 van Tunis in Afrika verwijderd.***

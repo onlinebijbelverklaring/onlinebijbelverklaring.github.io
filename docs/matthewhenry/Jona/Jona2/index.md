@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 2
+
 1. En Jona bad tot de HEERE, zijn God, uit het ingewand van de vis. 
 2. En hij zeide: Ik riep uit mijn benauwdheid tot de HEERE, en Hij antwoordde mij; uit de buik des grafs schreide ik, en Gij hoordet mijn stem. 
 3. Want Gij hadt mij geworpen in de diepte, in het hart der zeeen, en de stroom omving mij; al Uw baren en Uw golven gingen over mij heen. 

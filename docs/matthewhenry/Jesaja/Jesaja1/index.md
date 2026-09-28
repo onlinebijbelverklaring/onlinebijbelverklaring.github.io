@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 1
+
 1. HET gezicht van Jesaja, den zoon van Amoz, hetwelk hij zag over Juda en Jeruzalem, in de dagen van Uzzia, Jotham, Achaz en Hizkía, de koningen van Juda.
 2. Hoort, gij hemelen, en neem ter ore, gij aarde, want de HEERE spreekt: Ik heb kinderen groot gemaakt en verhoogd, maar zij hebben tegen Mij overtreden.
 3. Een os kent zijn bezitter en een ezel de kribbe zijns heren; maar Israël heeft geen kennis, Mijn volk verstaat niet.

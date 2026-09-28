@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 13
+
 PAULUS’ EERSTE REIS TOT DE HEIDENEN EN ZIJN ARBEID ONDER HEN
 
 C. Tweede hoofddeel (hoofdst. 13-28): groei van de kerk onder de heidenen van het begin van de apostolische werkzaamheid van Paulus tot aan zijn aankomst te Rome als een gevangene van Jezus Christus (van 46-61 n. Chr.). De eerste afdeling, die van hoofdst. 13: 1-18: 23 loopt, omvat de eerste en tweede zendingsreis van de apostel met het daartussen vallende concilie te Jeruzalem. Antiochië is het punt van uitgang en de plaats waarheen men wederkeert. Korinthe is het hoofdpunt waar de groei van de kerk het meest gezien wordt en waar Paulus anderhalf jaar verblijft.

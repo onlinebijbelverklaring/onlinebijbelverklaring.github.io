@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 48
+
 1. EEN lied, een psalm, voor de kinderen van Korach.
 2. De HEERE is groot en zeer te prijzen, in de stad onzes Gods, op den berg Zijner heiligheid.
 3. Schoon van gelegenheid, een vreugde der ganse aarde is de berg Sion, aan de zijden van het noorden; de stad des groten Konings.

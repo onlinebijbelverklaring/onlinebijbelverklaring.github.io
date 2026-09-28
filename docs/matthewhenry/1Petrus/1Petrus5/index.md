@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 5
+
 1. DE ouderlingen die onder u zijn, vermaan ik, die een medeouderling en getuige van het lijden van Christus ben, en deelachtig der heerlijkheid die geopenbaard zal worden:
 2. Weidt de kudde Gods die onder u is, hebbende opzicht daarover, niet uit bedwang, maar gewilliglijk, noch om vuil gewin, maar met een volvaardig gemoed;
 3. Noch als heerschappij voerende over het erfdeel des Heeren, maar als voorbeelden der kudde geworden zijnde.

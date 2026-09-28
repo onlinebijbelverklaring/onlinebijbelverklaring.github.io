@@ -1,8 +1,10 @@
 ---
+title: Matthew Henry
+
 hide:
   - toc
 
-icon: material/bookshelf
+icon: lucide/library
 ---
 
 # Bijbelverklaring van Matthew Henry

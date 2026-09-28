@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 10
+
 1. EN ik zag een anderen sterken Engel afkomende van den hemel, Die bekleed was met een wolk; en een regenboog was boven Zijn hoofd, en Zijn aangezicht was als de zon, en Zijn voeten waren als pilaren van vuur.
 2. En Hij had in Zijn hand een boeksken dat geopend was; en Hij zette Zijn rechtervoet op de zee, en den linker op de aarde.
 3. En Hij riep met een grote stem, gelijkerwijs een leeuw brult; en als Hij geroepen had, spraken de zeven donderslagen hun stemmen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 21
+
 HOE EEN PRIESTER ZICH GEDRAGEN MOET.
 
 ## I. Vers 1-24

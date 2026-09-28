@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jona 2
+
 JONA’S GEBED OM VERLOSSING.
 
 ***1. En Jona, als hij gevoelde, dat hij door Gods wonderdaad in het leven bewaard was, zag daarin een onderpand van zijne gehele redding, enbad tot den HEERE, zijnen God, dien hij verlaten had, maar nu in zijnen doodsnood ook weer had gezocht en gevonden uit het ingewand van den vis.***

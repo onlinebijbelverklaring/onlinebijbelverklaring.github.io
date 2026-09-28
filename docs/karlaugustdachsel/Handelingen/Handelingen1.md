@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 1
+
 CHRISTUS’ HEMELVAART. MATTHIAS WORDT TOT APOSTEL GEKOZEN.
 
 A. Het voorwoord en de voorbereiding. De kerk van Christus in haar stichting, leiding en uitbreiding in Israël en onder de heidenen, van Jeruzalem tot Rome is het onderwerp dat de "Handelingen van de apostelen" behandelt. Voorwaarde voor het bestaan van de kerk nu is de verhoging van haar Hoofd, de hemelvaart van Jezus Christus. Terwijl zo Lukas zo dit feit, waarvan hij reeds aan het einde van zijn evangelie een kort bericht heeft gegeven, hier nog eens op uitvoerige wijze herhaalt, krijgt hij gelegenheid de geschiedenis van de apostelen als een tweede deel van zijn gehele werk aan het evangelie, het eerste deel, vast te knopen. Omdat nu de dag van Pinksteren als de dag van de stichting van de kerk niet onmiddellijk volgt op de dag van de hemelvaart, maar pas na verscheidene dagen wachten voor de discipelen volgt, deelt hij tevens mee, op welke wijze de discipelen deze tijd hebben doorgebracht en wat zij gedurende die tijd hebben ondernomen, om het twaalftal weer vol te maken, nadat sinds de verwijdering van de verrader uit hun kring de elven konden worden genoemd.

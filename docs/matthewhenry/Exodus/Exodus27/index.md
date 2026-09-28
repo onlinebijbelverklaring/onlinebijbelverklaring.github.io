@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 27
+
 1. Gij zult ook een altaar maken van sittimhout; vijf ellen zal de lengte zijn, en vijf ellen de breedte (vierkant zal dit altaar zijn), en drie ellen zijn hoogte. 
 2. En gij zult zijn hoornen maken op zijn vier hoeken; uit hetzelve zullen zijn hoornen zijn, en gij zult het met koper overtrekken. 
 3. Gij zult het ook potten maken, om zijn as te ontvangen, ook zijn schoffelen, en zijn besprengbekkens, en zijn krauwelen, en zijn koolpannen; al zijn gereedschap zult gij van koper maken. 

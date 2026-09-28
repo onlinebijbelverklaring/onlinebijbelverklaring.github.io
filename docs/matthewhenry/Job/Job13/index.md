@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 13
+
 1. ZIE, dat alles heeft mijn oog gezien, mijn oor gehoord en verstaan.
 2. Gelijk gijlieden het weet, weet ik het ook; ik zwicht niet voor u.
 3. Maar ik zal tot den Almachtige spreken, en ben belust mij te verdedigen voor God.

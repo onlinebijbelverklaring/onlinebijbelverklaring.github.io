@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 12
+
 1. De HEERE nu had tot Mozes en tot Aaron in Egypteland gesproken, zeggende: 
 2. Deze zelfde maand zal ulieden het hoofd der maanden zijn; zij zal u de eerste van de maanden des jaars zijn. 
 3. Spreekt tot de ganse vergadering van Israël, zeggende: Aan de tienden dezer maand neme een iegelijk een lam, naar de huizen der vaderen, een lam voor een huis. 

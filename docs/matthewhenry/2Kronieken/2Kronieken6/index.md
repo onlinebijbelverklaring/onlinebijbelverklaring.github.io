@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 6
+
 1. Toen zeide Salomo: De HEERE heeft gezegd, dat Hij in de donkerheid zou wonen. 
 2. En ik heb U een huis ter woonstede gebouwd, en een vaste plaats tot Uw eeuwige woning. 
 3. Daarna wendde de koning zijn aangezicht om, en zegende de ganse gemeente van Israël; en de ganse gemeente van Israël stond. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 109
+
 1. EEN psalm van David, voor den opperzangmeester. O God mijns lofs, zwijg niet.
 2. Want de mond des goddelozen en de mond des bedrogs zijn tegen mij opengedaan, zij hebben met mij gesproken met een valse tong.
 3. En met hatelijke woorden hebben zij mij omsingeld, ja, zij hebben mij bestreden zonder oorzaak.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 18
+
 1. TOEN antwoordde Bildad, de Suhiet, en zeide:
 2. Hoelang is het dat gijlieden een einde van woorden zult maken? Merkt op, en daarna zullen wij spreken.
 3. Waarom worden wij geacht als beesten, en zijn onrein in ulieder ogen?

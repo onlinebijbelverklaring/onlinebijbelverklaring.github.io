@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 21
+
 1. MAAR Job antwoordde en zeide:
 2. Hoort aandachtiglijk mijn rede, en laat dit zijn uw vertroostingen.
 3. Verdraagt mij en ik zal spreken; en nadat ik gesproken zal hebben, spot dan.

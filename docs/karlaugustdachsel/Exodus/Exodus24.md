@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 24
+
 MOZES STIJGT, NA BEVESTIGING VAN HET VERBOND, WEER OP DE BERG SINAI.
 
 ## I. Vers 1-11

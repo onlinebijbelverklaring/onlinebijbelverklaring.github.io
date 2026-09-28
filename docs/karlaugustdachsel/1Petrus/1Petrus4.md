@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 4
+
 OVER HET NUT VAN HET KRUIS, HET GEDULD DAARIN, ALSMEDE OVER ANDERE DEUGDEN
 
 ***1. Omdat dan, zoals in Hoofdstuk 3: 18 gezegd is, Christus voor ons in het vlees, aan of naar het vlees geleden heeft a), zo wapent u zich ook tegenover de verzoekingen van de Christus vijandige wereld met die gedachte, terwijl u er uw gedachte op stelt en gewillig bent om eveneens in het vlees te lijden, waarvan u dan grote winst zult hebben ten opzichte van uw heiligmaking, b) namelijk met de gedachte dat wie in het vlees geleden heeft, die heeft opgehouden van de zonde.***

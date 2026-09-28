@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 8
+
 1. EN Saulus had mede een welbehagen aan zijn dood. En er werd te dien dage een grote vervolging tegen de gemeente die te Jeruzalem was; en zij werden allen verstrooid door de landen van Judéa en Samaría, behalve de apostelen.
 2. En enige godvruchtige mannen droegen Stéfanus tezamen ten grave, en maakten groten rouw over hem.
 3. En Saulus verwoestte de gemeente, gaande in de huizen; en trekkende mannen en vrouwen, leverde hen over in de gevangenis.

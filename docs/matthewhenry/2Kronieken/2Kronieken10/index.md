@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 10
+
 1. En Rehabeam toog naar Sichem; want het ganse Israël was te Sichem gekomen, om hem koning te maken. 
 2. Het geschiedde nu, als Jerobeam, de zoon van Nebath, dat hoorde (dezelve nu was in Egypte, alwaar hij van het aangezicht van de koning Salomo gevloden was), dat Jerobeam uit Egypte wederkeerde; 
 3. Want zij zonden henen, en lieten hem roepen; zo kwam Jerobeam met het ganse Israël, en zij spraken tot Rehabeam, zeggende: 

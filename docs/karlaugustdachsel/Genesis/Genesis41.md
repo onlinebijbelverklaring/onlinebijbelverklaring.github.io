@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 41
+
 JOZEF WORDT, NA HET UITLEGGEN VAN FARAO’S DROMEN, VERHEVEN.
 
 ## I. Vers 1-36

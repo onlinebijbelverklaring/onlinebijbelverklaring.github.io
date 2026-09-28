@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 25
+
 1. TOEN antwoordde Bildad, de Suhiet, en zeide:
 2. Heerschappij en vreze zijn bij Hem; Hij maakt vrede in Zijn hoogten.
 3. Is er een getal Zijner benden? En over wien staat Zijn licht niet op?

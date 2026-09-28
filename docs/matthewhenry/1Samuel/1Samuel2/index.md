@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 2
+
 1. Toen bad Hanna en zeide: Mijn hart springt van vreugde op in de HEERE; mijn hoorn is verhoogd in de HEERE; mijn mond is wijd opengedaan over mijn vijanden; want ik verheug mij in Uw heil. 
 2. Er is niemand heilig, gelijk de HEERE; want er is niemand dan Gij, en er is geen rotssteen, gelijk onze God! 
 3. Maakt het niet te veel, dat gij hoog, hoog zoudt spreken, dat iets hards uit uw mond zou gaan; want de HEERE is een God der wetenschappen, en Zijn daden zijn recht gedaan. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 14
+
 1. Dit is nu hetgeen de kinderen Israëls geerfd hebben in het land Kanaän; hetwelk de priester Eleazar, en Jozua, de zoon van Nun, en de hoofden der vaderen van de stammen der kinderen Israëls, hun hebben doen erven; 
 2. Door het lot hunner erfenis, gelijk als de HEERE door de dienst van Mozes geboden had, aangaande de negen stammen en de halven stam. 
 3. Want aan de twee stammen en de halve stam had Mozes een erfdeel gegeven op gene zijde van de Jordaan; maar aan de Levieten had hij geen erfdeel onder hen gegeven. 

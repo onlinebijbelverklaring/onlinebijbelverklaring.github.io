@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 3
+
 1. En Eljasib, de hogepriester, maakte zich op met zijn broederen, de priesteren, en zij bouwden de Schaapspoort; zij heiligden ze, en richtten haar deuren op; ja, zij heiligden ze tot aan de toren Mea, tot aan de toren Hananeel. 
 2. En aan zijn hand bouwden de mannen van Jericho; ook bouwde aan zijn hand Zacchur, de zoon van Imri. 
 3. De Vispoort nu bouwden de kinderen van Senaa; zij zolderden die, en richtten haar deuren op, met haar sloten en haar grendelen. 

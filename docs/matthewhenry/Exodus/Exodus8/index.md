@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 8
+
 1. Daarna zeide de HEERE tot Mozes: Ga in tot Farao, en zeg tot hem: Zo zegt de HEERE: Laat Mijn volk trekken, dat zij Mij dienen. 
 2. En indien gij het weigert te laten trekken, zie, zo zal ik uw ganse landpaal met vorsen slaan; 
 3. Dat de rivier van vorsen zal krielen, die zullen opkomen, en in uw huis komen, en in uw slaapkamer, ja, op uw bed; ook in de huizen uwer knechten, en op uw volk, en in uw bakovens, en in uw baktroggen. 

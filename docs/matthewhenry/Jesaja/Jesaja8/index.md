@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 8
+
 1. VERDER zeide de HEERE tot mij: Neem u een grote rol; en schrijf daarop met eens mensen griffie: Haastende tot den roof, is hij spoedig tot den buit.
 2. Toen nam ik mij getrouwe getuigen, Uría, den priester, en Zacharía, den zoon van Jeberechja.
 3. En ik was tot de profetes genaderd; die werd zwanger en baarde een zoon; en de HEERE zeide tot mij: Noem zijn naam MAHER SCHALAL CHAS BAZ.

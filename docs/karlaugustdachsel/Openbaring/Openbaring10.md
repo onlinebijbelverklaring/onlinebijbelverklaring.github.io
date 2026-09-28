@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 10
+
 JOHANNES VERSLINDT EEN BOEK
 
 C. Wij komen nu aan het derde deel van de Openbaring, het tweede van de gezichten, dat over de Kerk van het Westen handelt en over de geschiedenis van de ontwikkeling van deze Kerk, zoals die boven in Hoofdstuk 12: 18; 3: 22 de vier gemeenten te Thyatire, Sardus, Filadelfia en Laodicea symbolische voorstelling heeft gekregen, en tot aan het einde van de tijden van de kerkgeschiedenis leidt. Deze zullen dan door het duizendjarig rijk worden afgelost en lopen met het laatste in de eeuwigheid uit. Het is dus een zeer belangrijke afdeling, waarin wij staan. Ja, de nieuwe ontwikkeling, die onaangeroerd door het Mohammedanisme op de bodem, door de volksverhuizing toebereid, in Europa wordt volbracht, is van beslissende invloed voor het einde van het rijk van God. De afdeling heeft daarom rechtmatige aanspraak op een bijzondere inleiding, zoals die dan ook in het eerstvolgende 10e hoofdstuk wordt gegeven.

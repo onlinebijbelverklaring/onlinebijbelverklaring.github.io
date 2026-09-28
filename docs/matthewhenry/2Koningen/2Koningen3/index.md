@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 3
+
 1. Joram nu, de zoon van Achab, werd koning over Israël te Samaria, in het achttiende jaar van Jósafath, de koning van Juda, en hij regeerde twaalf jaren. 
 2. En hij deed dat kwaad was in de ogen des HEEREN, doch niet gelijk zijn vader en gelijk zijn moeder; want hij deed dat opgerichte beeld van Baal weg, hetwelk zijn vader gemaakt had. 
 3. Evenwel hing hij de zonden van Jerobeam, de zoon van Nebat, aan, die Israël deed zondigen; hij week daarvan niet af. 

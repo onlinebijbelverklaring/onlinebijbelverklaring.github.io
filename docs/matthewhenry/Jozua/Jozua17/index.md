@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 17
+
 1. De stam van Manasse had ook een lot, omdat hij de eerstgeborene van Jozef was: te weten Machir, de eerstgeborene van Manasse, de vader van Gilead; omdat hij een krijgsman was, zo had hij Gilead en Bazan. 
 2. Ook hadden de overgebleven kinderen van Manasse een lot, naar hun huisgezinnen; te weten de kinderen van Abiezer, en de kinderen van Helek, en de kinderen van Asriel, en de kinderen van Sechem, en de kinderen van Hefer, en de kinderen van Semida. Dit zijn de mannelijke kinderen van Manasse, de zoon van Jozef, naar hun huisgezinnen. 
 3. Zelafead nu, de zoon van Hefer, de zoon van Gilead, de zoon van Machir, de zoon van Manasse, had geen zonen, maar dochters; en dit zijn de namen zijner dochteren: Machla en Noa, Hogla, Milka en Tirza. 

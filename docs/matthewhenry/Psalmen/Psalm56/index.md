@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 56
+
 1. EEN gouden kleinood van David, voor den opperzangmeester, op Jonath Elem Rechokim; als de Filistijnen hem gegrepen hadden te Gath.
 2. Zijt mij genadig, o God, want de mens zoekt mij op te slokken; den gansen dag dringt mij de bestrijder.
 3. Mijn verspieders zoeken mij den gansen dag op te slokken; want ik heb vele bestrijders, o Allerhoogste!

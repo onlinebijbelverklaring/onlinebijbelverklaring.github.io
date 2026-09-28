@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 4
+
 1. EEN psalm van David, voor den opperzangmeester, op Neginôth.
 2. Als ik roep, verhoor mij, o God mijner gerechtigheid. In benauwdheid hebt Gij mij ruimte gemaakt; zijt mij genadig en hoor mijn gebed.
 3. Gij mannen, hoelang zal mijn eer tot schande zijn? Hoelang zult gij de ijdelheid beminnen, de leugen zoeken? Sela.

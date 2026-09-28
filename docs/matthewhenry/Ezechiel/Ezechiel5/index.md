@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 5
+
 1. EN gij, mensenkind, neem u een scherp mes, een scheermes der barbieren zult gij u nemen, hetwelk gij zult laten gaan over uw hoofd en over uw baard; daarna zult gij u een weegschaal nemen en die haren delen.
 2. Een derde deel zult gij in het midden der stad met vuur verbranden, naar dat de dagen der belegering vervuld worden; dan zult gij een derde deel nemen, slaande met een zwaard rondom hetzelve; en een derde deel zult gij in den wind strooien; want Ik zal het zwaard achter hen uittrekken.
 3. Gij zult ook weinige in getal daarvan nemen, en in uw slippen binden.

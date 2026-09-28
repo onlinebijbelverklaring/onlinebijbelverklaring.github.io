@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 49
+
 1. Daarna riep Jakob zijn zonen, en hij zeide: Verzamelt u, en ik zal u verkondigen, hetgeen u in de navolgende dagen wedervaren zal. 
 2. Komt samen en hoort, gij, zonen van Jakob! en hoort naar Israel, uw vader. 
 3. Ruben! gij zijt mijn eerstgeborene, mijn kracht, en het begin mijner macht; de voortreffelijkste in hoogheid, en de voortreffelijkste in sterkte! 

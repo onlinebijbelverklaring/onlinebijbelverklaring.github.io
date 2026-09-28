@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 19
+
 1. MAAR Job antwoordde en zeide:
 2. Hoelang zult gijlieden mijn ziel bedroeven, en mij met woorden verbrijzelen?
 3. Gij hebt nu tienmaal mij schande aangedaan; gij schaamt u niet, gij verhardt u tegen mij.

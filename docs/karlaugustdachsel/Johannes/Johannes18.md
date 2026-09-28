@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 18
+
 HET LIJDEN VAN CHRISTUS VOOR KAJAFAS EN PILATUS
 
 H. In drie hoofdstukken volgt de geschiedenis van het lijden, het sterven en de opstanding van Jezus Christus. Het is echter geen volledig op zichzelf alleen reeds voldoende bericht. De stof is gekozen, om aan de ene kant de berichten, die reeds in omloop waren, aan te vullen en de afzonderlijke stukken daarin vervat, te verenigen tot een afgesloten geheel. Daarom moet ook het bericht, dat hier voor ons ligt, worden aangevuld met hetgeen de vorige evangeliën aanbieden. Aan de andere kant zijn hier alleen die punten bijgebracht waarin duidelijk op de voorgrond treedt hoe in de geschiedenis van Jezus’ lijden en sterven het ongeloof van de Joden ten toppunt steeg, daarentegen in de verschijningen van de Herrezene het geloof van de Zijnen tot rijpheid kwam, zodat de tegenstelling, in de vorige delen van ons Evangelie ontwikkeld, tussen Jezus’ discipelen en de wereld nu tot een doorgezette scheiding van beide partijen werd.

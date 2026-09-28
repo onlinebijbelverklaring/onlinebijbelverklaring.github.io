@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 21
+
 1. Dit nu zijn de rechten, die gij hun zult voorstellen. 
 2. Als gij een Hebreeuwsen knecht kopen zult, die zal zes jaren dienen; maar in het zevende zal hij voor vrij uitgaan, om niet. 
 3. Indien hij met zijn lijf ingekomen zal zijn, zo zal hij met zijn lijf uitgaan; indien hij een getrouwd man was, zo zal zijn vrouw met hem uitgaan. 

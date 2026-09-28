@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 16
+
 1. Simson nu ging heen naar Gaza; en hij zag aldaar een vrouw, die een hoer was; en hij ging tot haar in. 
 2. Toen werd de Gazieten gezegd: Simson is hier ingekomen; zo gingen zij rondom, en leiden hem de ganse nacht lagen in de stadspoort; doch zij hielden zich de ganse nacht stil, zeggende: Tot aan het morgenlicht, dan zullen wij hem doden. 
 3. Maar Simson lag tot middernacht toe; toen stond hij op ter middernacht, en hij greep de deuren der stadspoort met de beide posten, en nam ze weg met de grendelboom, en legde ze op zijn schouderen, en droeg ze opwaarts op de hoogte des bergs, die in het gezicht van Hebron is. 

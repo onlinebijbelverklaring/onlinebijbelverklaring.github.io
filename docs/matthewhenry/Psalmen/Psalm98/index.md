@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 98
+
 1. EEN psalm. Zingt den HEERE een nieuw lied, want Hij heeft wonderen gedaan; Zijn rechterhand en de arm Zijner heiligheid heeft Hem heil gegeven.
 2. De HEERE heeft Zijn heil bekendgemaakt, Hij heeft Zijn gerechtigheid geopenbaard voor de ogen der heidenen.
 3. Hij is gedachtig geweest Zijner goedertierenheid en Zijner waarheid aan het huis Israëls; en al de einden der aarde hebben gezien het heil onzes Gods.

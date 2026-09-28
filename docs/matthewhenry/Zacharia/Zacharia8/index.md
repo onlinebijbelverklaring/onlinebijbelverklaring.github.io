@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 8
+
 1. Daarna geschiedde het woord des HEEREN der heirscharen tot mij, zeggende:
 2. Alzo zegt de HEERE der heirscharen: Ik heb geijverd over Sion met een groten ijver; ja, met grote grimmigheid heb Ik over haar geijverd. 
 3. Alzo zegt de HEERE: Ik ben wedergekeerd tot Sion, en Ik zal in het midden van Jeruzalem wonen; en Jeruzalem zal geheten worden een stad der waarheid, en de berg des HEEREN der heirscharen, een berg der heiligheid. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 21
+
 1. EN als het geschiedde dat wij van hen gescheiden en afgevaren waren, zo liepen wij rechtuit en kwamen te Kos, en den dag daaraan te Rhodos, en vandaar te Pátara.
 2. En een schip gevonden hebbende dat naar Fenícië overvoer, gingen wij erin en voeren af.
 3. En als wij Cyprus in het gezicht gekregen en dat aan de linkerhand gelaten hadden, voeren wij naar Syrië, en kwamen aan te Tyrus; want het schip zou aldaar den last ontladen.

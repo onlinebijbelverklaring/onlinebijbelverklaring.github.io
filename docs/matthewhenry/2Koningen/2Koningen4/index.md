@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 4
+
 1. Een vrouw nu uit de vrouwen van de zonen der profeten riep tot Elisa, zeggende: Uw knecht, mijn man, is gestorven, en gij weet, dat uw knecht de HEERE was vrezende; nu is de schuldheer gekomen, om mijn beide kinderen voor zich tot knechten te nemen. 
 2. En Elisa zeide tot haar: Wat zal ik u doen? Geef mij te kennen, wat gij in het huis hebt. En zij zeide: Uw dienstmaagd heeft niet met al in het huis, dan een kruik met olie. 
 3. Toen zeide hij: Ga, eis voor u vaten van buiten, van al uw naburen ledige vaten; maak er niet weinig te hebben. 

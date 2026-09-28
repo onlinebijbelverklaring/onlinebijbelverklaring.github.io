@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 25
+
 1. Wanneer er tussen lieden twist zal zijn, en zij tot het gerecht zullen toetreden, dat zij hen richten, zo zullen zij de rechtvaardige rechtvaardig spreken, en de onrechtvaardige verdoemen. 
 2. En het zal geschieden, indien de onrechtvaardige slagen verdiend heeft, dat de rechter hem zal doen neervallen, en hem doen slaan in zijn tegenwoordigheid, naar dat het voor zijn onrechtvaardigheid genoeg zal zijn, in getal. 
 3. Met veertig slagen zal hij hem doen slaan, hij zal er niet toedoen; opdat niet misschien zo hij voortvoere hem daarboven met meer slagen te doen slaan, uw broeder dan voor uw ogen verachtelijk gehouden worde. 

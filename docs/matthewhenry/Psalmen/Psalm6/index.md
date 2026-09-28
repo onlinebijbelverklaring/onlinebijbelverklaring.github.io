@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 6
+
 1. EEN psalm van David, voor den opperzangmeester, op Neginôth, op de Scheminîth.
 2. O HEERE, straf mij niet in Uw toorn, en kastijd mij niet in Uw grimmigheid.
 3. Zijt mij genadig, HEERE, want ik ben verzwakt; genees mij, HEERE, want mijn beenderen zijn verschrikt;

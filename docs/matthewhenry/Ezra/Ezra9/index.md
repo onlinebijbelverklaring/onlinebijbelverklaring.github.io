@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezra 9
+
 1. Als nu deze dingen voleind waren, traden de vorsten tot mij toe, zeggende: Het volk Israëls, en de priesters, en de Levieten, zijn niet afgezonderd van de volken dezer landen, naar hun gruwelen, namelijk van de Kanaänieten, de Hethieten, de Ferezieten, de Jebusieten, de Ammonieten, de Moabieten, de Egyptenaren en de Amorieten. 
 2. Want zij hebben van hun dochteren genomen voor zichzelven en voor hun zonen, zodat zich vermengd hebben het heilig zaad met de volken dezer landen; ja, de hand der vorsten en overheden is de eerste geweest in deze overtreding. 
 3. Als ik nu deze zaak hoorde, scheurde ik mijn kleed en mijn mantel; en ik trok van het haar mijns hoofds en mijns baards uit, en zat verbaasd neder. 

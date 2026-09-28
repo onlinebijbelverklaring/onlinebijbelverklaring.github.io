@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 13
+
 DE VERSPIEDERS VAN HET LAND KANAÄN.
 
 ***1. En de HEERE sprak tot Mozes, die, als de kinderen van Israël tot hem kwamen, en zeiden: laat ons mannen voor ons uitzenden, om het land te verspieden en ons te berichten, langs welke weg wij het kunnen binnentrekken, en hoedanigde steden zijn, waar wij komen zullen (Deuteronomium. 1:22) niet wist, of hij zo’n begeerte al dan niet mocht inwilligen, zeggende:***

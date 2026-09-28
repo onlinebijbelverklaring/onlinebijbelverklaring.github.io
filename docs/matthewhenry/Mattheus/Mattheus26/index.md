@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 26
+
 1. EN het is geschied als Jezus al deze woorden geëindigd had, dat Hij tot Zijn discipelen zeide:
 2. Gij weet dat na twee dagen het pascha is, en de Zoon des mensen zal overgeleverd worden om gekruisigd te worden.
 3. Toen vergaderden de overpriesters en de schriftgeleerden en de ouderlingen des volks in de zaal des hogepriesters, die genaamd was Kájafas;

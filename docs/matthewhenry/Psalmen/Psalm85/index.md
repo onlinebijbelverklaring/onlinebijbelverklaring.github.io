@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 85
+
 1. EEN psalm voor den opperzangmeester, onder de kinderen van Korach.
 2. Gij zijt Uw land gunstig geweest, HEERE; de gevangenis van Jakob hebt Gij gewend.
 3. De misdaad Uws volks hebt Gij weggenomen; Gij hebt al hun zonden bedekt. Sela.

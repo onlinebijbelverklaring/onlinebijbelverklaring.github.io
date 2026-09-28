@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 38
+
 1. EEN psalm van David, om te doen gedenken.
 2. O HEERE, straf mij niet in Uw groten toorn, en kastijd mij niet in Uw grimmigheid.
 3. Want Uw pijlen zijn in mij gedaald, en Uw hand is op mij nedergedaald.

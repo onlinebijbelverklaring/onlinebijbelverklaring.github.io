@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 5
+
 1. En daarna gingen Mozes en Aaron heen, en zeiden tot Farao: Alzo zegt de HEERE, de God van Israël: Laat Mijn volk trekken, dat het Mij een feest houde in de woestijn! 
 2. Maar Farao zeide: Wie is de HEERE, Wiens stem ik gehoorzamen zou, om Israël te laten trekken? Ik ken de HEERE niet, en ik zal ook Israël niet laten trekken. 
 3. Zij dan zeiden: De God der Hebreen is ons ontmoet; zo laat ons toch heentrekken, de weg van drie dagen in de woestijn, en de HEERE, onzen God, offeren, dat Hij ons niet overkome met pestilentie, of met het zwaard. 

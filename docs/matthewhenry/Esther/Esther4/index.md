@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 4
+
 1. ALS Mórdechai wist al wat er geschied was, zo verscheurde Mórdechai zijn klederen en hij trok een zak aan met as; en hij ging uit door het midden der stad en hij riep met een groot en bitter geroep.
 2. En hij kwam tot voor de poort des konings; want niemand mocht in des konings poort inkomen, bekleed met een zak.
 3. En in alle en een ieder landschap en plaats waar het woord des konings en zijn wet aankwam, was een grote rouw onder de Joden, met vasten en geween en misbaar; velen lagen in zakken en as.

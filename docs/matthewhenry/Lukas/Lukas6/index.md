@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 6
+
 1. EN het geschiedde op den tweeden eersten sabbat, dat Hij door het gezaaide ging, en Zijn discipelen plukten aren, en aten ze, die wrijvende met de handen.
 2. En sommigen der farizeeën zeiden tot hen: Waarom doet gij wat niet geoorloofd is te doen op de sabbatten?
 3. En Jezus hun antwoordende, zeide: Hebt gij ook dat niet gelezen, hetwelk David deed wanneer hem hongerde en dengenen die met hem waren?

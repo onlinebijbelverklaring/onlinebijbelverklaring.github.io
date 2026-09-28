@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 19
+
 1. Wijders sprak de HEERE tot Mozes en tot Aäron, zeggende: 
 2. Dit is de inzetting van de wet, die de HEERE geboden heeft, zeggende: Spreek tot de kinderen Israëls, dat zij tot u brengen een rode volkomen vaars, in welke geen gebrek is, op welke geen juk gekomen is. 
 3. En gij zult die geven aan Eleazar, de priester; en hij zal ze uitbrengen tot buiten het leger, en men zal haar voor zijn aangezicht slachten. 

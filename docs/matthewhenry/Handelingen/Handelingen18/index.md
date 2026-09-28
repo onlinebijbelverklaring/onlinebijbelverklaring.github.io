@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 18
+
 1. EN na dezen scheidde Paulus van Athene en kwam te Korinthe;
 2. En vond een zekeren Jood met name Áquila, van geboorte uit Pontus, die onlangs van Italië gekomen was, en Priscilla, zijn vrouw (omdat Claudius bevolen had dat al de Joden uit Rome vertrekken zouden), en hij ging tot hen;
 3. En omdat hij van hetzelfde handwerk was, bleef hij bij hen en wrocht; want zij waren tentenmakers van handwerk.

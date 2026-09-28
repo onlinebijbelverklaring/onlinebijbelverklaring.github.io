@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 20
+
 1. EN het geschiedde in het zevende jaar, in de vijfde maand, op den tiende derzelver maand, dat er mannen uit de oudsten van Israël kwamen om den HEERE te vragen; en zij zaten neder voor mijn aangezicht.
 2. Toen geschiedde des HEEREN woord tot mij, zeggende:
 3. Mensenkind, spreek tot de oudsten van Israël, en zeg tot hen: Alzo zegt de Heere HEERE: Komt gij om Mij te vragen? Zo waarachtig als Ik leef, zo Ik van u gevraagd worde, spreekt de Heere HEERE!

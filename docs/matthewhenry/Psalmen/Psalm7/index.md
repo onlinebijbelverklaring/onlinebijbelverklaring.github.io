@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 7
+
 1. DAVIDS Schiggajôn, dat hij den HEERE gezongen heeft, over de woorden van Cusch, den zoon van Jemini.
 2. HEERE mijn God, op U betrouw ik; verlos mij van al mijn vervolgers en red mij;
 3. Opdat hij mijn ziel niet rove als een leeuw, verscheurende, terwijl er geen verlosser is.

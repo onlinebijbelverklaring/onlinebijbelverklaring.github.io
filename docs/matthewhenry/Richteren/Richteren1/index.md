@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 1
+
 1. En het geschiedde na de dood van Jozua, dat de kinderen Israëls de HEERE vraagden, zeggende: Wie zal onder ons het eerst optrekken naar de Kanaänieten, om tegen hen te krijgen? 
 2. En de HEERE zeide: Juda zal optrekken; ziet, Ik heb dat land in zijn hand gegeven. 
 3. Toen zeide Juda tot zijn broeder Simeon: Trek met mij op in mijn lot, en laat ons tegen de Kanaänieten krijgen, zo zal ik ook met u optrekken in uw lot. Alzo toog Simeon op met hem. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 5
+
 1. Voorts zong Debora, en Barak, de zoon van Abinoam, ten zelven dage, zeggende: 
 2. Looft de HEERE, van het wreken der wraken in Israël, van dat het volk zich gewillig heeft aangeboden. 
 3. Hoort, gij koningen, neemt ter oren, gij vorsten! Ik, de HEERE zal ik zingen, ik zal de HEERE, de God Israëls, psalmzingen. 

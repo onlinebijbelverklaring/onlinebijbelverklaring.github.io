@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 5
+
 1. En Hiram, de koning van Tyrus, zond zijn knechten tot Salomo (want hij had gehoord, dat zij Salomo tot koning gezalfd hadden in zijns vaders plaats), dewijl Hiram David altijd bemind had. 
 2. Daarna zond Salomo tot Hiram, zeggende: 
 3. Gij weet, dat mijn vader David de Naam des HEEREN, zijns Gods, geen huis kon bouwen, vanwege de oorlogen, waarmede zij hem omsingelden, totdat de HEERE hen onder zijn voetzolen gaf. 

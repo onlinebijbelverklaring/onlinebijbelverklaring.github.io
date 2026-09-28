@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 1
+
 1. Dit zijn de woorden, die Mozes tot gans Israël gesproken heeft, aan deze zijde van de Jordaan, in de woestijn, op het vlakke veld tegenover Suf, tussen Paran en tussen Tofel, en Laban, en Hazeroth, en Dizahab. 
 2. Elf dag reizen zijn het van Horeb, door de weg van het gebergte Seir, tot aan Kades-barnea. 
 3. En het is geschied in het veertigste jaar, in de elfde maand, op de eersten der maand, dat Mozes sprak tot de kinderen Israëls, naar alles wat hem de HEERE aan hen bevolen had; 

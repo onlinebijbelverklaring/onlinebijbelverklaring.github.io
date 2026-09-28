@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 4
+
 BIJZONDERE BEPALINGEN OMTRENT HET AMBT, EN OPGAVEN VAN HET GETAL VAN DE LEVIETEN.
 
 ## I. Vers 1-49

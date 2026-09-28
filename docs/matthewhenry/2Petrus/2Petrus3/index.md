@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Petrus 3
+
 1. DEZEN tweeden zendbrief, geliefden, schrijf ik nu aan u, in welke beide ik door vermaning uw oprecht gemoed opwek;
 2. Opdat gij gedachtig zijt aan de woorden die van de heilige profeten tevoren gesproken zijn, en aan ons gebod, wij die des Heeren en Zaligmakers apostelen zijn;
 3. Dit eerst wetende, dat in het laatste der dagen spotters komen zullen, die naar hun eigen begeerlijkheden zullen wandelen,

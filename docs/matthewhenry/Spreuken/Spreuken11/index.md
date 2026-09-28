@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 11
+
 1. EEN bedrieglijke weegschaal is den HEERE een gruwel, maar een volkomen weegsteen is Zijn welgevallen.
 2. Als de hovaardigheid komt, zal de schande ook komen; maar met de ootmoedigen is wijsheid.
 3. De oprechtheid der oprechten leidt hen, maar de verkeerdheid der trouwelozen verstoort hen.

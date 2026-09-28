@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 10
+
 1. Begeert van de HEERE regen, ten tijde des spaden regens; de HEERE maakt de weerlichten; en Hij zal hun regen genoeg geven voor ieder kruid op het veld. 
 2. Want de terafim spreken ijdelheid, en de waarzeggers zien valsheid, en zij spreken ijdele dromen, zij troosten met ijdelheid; daarom zijn zij heengetogen als schapen, zij zijn onderdrukt geworden; want er was geen herder. 
 3. Tegen de herders was Mijn toorn ontstoken, en over de bokken heb Ik bezoeking gedaan; maar de HEERE der heirscharen zal Zijn kudde bezoeken, het huis van Juda, en Hij zal hen stellen, gelijk het paard Zijner majesteit in de strijd. 

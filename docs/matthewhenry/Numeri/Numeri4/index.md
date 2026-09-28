@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 4
+
 1. En de HEERE sprak tot Mozes en tot Aäron, zeggende: 
 2. Neemt op de som der zonen van Kohath, uit het midden der zonen van Levi, naar hun geslachten, naar het huis hunner vaderen. 
 3. Van dertig jaren oud en daarboven, tot vijftig jaren oud; al wie tot dezen strijd inkomt, om het werk in de tent der samenkomst te doen. 

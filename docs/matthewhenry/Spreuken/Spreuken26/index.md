@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 26
+
 1. GELIJK de sneeuw in den zomer en gelijk de regen in den oogst, alzo past den zot de eer niet.
 2. Gelijk een mus is tot wegzweven, gelijk een zwaluw tot vervliegen, alzo zal een vloek die zonder oorzaak is, niet komen.
 3. Een zweep is voor het paard, een toom voor den ezel, en een roede voor den rug der zotten.

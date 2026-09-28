@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 5
+
 1. MAAR van de tijden en de gelegenheden, broeders, hebt gij niet van node dat men u schrijft.
 2. Want gij weet zelven zeer wel, dat de dag des Heeren alzo zal komen gelijk een dief in den nacht.
 3. Want wanneer zij zullen zeggen: Het is vrede en zonder gevaar, dan zal een haastig verderf hun overkomen, gelijk de barensnood een bevruchte vrouw, en zij zullen het geenszins ontvlieden.

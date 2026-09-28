@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 4
+
 1. Hoort dit woord, gij koeien van Basan! gij, die op de berg van Samaria zijt, die de armen verdrukt, die de nooddruftigen verplettert; gij, die tot hunlieder Heeren zegt: Brengt aan, opdat wij drinken. 
 2. De Heere HEERE heeft gezworen bij Zijn heiligheid, dat er, ziet, dagen over ulieden zullen komen, dat men u zal optrekken met haken, en uw nakomelingen met visangelen. 
 3. En gij zult door de bressen uitgaan, een ieder voor zich heen; en gij zult, hetgeen in het paleis gebracht is, wegwerpen, spreekt de HEERE. 

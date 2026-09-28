@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Openbaring
+
 HET PROFETISCHE BOEK VAN HET NIEUWE TESTAMENT
 
 Amos 3:7: Zeker de Heere Heere zal geen ding doen, tenzij Hij Zijn verborgenheid aan Zijn knechten, de profeten, geopenbaard heeft.

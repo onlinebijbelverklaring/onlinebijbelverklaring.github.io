@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 35
+
 1. En de HEERE sprak tot Mozes, in de vlakke velden der Moabieten, aan de Jordaan van Jericho, zeggende: 
 2. Gebied de kinderen Israëls, dat zij van de erfenis hunner bezitting aan de Levieten steden zullen geven om te bewonen; daartoe zult gijlieden aan de Levieten voorsteden geven, aan de steden rondom dezelve. 
 3. En die steden zullen zij hebben om te bewonen; maar hun voorsteden zullen zijn voor hun beesten, en voor hun have, en voor al hun gedierte, 

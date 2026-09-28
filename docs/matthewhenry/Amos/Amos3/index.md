@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 3
+
 1. Hoort dit woord, dat de HEERE tegen ulieden spreekt, gij kinderen van Israël! namelijk tegen het ganse geslacht, dat Ik uit Egypteland heb opgevoerd, zeggende:
 2. Uit alle geslachten des aardbodems heb Ik ulieden alleen gekend; daarom zal Ik al uw ongerechtigheden over ulieden bezoeken. 
 3. Zullen twee tezamen wandelen, tenzij dat zij bijeengekomen zijn? 

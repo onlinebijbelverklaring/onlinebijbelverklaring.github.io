@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 20
+
 1. En Abraham reisde van daar naar het land van het zuiden, en woonde tussen Kades en tussen Sur; en hij verkeerde als vreemdeling te Gerar. 
 2. Als nu Abraham van Sara, zijn huisvrouw, gezegd had: Zij is mijn zuster, zo zond Abimelech, de koning van Gerar, en nam Sara weg. 
 3. Maar God kwam tot Abimelech in een droom des nachts, en Hij zeide tot hem: Zie, gij zijt dood om der vrouwe wil, die gij weggenomen hebt; want zij is met een man getrouwd. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 1
+
 1. Voorts geschiedde het na Sauls dood, als David van de slag der Amalekieten was wedergekomen, en David twee dagen te Ziklag gebleven was; 
 2. Zo geschiedde het op de derden dag, dat, ziet, uit het heirleger van Saul, een man kwam, wiens klederen gescheurd waren, en aarde was op zijn hoofd; en het geschiedde, als hij tot David kwam, zo viel hij ter aarde en boog zich neder. 
 3. En David zeide tot hem: Van waar komt gij? En hij zeide tot hem: Ik ben ontkomen uit het heirleger van Israël. 

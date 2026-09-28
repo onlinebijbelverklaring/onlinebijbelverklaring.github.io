@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 11
+
 DE UITTOCHT UIT EGYPTE AANGEKONDIGD.
 
 ***1. Want 1) de HEERE had tot Mozes gesproken, vóórdat deze (hoofdstuk 10:24) door Farao’s geroep tot hem gegaan was: Ik zal nog één plaag over Farao en over Egypte brengen, namelijk het sterven van de eerstgeborenen (vs.4 vv.), daarna zal hij u van hier laten vertrekken; als hij u geheel 2) zal laten vertrekken, zo zal hij u haastig van hier uitdrijven, zodat gij zo spoedig mogelijk vrij wordt.***

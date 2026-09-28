@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 6
+
 1. WAT zullen wij dan zeggen? Zullen wij in de zonde blijven, opdat de genade te meerder worde?
 2. Dat zij verre. Wij die der zonde gestorven zijn, hoe zullen wij nog in dezelve leven?
 3. Of weet gij niet dat zovelen als wij in Christus Jezus gedoopt zijn, wij in Zijn dood gedoopt zijn?

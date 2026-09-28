@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 17
+
 1. En er was een man van het gebergte van Efraim, wiens naam was Micha. 
 2. Die zeide tot zijn moeder: De duizend en honderd zilverlingen, die u ontnomen zijn, om dewelke gij gevloekt hebt, en ook voor mijn oren gesproken hebt, zie, dat geld is bij mij, ik heb dat genomen. Toen zeide zijn moeder: Gezegend zij mijn zoon de HEERE! 
 3. Alzo gaf hij aan zijn moeder de duizend en honderd zilverlingen weder. Doch zijn moeder zeide: Ik heb dat geld de HEERE ganselijk geheiligd van mijn hand, voor mijn zoon, om een gesneden beeld en een gegoten beeld te maken; zo zal ik het u nu wedergeven. 

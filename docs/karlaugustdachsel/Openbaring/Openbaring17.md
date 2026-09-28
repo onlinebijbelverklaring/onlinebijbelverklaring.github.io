@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 17
+
 HET ZESDE GEZICHT EEN BESCHRIJVING VAN HET ANTICHRISTISCHE RIJK ONDER HET BEELD VAN EEN GROTE HOER
 
 ## V. Vers 1-18

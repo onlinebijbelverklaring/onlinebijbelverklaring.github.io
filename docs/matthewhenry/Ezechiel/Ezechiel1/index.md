@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 1
+
 1. IN het dertigste jaar, in de vierde maand, op den vijfde derzelver maand, als ik in het midden der weggevoerden was bij de rivier Chebar, zo geschiedde het dat de hemelen werden geopend en ik gezichten Gods zag.
 2. Op den vijfde derzelver maand (dat was het vijfde jaar van de wegvoering van den koning Jójachin),
 3. Geschiedde het woord des HEEREN uitdrukkelijk tot Ezechiël, den zoon van Buzi, den priester, in het land der Chaldeeën, bij de rivier Chebar; en de hand des HEEREN was daar op hem.

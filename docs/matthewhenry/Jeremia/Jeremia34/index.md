@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 34
+
 1. HET woord dat tot Jeremía geschied is van den HEERE (als Nebukadnézar, koning van Babel, en zijn ganse heir, en alle koninkrijken der aarde, die onder de heerschappij zijner hand waren, en al de volken tegen Jeruzalem streden en tegen al haar steden), zeggende:
 2. Zo zegt de HEERE, de God Israëls: Ga heen en spreek tot Zedekía, den koning van Juda, en zeg tot hem: Zo zegt de HEERE: Zie, Ik geef deze stad in de hand des konings van Babel, en hij zal ze met vuur verbranden.
 3. En gij zult van zijn hand niet ontkomen, maar zekerlijk gegrepen en in zijn hand gegeven worden; en uw ogen zullen de ogen des konings van Babel zien en zijn mond zal tot uw mond spreken, en gij zult te Babel komen.

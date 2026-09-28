@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 21
+
 1. De mannen van Israël nu hadden te Mizpa gezworen, zeggende: Niemand van ons zal zijn dochter aan de Benjaminieten ter vrouwe geven. 
 2. Zo kwam het volk tot het huis Gods, en zij bleven daar tot op de avond, voor Gods aangezicht; en zij hieven hun stem op en weenden met groot geween. 
 3. En zeiden: O HEERE, God van Israël! Waarom is dit geschied in Israël, dat er heden een stam van Israël gemist wordt? 

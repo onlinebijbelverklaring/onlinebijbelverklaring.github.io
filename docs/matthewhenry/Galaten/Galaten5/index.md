@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 5
+
 1. STAAT dan in de vrijheid met welke ons Christus vrijgemaakt heeft, en wordt niet wederom met het juk der dienstbaarheid bevangen.
 2. Zie, ik, Paulus, zeg u, zo gij u laat besnijden, dat Christus u niet nut zal zijn.
 3. En ik betuig wederom een iegelijk mens die zich laat besnijden, dat hij een schuldenaar is de gehele wet te doen.

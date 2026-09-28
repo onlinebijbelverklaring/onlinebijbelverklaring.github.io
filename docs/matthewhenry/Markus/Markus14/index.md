@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 14
+
 1. EN het pascha en het feest der ongehevelde broden was na twee dagen; en de overpriesters en de schriftgeleerden zochten hoe zij Hem met listigheid vangen en doden zouden.
 2. Maar zij zeiden: Niet in het feest, opdat niet misschien oproer onder het volk worde.
 3. En als Hij te Bethanië was in het huis van Simon den melaatse, daar Hij aan tafel zat, kwam een vrouw, hebbende een albasten fles met zalf van onvervalsten nardus, van groten prijs; en de albasten fles gebroken hebbende, goot die op Zijn hoofd.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 7
+
 1. TOEN de koning met Haman gekomen was om te drinken met de koningin Esther,
 2. Zo zeide de koning tot Esther ook ten tweeden dage op den maaltijd des wijns: Wat is uw bede, koningin Esther? en zij zal u gegeven worden; en wat is uw verzoek? het zal geschieden, ook tot de helft des koninkrijks.
 3. Toen antwoordde de koningin Esther en zeide: Indien ik, o koning, genade in uw ogen gevonden heb en indien het den koning goeddunkt, men geve mij mijn leven om mijner bede wil, en mijn volk om mijns verzoeks wil.

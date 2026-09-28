@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 28
+
 1. EN laat na den sabbat, als het begon te lichten tegen den eersten dag der week, kwam Maria Magdaléna en de andere Maria, om het graf te bezien.
 2. En zie, er geschiedde een grote aardbeving; want een engel des Heeren, nederdalende uit den hemel, kwam toe en wentelde den steen af van de deur en zat op denzelven.
 3. En zijn gedaante was gelijk een bliksem, en zijn kleding wit gelijk sneeuw.

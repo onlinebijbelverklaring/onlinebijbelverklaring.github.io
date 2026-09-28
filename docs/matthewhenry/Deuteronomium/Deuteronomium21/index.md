@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 21
+
 1. Wanneer in het land, hetwelk de HEERE, uw God, u geven zal, om dat te erven, een verslagene zal gevonden worden, liggende in het veld, niet bekend zijnde, wie hem geslagen heeft; 
 2. Zo zullen uw oudsten en uw rechters uitgaan, en zij zullen meten naar de steden, die rondom de verslagene zijn. 
 3. De stad nu, die de naaste zal zijn aan de verslagene, daar zullen de oudsten derzelver stad een jonge koe van de runderen nemen, met dewelke niet gearbeid is, die aan het juk niet getrokken heeft. 

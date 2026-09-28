@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 7
+
 1. EN na dezen wandelde Jezus in Galiléa; want Hij wilde in Judéa niet wandelen, omdat de Joden Hem zochten te doden.
 2. En het feest der Joden, namelijk de loofhuttenzetting, was nabij.
 3. Zo zeiden dan Zijn broeders tot Hem: Vertrek vanhier en ga heen in Judéa, opdat ook Uw discipelen Uw werken mogen aanschouwen, die Gij doet.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 3
+
 1. DAARNA zeide Hij tot mij: Mensenkind, eet wat gij vinden zult; eet deze rol en ga, spreek tot het huis Israëls.
 2. Toen opende ik mijn mond, en Hij gaf mij die rol te eten.
 3. En Hij zeide tot mij: Mensenkind, geef uw buik te eten en vul uw ingewand met deze rol, die Ik u geef. Toen at ik, en het was in mijn mond als honing, vanwege de zoetigheid.

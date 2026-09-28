@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 14
+
 1. Toen zond Hiram, de koning van Tyrus, boden tot David, en cederenhout, en metselaars, en timmerlieden, dat zij hem een huis bouwden. 
 2. En David merkte, dat hem de HEERE tot koning bevestigd had over Israël; want zijn koninkrijk werd ten hoogste verheven, om Zijns volks Israëls wil. 
 3. En David nam meer vrouwen te Jeruzalem, en David gewon meer zonen en dochteren. 

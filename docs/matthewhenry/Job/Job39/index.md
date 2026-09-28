@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 39
+
 1. ZULT gij voor den ouden leeuw roof jagen, of de graagheid der jonge leeuwen vervullen,
 2. Als zij nederbukken in de holen, en in den kuil zitten ter loering?
 3. Wie bereidt de raaf haar kost als haar jongen tot God schreeuwen, als zij dwalen omdat er geen eten is?

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 106
+
 1. HALLELUJAH. Looft den HEERE, want Hij is goed; want Zijn goedertierenheid is in der eeuwigheid.
 2. Wie zal de mogendheden des HEEREN uitspreken, al Zijn lof verkondigen?
 3. Welgelukzalig zijn zij die het recht onderhouden; die te allen tijde gerechtigheid doet.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 21
+
 ISAAK’S GEBOORTE. VERWIJDERING VAN ISMAËL. ABRAHAMS VERBOND MET ABIMELECH.
 
 ## I. Vers 1-7

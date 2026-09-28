@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 30
+
 1. Daarna zond Jehizkia tot het ganse Israël en Juda, en schreef ook brieven tot Efraim en Manasse, dat zij zouden komen tot het huis des HEEREN te Jeruzalem, om de HEERE, de God Israëls, pascha te houden. 
 2. Want de koning had raad gehouden met zijn oversten en de ganse gemeente te Jeruzalem, om het pascha te houden, in de tweede maand. 
 3. Want zij hadden het niet kunnen houden te dierzelfder tijd, omdat de priesteren zich niet genoeg geheiligd hadden, en het volk zich niet verzameld had te Jeruzalem. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 8
+
 VERGELIJKING VAN HET PRIESTERSCHAP VAN CHRISTUS MET HET PRIESTERSCHAP VAN DE LEVIETEN
 
 ### C. Vers 1-Hoofstuk 10:18

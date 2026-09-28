@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Amos
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK VAN DE PROFEET AMOS
 
 Hoewel deze profeet een weinig voor Jesaja optrad, toch was hij niet, zoals sommigen gemeend hebben, de vader van Jesaja, Jesaja 1:1, want in ‘t Hebreeuws zijn hun namen zeer verschillend; ook hun families waren zeer verschillend, want Jesaja was een hoveling, Amos een landbouwer. Amos betekent eer, last, vanwaar de Joden een overlevering hebben, dat hij zwaar ter taal was, en met stamelende lippen sprak; met het oog op zijn naam mogen wij veeleer zeggen, dat zijn woorden van gewicht waren en zijne profetie de last des Heeren was. Hij was, zoals de meesten menen, uit Juda, maar profeteerde hoofdzakelijk tegen Israël, en te Bethel, Hoofdstuk 7:13. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 17
+
 OVER ERGERNIS, VERGEVENSGEZINDHEID, GELOOF EN WERKEN, OVER TIEN MELAATSEN EN HET RIJK VAN GOD
 
 ## I. Vers 1-4 

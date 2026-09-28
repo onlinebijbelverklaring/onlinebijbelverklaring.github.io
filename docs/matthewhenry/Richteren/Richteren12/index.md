@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 12
+
 1. Toen werden de mannen van Efraim bijeengeroepen, en trokken over naar het noorden; en zij zeiden tot Jeftha: Waarom zijt gij doorgetogen om te strijden tegen de kinderen Ammons, en hebt ons niet geroepen, om met u te gaan? wij zullen uw huis met u met vuur verbranden. 
 2. En Jeftha zeide tot hen: Ik en mijn volk waren zeer twistig met de kinderen Ammons; en ik heb ulieden geroepen, maar gij hebt mij uit hun hand niet verlost. 
 3. Als ik nu zag, dat gij niet verlostet, zo stelde ik mijn ziel in mijn hand, en toog door tot de kinderen Ammons, en de HEERE gaf hen in mijn hand; waarom zijt gij dan te dezen dage tot mij opgekomen, om tegen mij te strijden? 

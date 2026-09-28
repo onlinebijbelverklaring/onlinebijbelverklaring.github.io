@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 15
+
 WAAROM DE ZWAKKEN IN HET GELOOF MET GEDULD MOETEN WORDEN GEDRAGEN en HOE MEN TOT EEN CHRISTELIJK LEVEN KAN KOMEN
 
 ***1. Maar wij, die sterk zijn (vgl. Hoofdstuk 14: 14 en 20) zijn schuldig om, in plaats van hen, die het niet zijn, tot daden te verleiden, die tegen hun geweten zijn, de zwakheden van de onsterken te dragen, doordat wij ons zoveel oorbaar is naar hun standpunt schikken (Hoofdstuk 14: 21 v. Gal. 6: 2. 1 Kor. 9: 22). Wij moeten naar de aard van de liefde handelen en niet onszelf behagen, niet denken dat wij ons eigen standpunt tot iedere prijs moeten doordrijven. (1 Kor. 10: 33).***

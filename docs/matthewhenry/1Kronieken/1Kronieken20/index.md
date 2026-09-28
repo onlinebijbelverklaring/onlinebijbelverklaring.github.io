@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 20
+
 1. Het geschiedde nu ten tijde van de wederkomst des jaars, ten tijde als de koningen uittrokken, zo voerde Joab de heirkracht, en hij verdierf het land der kinderen Ammons; en hij kwam, en belegerde Rabba; maar David bleef te Jeruzalem. En Joab sloeg Rabba, en verwoestte ze. 
 2. En David nam de kroon huns konings van zijn hoofd, en hij bevond haar in gewicht een talent gouds, en daar was edelgesteente aan; en zij werd op Davids hoofd gezet, en hij voerde zeer veel roofs uit de stad. 
 3. Hij voerde ook al het volk uit, dat daarin was, en hij zaagde ze met de zaag, en met ijzeren dorswagens, en met bijlen; en alzo deed David aan al de steden der kinderen Ammons. Toen keerde David wederom met al het volk naar Jeruzalem. 

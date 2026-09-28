@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 15
+
 1. En het lot voor de stam der kinderen van Juda, naar hun huisgezinnen, was: aan de landpaal van Edom, de woestijn Zin, zuidwaarts, was het uiterste tegen het zuiden; 
 2. Zodat hun landpaal, tegen het zuiden, het uiterste van de Zoutzee was; van de tong af, die tegen het zuiden ziet; 
 3. En zij gaat uit naar het zuiden tot de opgang van Akrabbim, en gaat door naar Zin, en gaat op van het zuiden naar Kades-barnea, en gaat door Hezron, en gaat op naar Adar, en gaat om Karkaa; 

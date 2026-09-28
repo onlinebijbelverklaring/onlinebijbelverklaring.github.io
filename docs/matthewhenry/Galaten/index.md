@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Galaten
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN DE GALATEN
 
 Deze brief van Paulus is gericht niet aan de gemeente of gemeenten van een enkele zoals sommige andere, maar aan die van een landschap of provincie, want dat was Galatië. Het is zeer waarschijnlijk dat deze Galatiërs door zijn bediening het eerst tot het Christendom gebracht waren; of, indien hij niet het werktuig voor de planting geweest was, dan was hij elk geval gebruikt voor het natmaken, gelijk blijkt uit de brief zelf, zoowel als uit Hand.18: waar wij lezen dat de apostel het gehele land van Galatië en Phrygië doorreisde, de discipelen versterkende. Terwijl hij bij hen was, betoonden zij de grootste achting en liefde voor hem zoowel als voor zijn dienst; maar hij was nog niet lang vertrokken of enige Judese leraars kwamen tot hen, door wier kunstgrepen en verdachtmakingen zij weldra lager gedachten over beide opvatten. 

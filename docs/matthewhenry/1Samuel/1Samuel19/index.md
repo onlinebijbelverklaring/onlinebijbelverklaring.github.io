@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 19
+
 1. Derhalve sprak Saul tot zijn zoon Jonathan en tot al zijn knechten, om David te doden. Doch Jonathan, Sauls zoon, had groot welgevallen aan David. 
 2. En Jonathan verkondigde het David, zeggende: Mijn vader Saul zoekt u te doden; nu dan, wacht u toch des morgens, en blijf in het verborgene, en versteek u. 
 3. Doch ik zal uitgaan, en aan de hand mijns vaders staan op het veld, waar gij zult zijn; en ik zal van u tot mijn vader spreken, en zal zien wat het zij; dat zal ik u verkondigen. 

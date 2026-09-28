@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 53
+
 1. EEN onderwijzing van David, voor den opperzangmeester, op Máchalath.
 2. De dwaas zegt in zijn hart: Er is geen God. Zij verderven het en zij bedrijven gruwelijk onrecht; er is niemand die goed doet.
 3. God heeft uit den hemel nedergezien op de mensenkinderen, om te zien of iemand verstandig ware, die God zocht.

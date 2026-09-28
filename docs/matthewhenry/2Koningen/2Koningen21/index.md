@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 21
+
 1. Manasse was twaalf jaren oud, toen hij koning werd, en hij regeerde vijf en vijftig jaren te Jeruzalem; en de naam zijner moeder was Hefzi-bah. 
 2. En hij deed dat kwaad was in de ogen des HEEREN, naar de gruwelen der heidenen, die de HEERE voor het aangezicht der kinderen Israëls uit de bezitting verdreven had. 
 3. Want hij bouwde de hoogten weder op, die Hizkia, zijn vader, verdorven had; en hij richtte Baal altaren op, en maakte een bos, gelijk als Achab, de koning van Israël, gemaakt had, en boog zich neder voor al het heir des hemels, en diende ze. 

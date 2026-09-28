@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 3
+
 1. DAAROM, deze begeerte niet langer kunnende verdragen, hebben wij gaarne willen te Athene alleen gelaten worden,
 2. En hebben gezonden Timótheüs, onzen broeder, en Gods dienaar, en onzen medearbeider in het Evangelie van Christus, om u te versterken en u te vermanen van uw geloof,
 3. Opdat niemand bewogen worde in deze verdrukkingen; want gij weet zelven dat wij hiertoe gesteld zijn.

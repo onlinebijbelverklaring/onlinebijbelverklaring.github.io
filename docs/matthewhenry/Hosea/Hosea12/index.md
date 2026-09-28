@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 12
+
 1. Die van Efraïm hebben Mij omsingeld met leugen, en het huis Israëls met bedrog; maar Juda heerste nog met God, en was met de heiligen getrouw. 
 2. Efraïm weidt zich met wind, en jaagt de oostenwind na; de gansen dag vermenigvuldigt hij leugen en verwoesting; en zij maken verbond met Assur, en de olie wordt naar Egypte gevoerd. 
 3. Ook heeft de HEERE een twist met Juda, en Hij zal bezoeking doen over Jakob naar zijn wegen, naar zijn handelingen zal Hij hem vergelden. 

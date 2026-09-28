@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 32
+
 1. Na deze geschiedenissen en derzelver bevestiging, kwam Sanherib, de koning van Assyrië, en toog in Juda, en legerde zich tegen de vaste steden, en dacht ze tot zich af te scheuren. 
 2. Jehizkia nu ziende, dat Sanherib kwam, en zijn aangezicht was tot de krijg tegen Jeruzalem; 
 3. Zo hield hij raad met zijn vorsten en zijn helden, om de fonteinwateren te stoppen, die buiten de stad waren; en zij hielpen hem. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Deuteronomium 2
+
 1. Daarna keerden wij ons, en reisden naar de woestijn, de weg van de Schelfzee, gelijk de HEERE tot mij gesproken had, en wij togen om het gebergte Seir, vele dagen. 
 2. Toen sprak de HEERE tot mij, zeggende: 
 3. Gijlieden hebt dit gebergte genoeg omgetogen; keert u naar het noorden; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 10
+
 1. Verder sprak de HEERE tot Mozes, zeggende: 
 2. Maak u twee zilveren trompetten; van dicht werk zult gij ze maken; en zij zullen u zijn tot de samenroeping der vergadering, en tot de optocht der legers. 
 3. Als zij met dezelve blazen zullen, dan zal de gehele vergadering tot u vergaderd worden, aan de deur van de tent der samenkomst. 

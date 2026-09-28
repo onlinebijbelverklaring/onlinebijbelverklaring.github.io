@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 141
+
 1. EEN psalm van David. HEERE, ik roep U aan, haast U tot mij; neem mijn stem ter ore, als ik tot U roep.
 2. Mijn gebed worde gesteld als reukwerk voor Uw aangezicht, de opheffing mijner handen als het avondoffer.
 3. HEERE, zet een wacht voor mijn mond, behoed de deur mijner lippen.

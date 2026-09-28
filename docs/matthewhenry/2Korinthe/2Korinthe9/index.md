@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 9
+
 1. WANT van de bediening die voor de heiligen geschiedt, is mij onnodig aan u te schrijven.
 2. Want ik weet de volvaardigheid uws gemoeds, van welke ik roem over u bij de Macedóniërs, dat Acháje van over een jaar bereid is geweest; en de ijver, van u begonnen, heeft er velen verwekt.
 3. Maar ik heb deze broeders gezonden, opdat onze roem dien wij over u hebben, niet zou ijdel gemaakt worden in dezen dele, opdat (gelijk ik gezegd heb) gij bereid moogt zijn;

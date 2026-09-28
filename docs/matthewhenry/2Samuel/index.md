@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 2 Samuel
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET TWEEDE BOEK VAN SAMUËL
 
 Dit boek behelst de geschiedenis der regering van koning David. In het vorige boek hadden wij zijn verordinering tot het koninkrijk en zijn worstelingen met Saul, die eindigden met de dood van zijn vervolgen Dit boek begint met zijn troonsbestijging, en is geheel gewijd aan de zaken der regering gedurende de veertig jaren van zijn bestuur en wordt daarom door de LXX Het tweede Boek der Koningen genoemd. Het geeft een bericht van Davids overwinningen en van zijn rampen. 

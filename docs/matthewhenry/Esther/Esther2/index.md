@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 2
+
 1. NA deze geschiedenissen, toen de grimmigheid van den koning Ahasvéros gestild was, gedacht hij aan Vasthi, en wat zij gedaan had en wat over haar besloten was.
 2. Toen zeiden de jongelingen des konings, die hem dienden: Men zoeke voor den koning jongedochters, maagden, schoon van aangezicht.
 3. En de koning bestelle toezieners in al de landschappen zijns koninkrijks, dat zij vergaderen alle jongedochters, maagden, schoon van aangezicht, tot den burcht Susan, tot het huis der vrouwen, onder de hand van Hege, des konings kamerling, bewaarder der vrouwen; en men geve haar haar versierselen.

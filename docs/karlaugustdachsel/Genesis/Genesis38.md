@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 38
+
 JUDA’S BLOEDSCHANDE MET THAMAR
 
 ## I. Vers 1-11

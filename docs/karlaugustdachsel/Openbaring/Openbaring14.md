@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 14
+
 OVER DE REFORMATIE VAN DE KERK DOOR HET EVANGELIE EN DE VAL VAN HET GEESTELIJKE BABEL
 
 ## I. Vers 1-5

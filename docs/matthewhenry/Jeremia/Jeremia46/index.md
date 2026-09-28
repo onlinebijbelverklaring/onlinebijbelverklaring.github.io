@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 46
+
 1. HET woord des HEEREN dat tot den profeet Jeremía geschied is tegen de heidenen.
 2. Tegen Egypte; tegen het heir van Farao Necho, koning van Egypte, dat aan de rivier Frath, bij Kárchemis was, dat Nebukadrézar, de koning van Babel, sloeg in het vierde jaar van Jójakim, den zoon van Josía, den koning van Juda.
 3. Rust het schild en de rondas toe, en nadert tot den strijd.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 135
+
 1. HALLELUJAH. Prijst den Naam des HEEREN, prijst Hem, gij knechten des HEEREN;
 2. Gij die staat in het huis des HEEREN, in de voorhoven van het huis onzes Gods.
 3. Looft den HEERE, want de HEERE is goed; psalmzingt Zijn Naam, want hij is lieflijk.

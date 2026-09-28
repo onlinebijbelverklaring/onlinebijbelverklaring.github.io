@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 19
+
 1. Het geschiedde ook in die dagen, als er geen koning was in Israël, dat er een Levietisch man was, verkerende als vreemdeling aan de zijden van het gebergte van Efraim, die zich een vrouw, een bijwijf, nam van Bethlehem-juda. 
 2. Maar zijn bijwijf hoereerde, bij hem zijnde, en toog van hem weg naar haars vaders huis, tot Bethlehem-juda; en zij was aldaar enige dagen, te weten vier maanden. 
 3. En haar man maakte zich op, en toog haar na, om naar haar hart te spreken, om haar weder te halen; en zijn jongen was bij hem, en een paar ezels. En zij bracht hem in het huis haars vaders. En als de vader van de jonge vrouw hem zag, werd hij vrolijk over zijn ontmoeting. 

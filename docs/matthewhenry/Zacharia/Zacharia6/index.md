@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 6
+
 1. En ik hief mijn ogen weder op, en ik zag; en ziet, vier wangens gingen er uit van tussen twee bergen, en die bergen waren bergen van koper. 
 2. Aan de eersten wagen waren rode paarden; en aan de tweeden wagen waren zwarte paarden. 
 3. En aan de derden wagen witte paarden; en aan de vierden wagen hagelvlekkige paarden, die sterk waren. 

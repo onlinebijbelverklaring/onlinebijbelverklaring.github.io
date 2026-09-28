@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 23
+
 1. En het geschiedde na vele dagen, nadat de HEERE Israël rust gegeven had van al zijn vijanden rondom heen, en Jozua oud geworden en wel bedaagd was; 
 2. Zo riep Jozua gans Israël, hun oudsten, en hun hoofden, en hun richters, en hun ambtlieden, en hij zeide tot hen: Ik ben oud geworden, en wel bedaagd; 
 3. En gijlieden hebt gezien alles, wat de HEERE, uw God, gedaan heeft aan al deze volken voor uw aangezicht; want de HEERE, uw God, Zelf, is het, Die voor u gestreden heeft. 

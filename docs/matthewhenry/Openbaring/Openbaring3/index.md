@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 3
+
 1. EN schrijf aan den engel der gemeente die te Sardis is: Dit zegt Die de zeven Geesten Gods heeft, en de zeven sterren: Ik weet uw werken, dat gij den naam hebt dat gij leeft, en gij zijt dood.
 2. Zijt wakende, en versterk het overige, dat sterven zou; want Ik heb uw werken niet vol gevonden voor God.
 3. Gedenk dan hoe gij het ontvangen en gehoord hebt, en bewaar het, en bekeer u. Indien gij dan niet waakt, zo zal Ik over u komen als een dief, en gij zult niet weten op wat ure Ik over u komen zal.

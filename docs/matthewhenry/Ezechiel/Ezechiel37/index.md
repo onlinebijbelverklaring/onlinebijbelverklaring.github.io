@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 37
+
 1. DE hand des HEEREN was op mij, en de HEERE voerde mij uit in den geest, en zette mij neder in het midden ener vallei; dezelve nu was vol beenderen.
 2. En Hij deed mij bij dezelve voorbijgaan geheel rondom; en zie, er waren zeer vele op den grond der vallei; en zie, zij waren zeer dor.
 3. En Hij zeide tot mij: Mensenkind, zullen deze beenderen levend worden? En ik zeide: Heere HEERE, Gij weet het.

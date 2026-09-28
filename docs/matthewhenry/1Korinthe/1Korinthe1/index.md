@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 1
+
 1. PAULUS, een geroepen apostel van JEZUS CHRISTUS door den wil Gods, en Sósthenes, de broeder,
 2. Aan de gemeente Gods die te Korinthe is, den geheiligden in Christus Jezus, den geroepen heiligen, met allen die den Naam van onzen Heere Jezus Christus aanroepen in alle plaats, beide hun en onzen Heere:
 3. Genade zij u en vrede van God onzen Vader en den Heere Jezus Christus.

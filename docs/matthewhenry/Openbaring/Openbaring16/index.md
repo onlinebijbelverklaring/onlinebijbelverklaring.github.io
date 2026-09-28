@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 16
+
 1. EN ik hoorde een grote stem uit den tempel, zeggende tot de zeven engelen: Gaat heen en giet de zeven fiolen van den toorn Gods uit op de aarde.
 2. En de eerste ging heen en goot zijn fiool uit op de aarde; en er werd een kwaad en boos gezweer aan de mensen die het merkteken van het beest hadden en die zijn beeld aanbaden.
 3. En de tweede engel goot zijn fiool uit in de zee, en zij werd bloed als van een dode; en alle levende ziel is gestorven in de zee.

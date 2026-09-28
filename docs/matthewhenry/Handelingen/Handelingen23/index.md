@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 23
+
 1. EN Paulus de ogen op den Raad houdende, zeide: Mannen broeders, ik heb met alle goede consciëntie voor God gewandeld tot op dezen dag.
 2. Maar de hogepriester Ananías beval dengenen die bij hem stonden, dat zij hem op den mond zouden slaan.
 3. Toen zeide Paulus tot hem: God zal u slaan, gij gewitte wand. Zit gij ook om mij te oordelen naar de wet, en beveelt gij tegen de wet, dat men mij zal slaan?

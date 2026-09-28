@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 62
+
 1. EEN psalm van David, voor den opperzangmeester, over Jedúthun.
 2. Immers is mijn ziel stil tot God; van Hem is mijn heil.
 3. Immers is Hij mijn Rotssteen en mijn Heil, mijn hoog Vertrek, ik zal niet grotelijks wankelen.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 137
+
 1. AAN de rivieren van Babel, daar zaten wij, ook weenden wij, als wij gedachten aan Sion.
 2. Wij hebben onze harpen gehangen aan de wilgen die daarin zijn.
 3. Als aldaar die ons gevangen hielden, de woorden eens lieds van ons begeerden, en zij die ons overhoop geworpen hadden, vreugde, zeggende: Zingt ons een van de liederen Sions.

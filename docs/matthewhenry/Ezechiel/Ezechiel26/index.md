@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 26
+
 1. EN het gebeurde in het elfde jaar, op den eerste der maand, dat des HEEREN woord tot mij geschiedde, zeggende:
 2. Mensenkind, daarom dat Tyrus van Jeruzalem gezegd heeft: Heah! zij is verbroken, de poort der volken; zij is tot mij omgewend; ik zal vervuld worden, zij is verwoest!
 3. Daarom, alzo zegt de Heere HEERE: Zie, Ik wil aan u, o Tyrus, en Ik zal vele heidenen tegen u doen opkomen, alsof Ik de zee met haar golven deed opkomen.

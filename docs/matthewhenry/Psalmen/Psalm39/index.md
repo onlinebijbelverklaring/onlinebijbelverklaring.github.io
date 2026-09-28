@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 39
+
 1. EEN psalm van David, voor den opperzangmeester, voor Jedúthun.
 2. Ik zeide: Ik zal mijn wegen bewaren, dat ik niet zondige met mijn tong, ik zal mijn mond met een breidel bewaren; terwijl de goddeloze nog tegenover mij is.
 3. Ik was verstomd door stilzwijgen, ik zweeg van het goede; maar mijn smart werd verzwaard.

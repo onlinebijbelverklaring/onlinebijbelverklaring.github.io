@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 12
+
 1. Dit nu zijn de koningen des lands, die de kinderen Israëls geslagen hebben, en hun land erfelijk bezaten, aan gene zijde van de Jordaan, tegen de opgang der zon; van de beek Arnon af tot de berg Hermon, en het ganse vlakke veld tegen het oosten: 
 2. Sihon, de koning der Amorieten, die te Hesbon woonde; die van Aroer af heerste, welke aan de oever der beek Arnon is, en over het midden der beek en de helft van Gilead, en tot aan de beek Jabbok, de landpaal der kinderen Ammons; 
 3. En over het vlakke veld tot aan de zee van Cinneroth tegen het oosten, en tot aan de zee des vlakken velds, de Zoutzee, tegen het oosten, op de weg naar Beth-jesimoth; en van het zuiden beneden Asdoth-pisga. 

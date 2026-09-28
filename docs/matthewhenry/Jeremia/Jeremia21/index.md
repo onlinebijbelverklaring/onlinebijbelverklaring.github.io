@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 21
+
 1. HET woord dat van den HEERE geschied is tot Jeremía, als de koning Zedekía tot hem zond Pashur, den zoon van Malchía, en Zefánja, den zoon van Maäséja, den priester, zeggende:
 2. Vraag toch den HEERE voor ons, want Nebukadrézar, de koning van Babel, strijdt tegen ons; misschien zal de HEERE met ons doen naar al Zijn wonderen, dat hij van ons optrekke.
 3. Toen zeide Jeremía tot hen: Zo zult gijlieden tot Zedekía zeggen:

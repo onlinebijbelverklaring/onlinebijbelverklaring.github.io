@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 24
+
 1. Abraham nu was oud en wel bedaagd; en de HEERE had Abraham in alles gezegend. 
 2. Zo sprak Abraham tot zijn knecht, de oudste van zijn huis, regerende over alles, wat hij had: Leg toch uw hand onder mijn heup, 
 3. Opdat ik u doe zweren bij de HEERE, de God des hemels, en de God der aarde, dat gij voor mijn zoon geen vrouw nemen zult van de dochteren der Kanaänieten, in het midden van welke ik woon; 

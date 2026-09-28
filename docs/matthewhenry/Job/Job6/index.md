@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 6
+
 1. MAAR Job antwoordde en zeide:
 2. Och, of mijn verdriet recht gewogen werd, en men mijn ellende tezamen in een weegschaal ophief.
 3. Want het zou nu zwaarder zijn dan het zand der zeeën; daarom worden mijn woorden opgezwolgen.

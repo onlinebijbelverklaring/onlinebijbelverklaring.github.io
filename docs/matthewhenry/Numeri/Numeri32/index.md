@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 32
+
 1. De kinderen van Ruben nu hadden veel vee, en de kinderen van Gad hadden machtig veel; en zij bezagen het land Jaezer, en het land van Gilead, en ziet, deze plaats was een plaats voor vee. 
 2. Zo kwamen de kinderen van Gad en de kinderen van Ruben, en spraken tot Mozes, en tot Eleazar, de priester, en tot de oversten der vergadering, zeggende: 
 3. Ataroth, en Dibon, en Jaezer, en Nimra, en Hesbon, en Eleale, en Schebam, en Nebo, en Behon; 

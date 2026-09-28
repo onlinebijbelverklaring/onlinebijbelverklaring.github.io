@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 20
+
 1. IN het jaar toen Tartan naar Asdod kwam, als hem Sargon, de koning van Assyrië, gezonden had, toen hij krijg voerde tegen Asdod en het innam;
 2. Terzelfder tijd sprak de HEERE door den dienst van Jesaja, den zoon van Amoz, zeggende: Ga heen en ontbind den zak van uw lendenen, en doe uw schoenen van uw voeten. En hij deed alzo, gaande naakt en barrevoets.
 3. Toen zeide de HEERE: Gelijk als Mijn knecht Jesaja naakt en barrevoets wandelt, drie jaar, tot een teken en wonder over Egypte en over Morenland,

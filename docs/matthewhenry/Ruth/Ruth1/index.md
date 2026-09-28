@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ruth 1
+
 1. In de dagen, als de richters richtten, zo geschiedde het, dat er honger in het land was; daarom toog een man van Bethlehem-Juda, om als vreemdeling te verkeren in de velden Moabs, hij, en zijn huisvrouw, en zijn twee zonen. 
 2. De naam nu dezes mans was Elimelech, en de naam zijner huisvrouw Naomi, en de naam zijner twee zonen Machlon en Chiljon, Efrathers, van Bethlehem-juda; en zij kwamen in de velden Moabs, en bleven aldaar. 
 3. En Elimelech, de man van Naomi, stierf; maar zij werd overgelaten met haar twee zonen. 

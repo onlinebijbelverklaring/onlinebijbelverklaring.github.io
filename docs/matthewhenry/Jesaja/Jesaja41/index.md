@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 41
+
 1. ZWIJGT voor Mij, gij eilanden, en laat de volken de kracht vernieuwen; laat ze toetreden, laat ze dan spreken; laat ons tezamen ten gerichte naderen.
 2. Wie heeft van den opgang dien rechtvaardige verwekt? Heeft hem geroepen op zijn voet, de heidenen voor zijn aangezicht gegeven, en gemaakt dat hij over koningen heerste? Heeft hen aan zijn zwaard gegeven als stof, aan zijn boog als een voortgedreven stoppel?
 3. Dat hij hen najaagde en doortrok met vrede, door een pad hetwelk hij met zijn voeten niet gegaan had?

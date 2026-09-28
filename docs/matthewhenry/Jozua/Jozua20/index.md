@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 20
+
 1. Verder sprak de HEERE tot Jozua, zeggende: 
 2. Spreek tot de kinderen Israëls, zeggende: Geeft voor ulieden de vrijsteden, waarvan Ik met ulieden gesproken heb door de dienst van Mozes. 
 3. Dat daarhenen vliede de doodslager, die een ziel door dwaling, niet met wetenschap, verslaat; opdat zij ulieden zijn tot een toevlucht voor de bloedwreker. 

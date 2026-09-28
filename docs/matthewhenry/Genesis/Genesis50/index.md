@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 50
+
 1. Toen viel Jozef op zijns vaders aangezicht, en hij weende over hem, en kuste hem. 
 2. En Jozef gebood zijn knechten, de medicijnmeesters, dat zij zijn vader balsemen zouden; en de medicijnmeesters balsemden Israël. 
 3. En veertig dagen werden aan hem vervuld; want alzo werden vervuld de dagen dergenen, die gebalsemd werden; en de Egyptenaars beweenden hem zeventig dagen. 

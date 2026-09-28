@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 9
+
 1. OCH, dat mijn hoofd water ware en mijn oog een springader van tranen! Zo zou ik dag en nacht bewenen de verslagenen der dochter mijns volks.
 2. Och, dat ik in de woestijn een herberg der wandelaars had! Zo zou ik mijn volk verlaten en van hen trekken; want zij zijn allen overspelers, een trouweloze hoop.
 3. En zij spannen hun tong als hun boog tot leugen; zij worden geweldig in het land, doch niet tot waarheid; want zij gaan voort van boosheid tot boosheid, maar Mij kennen zij niet, spreekt de HEERE.

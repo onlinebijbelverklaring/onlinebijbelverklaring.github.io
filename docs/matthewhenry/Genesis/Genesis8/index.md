@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 8
+
 1. En God gedacht aan Noach, en aan al het gedierte, en aan al het vee, dat met hem in de ark was; en God deed een wind over de aarde doorgaan, en de wateren werden stil. 
 2. Ook werden de fonteinen des afgronds, en de sluizen des hemels gesloten, en de plasregen van de hemel werd opgehouden. 
 3. Daartoe keerden de wateren weder van boven de aarde, heen en weder vloeiende, en de wateren namen af ten einde van honderd en vijftig dagen. 

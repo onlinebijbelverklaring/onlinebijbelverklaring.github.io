@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 40
+
 1. HET woord dat van den HEERE geschied is tot Jeremía, nadat Nebuzáradan, de overste der trawanten, hem had laten gaan van Rama; als hij hem had laten halen, daar hij met ketenen gebonden was in het midden aller gevangenen van Jeruzalem en Juda, die naar Babel gevankelijk werden weggevoerd.
 2. Want de overste der trawanten liet Jeremía halen, en zeide tot hem: De HEERE uw God heeft dit kwaad over deze plaats gesproken;
 3. En de HEERE heeft het doen komen, en gedaan gelijk als Hij gesproken had; want gijlieden hebt gezondigd tegen den HEERE, en Zijner stem niet gehoorzaamd; daarom is ulieden deze zaak geschied.

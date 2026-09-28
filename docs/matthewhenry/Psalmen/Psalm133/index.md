@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 133
+
 1. EEN lied Hammaäloth, van David. Zie, hoe goed en hoe lieflijk is het, dat broeders ook tezamen wonen.
 2. Het is gelijk de kostelijke olie op het hoofd, nederdalende op den baard, den baard van Aäron, die nederdaalt tot op den zoom zijner klederen.
 3. Het is gelijk de dauw van Hermon, en die nederdaalt op de bergen van Sion, want de HEERE gebiedt aldaar den zegen, en het leven tot in der eeuwigheid.

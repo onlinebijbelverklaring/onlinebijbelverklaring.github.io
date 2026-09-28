@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 12
+
 DE TWISTENDE MIRJAM WORDT MELAATS.
 
 ***1. Mirjam nu, Mozes’ zuster, de profetes (Exodus. 15:20), sprak, en ook haar broeder Aäron, de Hogepriester, die door haar meegesleept werd, tegen Mozes, die zij niet alleen door de bloedbanden, maar ook door deroeping, die de Heere hun opgedragen had, zo nauw verwant waren, minachtende woorden, ter oorzake van de vrouw, de Cuschitische, die hij genomen had, en stelden hem daarmee aan het volk voor als een, die de hoge rang, welke hij bekleedde, onwaardig was; want hij had een Cuschitische tot vrouw genomen. 1)***

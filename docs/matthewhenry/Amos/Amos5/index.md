@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 5
+
 1. Hoort dit woord, dat Ik over ulieden ophef, een klaaglied, o huis Israëls! 
 2. De jonkvrouw Israëls is gevallen, zij zal niet weder opstaan; zij is verlaten op haar land, er is niemand, die haar opricht. 
 3. Want zo zegt de Heere HEERE: De stad, die uitgaat met duizend, zal honderd overhouden, en die uitgaat met honderd, zal tien overhouden, in het huis Israëls. 

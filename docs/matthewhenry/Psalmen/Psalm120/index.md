@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 120
+
 1. EEN lied Hammaäloth. Ik heb tot den HEERE geroepen in mijn benauwdheid, en Hij heeft mij verhoord.
 2. O HEERE, red mijn ziel van de valse lippen, van de bedrieglijke tong.
 3. Wat zal u de bedrieglijke tong geven, of wat zal zij u toevoegen?

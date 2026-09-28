@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 27
+
 1. EN Job ging voort zijn spreuk op te heffen, en zeide:
 2. Zo waarachtig als God leeft, Die mijn recht weggenomen heeft, en de Almachtige, Die mijn ziel bitterheid heeft aangedaan;
 3. Zolang als mijn adem in mij zal zijn, en het geblaas Gods in mijn neus;

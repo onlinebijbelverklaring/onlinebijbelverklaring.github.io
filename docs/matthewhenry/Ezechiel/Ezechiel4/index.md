@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 4
+
 1. EN gij, mensenkind, neem u een tichelsteen, en leg dien voor uw aangezicht, en bewerp daarop de stad Jeruzalem.
 2. En maak een belegering tegen haar, en bouw tegen haar sterkten, en werp tegen haar een wal op, en stel legers tegen haar, en zet tegen haar stormrammen rondom.
 3. Verder, neem gij u een ijzeren pan en stel ze tot een ijzeren muur tussen u en tussen die stad; en richt uw aangezicht tegen haar, dat zij in belegering kome, en gij zult ze belegeren. Dit zij den huize Israëls een teken.

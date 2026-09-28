@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 52
+
 1. ZEDEKÍA was een en twintig jaar oud als hij koning werd, en hij regeerde elf jaar te Jeruzalem; en de naam zijner moeder was Hamútal, een dochter van Jeremía, van Libna.
 2. En hij deed wat kwaad was in de ogen des HEEREN, naar alles wat Jójakim gedaan had.
 3. Want het geschiedde om den toorn des HEEREN tegen Jeruzalem en Juda, totdat Hij hen van Zijn aangezicht weggeworpen had; en Zedekía rebelleerde tegen den koning van Babel.

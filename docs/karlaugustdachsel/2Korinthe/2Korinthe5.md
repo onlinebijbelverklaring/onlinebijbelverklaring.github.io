@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 5
+
 TROOST VAN DE GELOVIGEN IN ALLERLEI LEED. KRACHT VAN HET EVANGELIE
 
 ***1. Want wij weten, omdat wij degenen zijn, die niet op het zichtbare, maar op het onzichtbare zien (Hoofdstuk 4: 18), dat, als ons aardse huis deze tegenwoordige lichamelijke tabernakel (2 Petrus 1: 13 v. Wijsh. 9: 15 gebroken wordt, hetgeen geschieden zal, als wij nog vóór het begin van de wederkomst van Christus de dood moeten ondergaan (Hoofdstuk 4: 10 v.), niet ongelukkig zijn. Wij weten dat wij in ons toekomstig opstandingslichaam een gebouw van God hebben, door Hem de Schepper teweeggebracht, in de plaats van hetgeen wij ontvangen hadden door middel van de voortplanting van het menselijk geslacht, een huis, niet met handen gemaakt en daarom ook niet tot weer afbraak bestemd, maar een huis, dat eeuwig (2 Tim. 4: 8) is in de hemel, vanwaar het ons bij de opstanding ten deel wordt (vgl. Openbaring 21: 2).***

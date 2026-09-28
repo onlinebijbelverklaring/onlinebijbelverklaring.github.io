@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 16
+
 1. EN Hij zeide ook tot Zijn discipelen: Er was een zeker rijk mens, welke een rentmeester had; en deze werd bij hem verklaagd, als die zijn goederen doorbracht.
 2. En hij riep hem en zeide tot hem: Hoe hoor ik dit van u? Geef rekenschap van uw rentmeesterschap; want gij zult niet meer kunnen rentmeester zijn.
 3. En de rentmeester zeide bij zichzelven: Wat zal ik doen, dewijl mijn heer dit rentmeesterschap van mij neemt? Graven kan ik niet; te bedelen schaam ik mij.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jozua 21
+
 1. Toen naderden de hoofden der vaderen van de Levieten tot Eleazar, de priester, en tot Jozua, de zoon van Nun, en tot de hoofden der vaderen van de stammen der kinderen Israëls; 
 2. En zij spraken tot hen, te Silo, in het land Kanaän, zeggende: De HEERE heeft geboden door de dienst van Mozes, dat men ons steden te bewonen geven zou, en haar voorsteden voor onze beesten. 
 3. Daarom gaven de kinderen Israëls aan de Levieten van hun erfdeel, naar de mond des HEEREN, deze steden en de voorsteden derzelve. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 2
+
 VAN DE SABBATH, DES MENSEN WEZENLIJKE BESTANDDELEN, HET PARADIJS, HET GEBOD VAN GOD, HET HUWELIJK.
 
 ## IV. Vers 1-3

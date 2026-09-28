@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Amos 7
+
 1. De Heere HEERE deed mij aldus zien; en ziet, Hij formeerde sprinkhanen, in het begin des opkomens van het nagras; en ziet, het was het nagras, na des konings afmaaiingen. 
 2. En het geschiedde, als zij het kruid des lands geheel zouden hebben afgegeten, dat ik zeide: Heere HEERE! vergeef toch; wie zou ervan Jakob blijven staan; want hij is klein! 
 3. Toen berouwde zulks de HEERE; het zal niet geschieden, zeide de HEERE. 

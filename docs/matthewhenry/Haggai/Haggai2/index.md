@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Haggai 2
+
 1. Op de vier en twintigsten dag der maand, in de zesde maand, in het tweede jaar van de koning Darius. 
 2. In de zevende maand, op de een en twintigsten der maand, geschiedde het woord des HEEREN door de dienst van de profeet Haggaï, zeggende:
 3. Spreek nu tot Zerubbabel, de zoon van Sealthiel, de vorst van Juda, en tot Josua, de zoon van Jozadak, de hogepriester, en tot het overblijfsel des volks, zeggende:

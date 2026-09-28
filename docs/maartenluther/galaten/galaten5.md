@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 5
+
 Paulus, het einde van zijn Brief naderende, redeneert heftig en vurig, om de leer des geloofs en van de Christelijke vrijheid te verdedigen tegen de valse apostelen, die vijanden en vervolgers van die leer zijn, tegen wie hij louter bliksemen van woorden richt en werpt, om hen temeer te werpen. Tegelijk moedigt hij de Galaten aan, dat zij de verderfelijke leer van die mensen als een soort pest ontvlieden zullen. En onder het aansporen bedreigt hij ze, en hij belooft, en laat niets onbeproefd, om hen te bewaren bij die vrijheid, hun door Christus verworven, zeggende:
 
 ## Vers 1 

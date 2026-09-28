@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 39
+
 1. TE dien tijde zond Meródach Báladan, de zoon van Báladan, de koning van Babel, brieven en een geschenk aan Hizkía; want hij had gehoord dat hij krank geweest en weder sterk geworden was.
 2. En Hizkía verblijdde zich over hen en hij toonde hun zijn schathuis, het zilver en het goud, en de specerijen en de beste olie, en zijn ganse wapenhuis en al wat gevonden werd in zijn schatten; er was geen ding in zijn huis, noch in zijn ganse heerschappij, dat Hizkía hun niet toonde.
 3. Toen kwam de profeet Jesaja tot den koning Hizkía, en zeide tot hem: Wat hebben die mannen gezegd en vanwaar zijn zij tot u gekomen? En Hizkía zeide: Zij zijn uit verren lande tot mij gekomen, uit Babel.

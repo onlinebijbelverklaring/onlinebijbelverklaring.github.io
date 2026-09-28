@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 124
+
 1. EEN lied Hammaäloth, van David. Tenware de HEERE, Die bij ons geweest is, zegge nu Israël,
 2. Tenware de HEERE, Die bij ons geweest is, als de mensen tegen ons opstonden;
 3. Toen zouden zij ons levend verslonden hebben, als hun toorn tegen ons ontstak;

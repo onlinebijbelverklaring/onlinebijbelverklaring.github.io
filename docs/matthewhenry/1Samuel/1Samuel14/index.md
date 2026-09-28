@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 14
+
 1. Het geschiedde nu op een dag, dat Jonathan, de zoon van Saul, tot de jongen, die zijn wapenen droeg, zeide: Kom, en laat ons tot de bezetting der Filistijnen overgaan, welke aan gene zijde is; doch hij gaf het zijn vader niet te kennen. 
 2. Saul nu zat aan het uiterste van Gibea onder de granatenboom, die te Migron was; en het volk, dat bij hem was, was omtrent zeshonderd man. 
 3. En Ahia, de zoon van Ahitub, de broeder van Ikabod, de zoon van Pinehas, de zoon van Eli, was priester des HEEREN, te Silo, dragende de efod; doch het volk wist niet, dat Jonathan heengegaan was. 

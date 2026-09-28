@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 20
+
 1. TOEN antwoordde Zofar, de Naämathiet, en zeide:
 2. Daarom doen mijn gedachten mij antwoorden, en overzulks is mijn verhaasten in mij.
 3. Ik heb aangehoord een bestraffing die mij schande aandoet; maar de Geest zal uit mijn verstand voor mij antwoorden.

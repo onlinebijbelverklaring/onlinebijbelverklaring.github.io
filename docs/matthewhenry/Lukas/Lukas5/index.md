@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 5
+
 1. EN het geschiedde als de schare op Hem aandrong om het Woord Gods te horen, dat Hij stond bij het Meer Gennésaret.
 2. En Hij zag twee schepen aan den oever van het meer liggende, en de vissers waren daaruit gegaan en spoelden de netten.
 3. En Hij ging in een van die schepen, hetwelk van Simon was, en bad hem dat hij een weinig van het land afstak; en nederzittende leerde Hij de scharen uit het schip.

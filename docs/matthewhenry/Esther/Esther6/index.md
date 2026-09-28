@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Esther 6
+
 1. IN denzelven nacht was de slaap van den koning geweken; en hij zeide dat men het boek der gedachtenissen, de kronieken, brengen zou, en zij werden in de tegenwoordigheid des konings gelezen.
 2. En men vond geschreven dat Mórdechai had te kennen gegeven van Bigthána en Theres, twee kamerlingen des konings, uit de dorpelwachters, die de hand zochten te leggen aan den koning Ahasvéros.
 3. Toen zeide de koning: Wat eer en verhoging is Mórdechai hierover gedaan? En de jongelingen des konings, zijn dienaars, zeiden: Aan hem is niets gedaan.

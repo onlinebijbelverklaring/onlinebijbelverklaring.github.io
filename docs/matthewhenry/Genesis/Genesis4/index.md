@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 4
+
 1. En Adam bekende Heva, zijn huisvrouw, en zij werd zwanger, en baarde, Kain, en zeide: Ik heb een man van de HEERE verkregen! 
 2. En zij voer voort te baren zijn broeder Habel; en Habel werd een schaapherder, en Kain werd een landbouwer. 
 3. En het geschiedde ten einde van enige dagen, dat Kain van de vrucht des lands de HEERE offer bracht. 

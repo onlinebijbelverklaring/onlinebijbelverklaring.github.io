@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 19
+
 1. En die twee engelen kwamen te Sodom in de avond; en Lot zat in de poort te Sodom; en als Lot hen zag, stond hij op hun tegemoet, en boog zich met het aangezicht ter aarde. 
 2. En hij zeide: Ziet nu, mijne heren! keert toch in ten huize van uw knecht, en vernacht, en wast uw voeten; en gij zult vroeg opstaan, en gaan uws weegs. En zij zeiden: Neen, maar wij zullen op de straat vernachten. 
 3. En hij hield bij hen zeer aan, zodat zij tot hem inkeerden, en kwamen in zijn huis; en hij maakte hun een maaltijd, en bakte ongezuurde koeken, en zij aten. 

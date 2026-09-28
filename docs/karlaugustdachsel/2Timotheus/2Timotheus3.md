@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Timotheus 3
+
 OVER DE ZWARE TIJDEN VAN DE LAATSTE DAGEN EN HET GROTE NUT VAN DE HEILIGE SCHRIFT
 
 ***1. En a) weet dit, dat in de laatste dagen, die aan de terugkomst van Christus onmiddellijk voorafgaan (2 Petrus 3: 3 Judas 1: 18) ontstaan zullen zware tijden, wat de toestand aangaat van het dan levend mensdom (Efeze 5: 16).***

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 35
+
 1. Toen deed Mozes de ganse vergadering der kinderen Israëls verzamelen, en zeide tot hen: Dit zijn de woorden, die de HEERE geboden heeft, dat men ze doe. 
 2. Zes dagen zal men het werk doen; maar op de zevenden dag zal ulieden heiligheid zijn, een sabbat der rust de HEERE; al wie daarop werk doet, zal gedood worden. 
 3. Gij zult geen vuur aansteken in enige uwer woningen op de sabbatdag. 

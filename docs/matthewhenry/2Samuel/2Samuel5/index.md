@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 5
+
 1. Toen kwamen alle stammen van Israël tot David te Hebron; en zij spraken, zeggende: Zie, wij, uw gebeente en uw vlees zijn wij. 
 2. Daartoe ook te voren, toen Saul koning over ons was, waart gij Israël uitvoerende en inbrengende; ook heeft de HEERE tot u gezegd: Gij zult Mijn volk Israël weiden, en gij zult tot een voorganger zijn over Israël. 
 3. Alzo kwamen alle oudsten van Israël tot de koning te Hebron; en de koning David maakte een verbond met hen te Hebron, voor het aangezicht des HEEREN; en zij zalfden David tot koning over Israël. 

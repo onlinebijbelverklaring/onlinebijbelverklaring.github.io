@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 15
+
 1. In het achttiende jaar nu van de koning Jerobeam, de zoon van Nebat, werd Abiam koning over Juda. 
 2. Hij regeerde drie jaren te Jeruzalem; en de naam zijner moeder was Maacha, een dochter van Abisalom. 
 3. En hij wandelde in al de zonden zijns vaders, die hij voor hem gedaan had; en zijn hart was niet volkomen met de HEERE, zijn God, gelijk het hart van zijn vader David. 

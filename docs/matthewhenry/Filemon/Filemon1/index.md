@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Filemon 1
+
 1. PAULUS, een gevangene van CHRISTUS JEZUS, en Timótheüs, de broeder, aan Filémon, den geliefde, en onzen medearbeider,
 2. En aan Appia, de geliefde, en aan Archippus, onzen medestrijder, en aan de gemeente die te uwen huize is:
 3. Genade zij ulieden en vrede van God onzen Vader en den Heere Jezus Christus.

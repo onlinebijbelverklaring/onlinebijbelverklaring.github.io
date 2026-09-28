@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 15
+
 1. EEN zacht antwoord keert de grimmigheid af, maar een smartend woord doet den toorn oprijzen.
 2. De tong der wijzen maakt de wetenschap goed, maar de mond der zotten stort overvloediglijk dwaasheid uit.
 3. De ogen des HEEREN zijn in alle plaats, beschouwende de kwaden en de goeden.

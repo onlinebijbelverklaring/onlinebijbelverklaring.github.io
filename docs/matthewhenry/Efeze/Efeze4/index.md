@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 4
+
 1. ZO bid ik u dan, ik, de gevangene in den Heere, dat gij wandelt waardiglijk der roeping met welke gij geroepen zijt;
 2. Met alle ootmoedigheid en zachtmoedigheid, met lankmoedigheid, verdragende elkander in liefde;
 3. U benaarstigende te behouden de enigheid des Geestes door den band des vredes.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 14
+
 1. EN het geschiedde te Ikónium dat zij tezamen gingen in de synagoge der Joden, en alzo spraken, dat een grote menigte beide van Joden en Grieken geloofde.
 2. Maar de Joden die ongehoorzaam waren, verwekten en verbitterden de zielen der heidenen tegen de broeders.
 3. Zij verkeerden dan aldaar een langen tijd, vrijmoediglijk sprekende in den Heere, Die getuigenis gaf aan het woord Zijner genade, en gaf dat tekenen en wonderen geschiedden door hun handen.

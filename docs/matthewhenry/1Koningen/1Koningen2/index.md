@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 2
+
 1. Als nu de dagen van David nabij waren, dat hij sterven zou, zo gebood hij zijn zoon Salomo, zeggende: 
 2. Ik ga heen in de weg der ganse aarde, zo wees sterk, en wees een man. 
 3. En neem waar de wacht des HEEREN, uws Gods, om te wandelen in Zijn wegen, om te onderhouden Zijn inzettingen, en Zijn geboden, en Zijn rechten, en Zijn getuigenissen, gelijk geschreven is in de wet van Mozes; opdat gij verstandelijk handelt in al wat gij doen zult, en al waarheen gij u wenden zult; 

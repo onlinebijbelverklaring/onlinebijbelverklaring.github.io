@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 22
+
 1. EEN psalm van David, voor den opperzangmeester, op Aijéleth hasscháchar.
 2. Mijn God, Mijn God, waarom hebt Gij Mij verlaten, verre zijnde van Mijn verlossing, van de woorden Mijns brullens?
 3. Mijn God, ik roep des daags, maar Gij antwoordt niet; en des nachts, en ik heb geen stilte.

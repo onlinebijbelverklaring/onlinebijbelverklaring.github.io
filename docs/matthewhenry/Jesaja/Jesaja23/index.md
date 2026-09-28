@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 23
+
 1. DE last van Tyrus. Huilt, gij schepen van Tarsis, want zij is verwoest, dat er geen huis meer is, dat niemand er meer ingaat; uit het land Chittim is het aan hen openbaar geworden.
 2. Zwijgt, gij inwoners des eilands, gij die de kooplieden van Sidon, over zee varende, vervulden,
 3. En wier inkomst was het zaad van den Sichor over de grote wateren, de oogst der rivier; en zij was de markt der heidenen.

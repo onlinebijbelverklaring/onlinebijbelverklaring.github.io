@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 4
+
 1. Maar de kinderen Israëls voeren voort te doen, dat kwaad was in de ogen des HEEREN, als Ehud gestorven was. 
 2. Zo verkocht hen de HEERE in de hand van Jabin, koning der Kanaänieten, die te Hazor regeerde; en zijn krijgsoverste was Sisera; dezelve nu woonde in Haroseth der heidenen. 
 3. Toen riepen de kinderen Israëls tot de HEERE; want hij had negenhonderd ijzeren wagenen, en hij had de kinderen Israëls met geweld onderdrukt, twintig jaren. 

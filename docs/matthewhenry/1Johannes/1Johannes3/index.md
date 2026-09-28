@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 3
+
 1. Ziet, hoe grote liefde ons de Vader gegeven heeft, namelijk dat wij kinderen Gods genaamd zouden worden. Daarom kent ons de wereld niet, omdat zij Hem niet kent. 
 2. Geliefden, nu zijn wij kinderen Gods, en het is nog niet geopenbaard, wat wij zijn zullen. Maar wij weten, dat als Hij zal geopenbaard zijn, wij Hem zullen gelijk wezen; want wij zullen Hem zien, gelijk Hij is. 
 3. En een iegelijk, die deze hoop op Hem heeft, die reinigt zichzelf, gelijk Hij rein is. 

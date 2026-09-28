@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Numeri
+
 HET VIERDE BOEK VAN MOZES, NUMERI. 
 
 (Getallen).

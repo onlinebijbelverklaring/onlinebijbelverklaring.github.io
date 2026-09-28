@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 8
+
 1. De bazuin aan uw mond; hij komt als een arend tegen het huis des HEEREN; omdat zij Mijn verbond hebben overtreden, en zijn tegen Mijn wet afvallig geworden. 
 2. Dan zullen zij tot Mij roepen: Mijn God! wij, Israël, kennen U. 
 3. Israël heeft het goede verstoten; de vijand zal hem vervolgen. 

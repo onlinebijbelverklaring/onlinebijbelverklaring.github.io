@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 26
+
 1. IN het begin des koninkrijks van Jójakim, den zoon van Josía, koning van Juda, geschiedde dit woord van den HEERE, zeggende:
 2. Zo zegt de HEERE: Sta in het voorhof van het huis des HEEREN, en spreek tot alle steden van Juda, die komen om aan te bidden in het huis des HEEREN, al de woorden die Ik u geboden heb tot hen te spreken; doe er niet één woord af.
 3. Misschien zullen zij horen en zich bekeren, een iegelijk van zijn bozen weg; zo zou Ik berouw hebben over het kwaad dat Ik hun denk te doen vanwege de boosheid hunner handelingen.

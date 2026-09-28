@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Haggai 1
+
 1. In het tweede jaar van de koning Darius, in de zesde maand, op de eersten dag der maand, geschiedde het woord des HEEREN, door de dienst van Haggaï, de profeet, tot Zerubbabel, de zoon van Sealthiël, de vorst van Juda, en tot Josua, de zoon van Jozadak, de hogepriester, zeggende: 
 2. Alzo spreekt de HEERE der heirscharen zeggende: Dit volk zegt: De tijd is niet gekomen, de tijd, dat des HEEREN huis gebouwd worde. 
 3. En het woord des HEEREN geschiedde door de dienst van de profeet Haggaï, zeggende: 

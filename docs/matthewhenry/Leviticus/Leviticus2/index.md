@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 2
+
 1. Als nu een ziel een offerande van spijsoffer de HEERE zal offeren, zijn offerande zal van meelbloem zijn; en hij zal olie daarop gieten, en wierook daarop leggen. 
 2. En hij zal het brengen tot de zonen van Aäron, de priesters, een van welke daarvan zijn hand vol grijpen zal uit deszelfs meelbloem, en uit deszelfs olie, met al deszelfs wierook; en de priester zal deszelfs gedenkoffer aansteken op het altaar; het is een vuuroffer, tot een liefelijken reuk de HEERE. 
 3. Wat nu overblijft van het spijsoffer, zal voor Aäron en zijn zonen zijn; het is een heiligheid der heiligheden van de vuurofferen des HEEREN. 

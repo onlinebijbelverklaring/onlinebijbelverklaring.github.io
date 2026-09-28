@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 11
+
 1. Doe uw deuren open, o Libanon! opdat het vuur uw cederen vertere. 
 2. Huilt, gij dennen! dewijl de cederen gevallen zijn, dewijl die heerlijke bomen verwoest zijn; huilt, gij eiken van Basan! dewijl het sterke woud neergevallen is. 
 3. Er is een stem des gehuils der herderen, dewijl hun heerlijkheid verwoest is; een stem des gebruls der jonge leeuwen, dewijl de hoogmoed van de Jordaan verwoest is. 

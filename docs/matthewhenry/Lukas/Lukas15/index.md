@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Lukas 15
+
 1. EN al de tollenaars en de zondaars naderden tot Hem om Hem te horen.
 2. En de farizeeën en de schriftgeleerden murmureerden, zeggende: Deze ontvangt de zondaars, en eet met hen.
 3. En Hij sprak tot hen deze gelijkenis, zeggende:

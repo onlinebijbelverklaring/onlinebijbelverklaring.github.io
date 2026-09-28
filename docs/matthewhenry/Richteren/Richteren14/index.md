@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 14
+
 1. En Simson ging af naar Thimnath, en gezien hebbende een vrouw te Thimnath, van de dochteren der Filistijnen, 
 2. Zo ging hij opwaarts, en gaf het zijn vader en zijn moeder te kennen, en zeide: Ik heb een vrouw gezien te Thimnath, van de dochteren der Filistijnen; nu dan, neem mij die tot een vrouw. 
 3. Maar zijn vader zeide tot hem, mitsgaders zijn moeder: Is er geen vrouw onder de dochteren uwer broeders, en onder al mijn volk, dat gij heengaat, om een vrouw te nemen van de Filistijnen, die onbesnedenen? En Simson zeide tot zijn vader: Neem mij die, want zij is bevallig in mijn ogen. 

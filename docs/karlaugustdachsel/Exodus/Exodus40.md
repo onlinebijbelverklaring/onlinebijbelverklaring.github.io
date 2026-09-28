@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 40
+
 OPRICHTING EN INWIJDING VAN DE TENT DER SAMENKOMST.
 
 ## I. Vers 1-16

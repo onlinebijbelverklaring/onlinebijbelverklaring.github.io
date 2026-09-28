@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 6
+
 1. De kinderen van Levi waren Gerson, Kahath en Merari. 
 2. De kinderen van Kahath nu waren Amram, Jizhar, en Hebron, en Uzziel. 
 3. En de kinderen van Amram waren Aaron, en Mozes en Mirjam; en de kinderen van Aaron waren Nadab en Abihu, Eleazar en Ithamar. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 2
+
 1. Wee dien, die ongerechtigheid bedenken, en kwaad werken op hun legers; in het licht van de morgenstond doen zij het, dewijl het in de macht van hunlieder hand is. 
 2. En zij begeren akkers, en roven ze, en huizen, en nemen ze weg; alzo doen zij geweld aan de man en zijn huis, ja, aan een iegelijk en zijn erfenis. 
 3. Daarom, alzo zegt de HEERE: Ziet, Ik denk een kwaad over dit geslacht, waaruit gijlieden uw halzen niet zult uittrekken, en zo rechtop niet gaan; want het zal een boze tijd zijn. 

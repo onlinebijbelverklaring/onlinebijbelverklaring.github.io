@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 23
+
 BILEAM ZEGENT ISRAEL.
 
 ***1. Toen zei Bileam tot Balak, om alles te doen, wat volgens de godsdienstige begrippen van de koning van de Moabieten tot het succes van zijn bedoelingen bevorderlijk kon zijn: Bouw mij hier zeven altaren, en bereid mij hier zeven varren en zeven rammen, 1) die wij de God van Israël ten brandoffer kunnen brengen.***

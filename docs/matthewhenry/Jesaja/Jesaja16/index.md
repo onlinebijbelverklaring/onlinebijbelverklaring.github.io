@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 16
+
 1. ZENDT de lammeren van den heerser des lands van Sela af naar de woestijn heen, tot den berg der dochter Sions.
 2. Anderszins zal het geschieden dat de dochteren van Moab aan de veren van de Arnon zullen zijn, als een zwervende vogel, uit het nest gedreven zijnde.
 3. Brengt een raad aan, houd gericht, maak uw schaduw op het midden van den middag gelijk den nacht; verberg de verdrevenen en meld den omzwervende niet.

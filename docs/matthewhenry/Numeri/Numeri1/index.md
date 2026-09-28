@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 1
+
 1. Voorts sprak de HEERE tot Mozes, in de woestijn van Sinai, in de tent der samenkomst, op de eersten der tweede maand, in het tweede jaar, nadat zij uit Egypteland uitgetogen ware, zeggende: 
 2. Neem op de som van de gehele vergadering der kinderen Israëls, naar hun geslachten, naar het huis hunner vaderen, in het getal der namen, van al wat mannelijk is, hoofd voor hoofd. 
 3. Van twintig jaren oud en daarboven, allen, die ten heire in Israël uittrekken; die zult gij tellen naar hun heiren, gij en Aäron. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 7
+
 1. Ai mij! want ik ben, als wanneer de zomervruchten zijn ingezameld; als wanneer de nalezingen in de wijnoogst geschied zijn; er is geen druif om te eten; mijn ziel begeert vroegrijpe vrucht. 
 2. De goedertierene is vergaan uit het land, en er is niemand oprecht onder de mensen; zij loeren altemaal op bloed, zij jagen, een iegelijk zijn broeder, met een jachtgaren. 
 3. Om met beide handen wel dapper kwaad te doen, zo eist de vorst, en de rechter oordeelt om vergelding; en de grote spreekt de verderving zijner ziel, en zij draaien ze dicht ineen. 

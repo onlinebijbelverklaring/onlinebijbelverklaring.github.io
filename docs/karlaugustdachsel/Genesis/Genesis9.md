@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 9
+
 GOD BEVESTIGT ZIJN VERBOND DOOR DE REGENBOOG.
 
 ***1. En God, daar Hij de aarde volgens Zijn raadsbesluit opnieuw wilde overgeven aan het, als een brandhout uit het vuur geredde (Amos. 4:11) hoopje, zegende Noach en zijn zonen, bijna met dezelfde woorden, waarmee Hij te voren de eerste mens gezegend had (hoofdstuk. 1:28-30), en Hij zei tot hen: Zijt vruchtbaar en vermenigvuldigt en vervult de aarde! 1)***

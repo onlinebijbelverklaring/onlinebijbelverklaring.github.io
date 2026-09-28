@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 4
+
 1. Alzo was de koning Salomo koning over gans Israël. 
 2. En deze waren de vorsten, die hij had: Azaria, de zoon van Zadok, was opperambtman. 
 3. Elihoref, en Ahia, de zoon van Sisa, waren schrijvers; Jósafath, de zoon van Ahilud, was kanselier. 

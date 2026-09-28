@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 5
+
 1. En ik hief mijn ogen weder op, en ik zag; en ziet, een vliegende rol. 
 2. En Hij zeide tot mij: Wat ziet gij? En ik zeide: Ik zie een vliegende rol, welker lengte is van twintig ellen, en haar breedte van tien ellen. 
 3. Toen zeide Hij tot mij: Dit is de vloek, die uitgaan zal over het ganse land; want een iegelijk, die steelt, zal van hier, volgens denzelven vloek, uitgeroeid worden; desgelijks een iegelijk, die valselijk zweert, zal van hier, volgens denzelven vloek, uitgeroeid worden. 

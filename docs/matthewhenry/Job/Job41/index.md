@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 41
+
 1. NIEMAND is zo koen dat hij hem opwekken zou; wie is dan hij die zich voor Mijn aangezicht stellen zou?
 2. Wie heeft Mij voorgekomen, dat Ik hem zou vergelden? Wat onder den gansen hemel is, is Mijne.
 3. Ik zal zijn leden niet verzwijgen, noch het verhaal zijner sterkte, noch de bevalligheid zijner gestaltenis.

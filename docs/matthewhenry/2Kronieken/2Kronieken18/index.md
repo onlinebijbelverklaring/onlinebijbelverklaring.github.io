@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 18
+
 1. Jósafath nu had rijkdom en eer in overvloed; en hij verzwagerde zich aan Achab. 
 2. En ten einde van enige jaren toog hij af tot Achab naar Samaria; en Achab slachtte schapen en runderen voor hem in menigte, en voor het volk, dat met waren hem was; en hij porde hem aan, om op te trekken naar Ramoth in Gilead. 
 3. Want Achab, de koning van Israël, zeide tot Jósafath, de koning van Juda: Zult gij met mij gaan naar Ramoth in Gilead? En hij zeide tot hem: Zo zal ik zijn, gelijk gij zijt, en gelijk uw volk is, zal mijn volk zijn, en wij zullen met u zijn in dezen krijg. 

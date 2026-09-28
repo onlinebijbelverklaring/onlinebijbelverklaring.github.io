@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 17
+
 VERHEERLIJKING OP DE BERG. DE MAANZIEKE GENEZEN. DE DIDRACHMEN.
 
 ## II. Vers 1-13

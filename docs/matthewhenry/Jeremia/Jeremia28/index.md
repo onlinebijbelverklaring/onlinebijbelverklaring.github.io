@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 28
+
 1. VOORTS geschiedde het in hetzelve jaar, in het begin des koninkrijks van Zedekía, koning van Juda, in het vierde jaar, in de vijfde maand, dat Hanánja, zoon van Azur, de profeet, die van Gíbeon was, tot mij sprak in het huis des HEEREN, voor de ogen der priesters en des gansen volks, zeggende:
 2. Zo spreekt de HEERE der heirscharen, de God Israëls, zeggende: Ik heb het juk van den koning van Babel verbroken.
 3. In nog twee volle jaren zal Ik tot deze plaats wederbrengen al de vaten van het huis des HEEREN, die Nebukadnézar, de koning van Babel, uit deze plaats heeft weggenomen en dezelve naar Babel gebracht.

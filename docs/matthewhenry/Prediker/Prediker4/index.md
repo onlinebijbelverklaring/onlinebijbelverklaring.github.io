@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Prediker 4
+
 1. DAARNA wendde ik mij en zag aan al de onderdrukkingen die onder de zon geschieden; en zie, er waren de tranen der verdrukten en dergenen die geen trooster hadden; en aan de zijde hunner verdrukkers was macht, zij daarentegen hadden geen vertrooster.
 2. Dies prees ik de doden, die alrede gestorven waren, boven de levenden, die tot nog toe levend zijn.
 3. Ja, hij is beter dan die beiden, die nog niet geweest is, die niet gezien heeft het boze werk dat onder de zon geschiedt.

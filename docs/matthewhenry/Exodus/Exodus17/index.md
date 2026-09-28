@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 17
+
 1. Daarna toog de ganse vergadering van de kinderen Israëls, naar hun dagreizen, uit de woestijn Sin, op het bevel des HEEREN, en zij legerden zich te Rafidim. Daar nu was geen water voor het volk om te drinken. 
 2. Toen twistte het volk met Mozes, en zeide: Geeft gijlieden ons water, dat wij drinken! Mozes dan zeide tot hen: Wat twist gij met mij? Waarom verzoekt gij de HEERE? 
 3. Toen nu het volk aldaar dorstte naar water, zo murmureerde het volk tegen Mozes, en het zeide: Waartoe hebt gij ons nu uit Egypte doen optrekken, opdat gij mij, en mijn kinderen, en mijn vee, van dorst deedt sterven? 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 20
+
 1. Als de kinderen Israëls, de ganse vergadering, in de woestijn Zin gekomen waren, in de eerste maand, zo bleef het volk te Kades. En Mirjam stierf aldaar, en zij werd aldaar begraven. 
 2. En er was geen water voor de vergadering; toen vergaderden zij zich tegen Mozes en tegen Aäron. 
 3. En het volk twistte met Mozes, en zij spraken, zeggende: Och, of of wij de geest gegeven hadden, toen onze broeders voor het aangezicht des HEEREN de geest gaven! 

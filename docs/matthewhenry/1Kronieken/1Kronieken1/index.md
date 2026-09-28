@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Kronieken 1
+
 1. Adam, Seth, Enos, 
 2. Kenan, Mahalal-el, Jered, 
 3. Henoch, Methusalah, Lamech, 

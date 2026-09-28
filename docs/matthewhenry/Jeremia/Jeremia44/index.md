@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 44
+
 1. HET woord dat tot Jeremía geschiedde aan al de Joden die in Egypteland woonden, die te Migdol woonden, en te Tachpanhes, en te Nof, en in het land Pathros, zeggende:
 2. Alzo zegt de HEERE der heirscharen, de God Israëls: Gij hebt gezien al het kwaad dat Ik gebracht heb over Jeruzalem en over alle steden van Juda; en zie, zij zijn een woestheid te dezen dage, en niemand woont daarin;
 3. Vanwege hun boosheid, die zij gedaan hebben om Mij te tergen, gaande om te roken en andere goden te dienen, die zij niet kenden, zij, gij, noch uw vaders.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 9
+
 1. IK zeg de waarheid in Christus, ik lieg niet (mijn consciëntie mij medegetuigenis gevende door den Heiligen Geest),
 2. Dat het mij een grote droefheid, en mijn hart een gedurige smart is.
 3. Want ik zou zelf wel wensen verbannen te zijn van Christus voor mijn broederen, die mijn maagschap zijn naar het vlees;

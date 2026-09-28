@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Nehemia 4
+
 1. Maar het geschiedde, als Sanballat gehoord had, dat wij de muur bouwden, zo ontstak hij, en werd zeer toornig; en hij bespotte de Joden. 
 2. En sprak in de tegenwoordigheid zijner broederen en van het heir van Samaria, en zeide: Wat doen deze amechtige Joden? Zal men hen laten geworden? Zullen zij offeren? Zullen zij het in een dag voleinden? Zullen zij de steentjes uit de stofhopen levend maken, daar zij verbrand zijn? 
 3. En Tobia, de Ammoniet, was bij hem, en zeide: Al is het, dat zij bouwen, zo er een vos opkwame, hij zou hun stenen muur wel verscheuren. 

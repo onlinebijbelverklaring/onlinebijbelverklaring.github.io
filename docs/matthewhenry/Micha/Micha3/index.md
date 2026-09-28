@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Micha 3
+
 1. Voorts zeide ik: Hoort nu, gij hoofden Jakobs, en gij oversten van het huis Israëls! Betaamt het ulieden niet het recht te weten? 
 2. Zij haten het goede, en hebben het kwade lief; zij roven hun huid van hen af, en hun vlees van hun beenderen. 
 3. Ja, zij zijn het, die het vlees mijns volks eten, en hun huid afstropen, en hun beenderen verbreken; en vaneen leggen, gelijk als in een pot, en als vlees in het midden eens ketels. 

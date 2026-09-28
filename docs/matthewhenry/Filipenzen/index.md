@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Filipenzen
+
 ## EEN VERKLARING MET PRACTISCHE OPMERKINGEN VAN DE BRIEF VAN DE APOSTEL PAULUS AAN DE FILIPPENSEN
 
 Filippi was een voorname stad in het westelijk gedeelte van Macedonië: prooté tés metés Makedonias polis, Hand. 16: 12. Zij was genoemd naar Fillppus, de beroemde koning van Macedonië, die haar herstelde en verfraaide; en werd later tot Romeinse kolonie gemaakt. De nabijheid van deze plaats waren de Canipolis Philippei; merkwaardig door de grote veldslag tussen Julius Caesar en Pompejus de Grote; en die tussen Augustus en Antonius aan een zijde, en Cassius en Brutus aan de andere. Maar voor Christenen heeft zij het meeste belang door deze brief, die geschreven werd toen Paulus te Rome gevangen was in het jaar 62. Paulus schijnt zeer bijzondere liefde hebben gehad voor de gemeente te Filippi; tot de stichting waarvan hijzelf het werktuig geweest was; en hoewel hij de zorg had voor al de gemeenten gevoelde hij buitengewone vaderlijke lief de voor deze. 

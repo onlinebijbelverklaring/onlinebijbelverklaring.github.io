@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 20
+
 1. Toen togen alle kinderen Israëls uit, en de vergadering verzamelde zich, als een enig man, van Dan af tot Ber-seba toe, ook het land van Gilead, tot de HEERE te Mizpa. 
 2. En uit de hoeken des ganse volks stelden zich al de stammen van Israël in de vergadering van het volk Gods, vierhonderd duizend man te voet, die het zwaard uittrokken. 
 3. (De kinderen Benjamins nu hoorden, dat de kinderen Israëls opgetogen naar Mizpa.) En de kinderen Israëls zeiden: Spreekt, hoe is dit kwaad geschied? 

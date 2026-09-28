@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 22
+
 OVER DE VREUGDE VAN HET EEUWIGE LEVEN
 
 ***1. En hij toonde mij (vgl. Ezechiel. 47: 1 vv.) een zuivere rivier, vrij van alle inmenging, een stroom van het water des levens (Hoofdstuk 21: 27), duidelijk als kristal, voortkomend uit de troon van God en van het Lam, van de troon, die God en het Lam toebehoort (Hoofdstuk 5: 13; 7: 15) en de plaats van de tempel inneemt (Hoofdstuk 21: 22 Ezechiel. 47: 11).***

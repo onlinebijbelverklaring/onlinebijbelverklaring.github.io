@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Markus 2
+
 1. EN na sommige dagen is Hij wederom binnen Kapérnaüm gekomen; en het werd gehoord dat Hij in huis was.
 2. En terstond vergaderden daar velen, alzo dat ook zelfs de plaatsen omtrent de deur hen niet meer konden vatten; en Hij sprak het Woord tot hen.
 3. En er kwamen sommigen tot Hem, brengende een geraakte, die van vier gedragen werd.

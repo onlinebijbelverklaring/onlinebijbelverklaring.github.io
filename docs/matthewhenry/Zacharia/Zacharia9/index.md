@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Zacharia 9
+
 1. De last van het woord des HEEREN over het land Chadrach en Damaskus, deszelfs rust; want de HEERE heeft een oog over de mens, gelijk over al de stammen Israëls. 
 2. En ook zal Hij Hamath met dezelve bepalen; Tyrus en Sidon, hoewel zij zeer wijs is; 
 3. En Tyrus zich sterkten gebouwd heeft, en zilver verzameld heeft als stof, en fijn goud als slijk der straten; 

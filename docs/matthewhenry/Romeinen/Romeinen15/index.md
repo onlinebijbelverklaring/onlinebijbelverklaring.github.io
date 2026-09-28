@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 15
+
 1. MAAR wij die sterk zijn, zijn schuldig de zwakheden der onsterken te dragen en niet onszelven te behagen.
 2. Dat dan een iegelijk van ons zijn naaste behage ten goede, tot stichting.
 3. Want ook Christus heeft Zichzelven niet behaagd, maar gelijk geschreven is: De smadingen dergenen die U smaden, zijn op Mij gevallen.

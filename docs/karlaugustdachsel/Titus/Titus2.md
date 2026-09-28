@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Titus 2
+
 LEEFREGELS VOOR ONDERSCHEIDEN STANDEN, TER WILLE VAN GODS GENADE TE VOLGEN
 
 ## II. Vers 1-15

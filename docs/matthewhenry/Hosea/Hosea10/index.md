@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hosea 10
+
 1. Israël is een uitgeledigde wijnstok, hij brengt weder vrucht voor zich; maar naar de veelheid zijner vrucht heeft hij de altaren vermenigvuldigd; naar de goedheid zijns lands, hebben zij de opgerichte beelden goed gemaakt. 
 2. Hij heeft hun hart verdeeld, nu zullen zij verwoest worden; Hij zal hun altaren doorhouwen, Hij zal hun opgerichte beelden verstoren. 
 3. Want nu zullen zij zeggen: Wij hebben geen koning; want wij hebben de HEERE niet gevreesd; wat zou ons dan een koning doen? 

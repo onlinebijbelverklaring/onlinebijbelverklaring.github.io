@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 24
+
 1. Daarna zeide Hij tot Mozes: Klim op tot de HEERE, gij en Aaron, Nadab en Abihu, en zeventig van de oudsten van Israël; en buigt u neder van verre! 
 2. En dat Mozes alleen zich nadere tot de HEERE, maar dat zij niet naderen; en het volk klimme ook niet op met hem. 
 3. Als Mozes kwam en verhaalde aan het volk al de woorden des HEEREN, en al de rechten, toen antwoordde al het volk met een stem, en zij zeiden: Al deze woorden, die de HEERE gesproken heeft, zullen wij doen. 

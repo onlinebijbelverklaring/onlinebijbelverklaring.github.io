@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 46
+
 1. En Israel verreisde met al wat hij had, en hij kwam te Ber-seba, en hij offerde offeranden aan de God van zijn vader Izak. 
 2. En God sprak tot Israel in gezichten des nachts, en zeide: Jakob, Jakob! En hij zeide: Zie, hier ben ik! 
 3. En Hij zeide: Ik ben die God, uws vaders God; vrees niet van af te trekken naar Egypte; want Ik zal u aldaar tot een groot volk zetten. 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 32
+
 1. TOEN hielden die drie mannen op van Job te antwoorden, dewijl hij in zijn ogen rechtvaardig was.
 2. Zo ontstak de toorn van Elihu, den zoon van Barácheël, den Buziet, van het geslacht van Ram; tegen Job werd zijn toorn ontstoken, omdat hij zijn ziel meer rechtvaardigde dan God.
 3. Zijn toorn ontstak ook tegen zijn drie vrienden, omdat zij geen antwoord vindende, nochtans Job verdoemden.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 8
+
 OVER AFGODENOFFER EN HET GEBRUIK VAN DE CHRISTELIJKE VRIJHEID ZONDER ERGERNIS
 
 ## II. Vers 1 - Hoofdstuk 11:1 

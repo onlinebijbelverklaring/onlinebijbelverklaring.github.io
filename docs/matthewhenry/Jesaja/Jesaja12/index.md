@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 12
+
 1. EN te dienzelven dage zult gij zeggen: Ik dank U, HEERE, dat Gij toornig op mij geweest zijt, maar Uw toorn is afgekeerd, en Gij troost mij.
 2. Zie, God is mijn Heil, ik zal vertrouwen en niet vrezen; want de HEERE HEERE is mijn Sterkte en Psalm, en Hij is mij tot Heil geworden.
 3. En gijlieden zult water scheppen met vreugde uit de fonteinen des heils,

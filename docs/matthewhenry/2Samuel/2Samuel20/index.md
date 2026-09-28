@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Samuel 20
+
 1. Toen was daar bij geval een Belials man, wiens naam was Seba, een zoon van Bichri, een man van Jemini; die blies met de bazuin, en zeide: Wij hebben geen deel aan David, en wij hebben geen erfenis aan de zoon van Isaï, een iegelijk naar zijn tenten, o Israël! 
 2. Toen toog alle man van Israël op van achter David, Seba, de zoon van Bichri, achterna; maar de mannen van Juda kleefden hun koning aan, van de Jordaan af tot aan Jeruzalem. 
 3. Toen nu David in zijn huis te Jeruzalem kwam, nam de koning de tien vrouwen, zijn bijwijven, die hij gelaten had, om het huis te bewaren, en deed ze in een huis van bewaring, en onderhield ze, maar ging tot haar niet in. En zij waren opgesloten tot op de dag van haarlieder dood, levende als weduwen. 

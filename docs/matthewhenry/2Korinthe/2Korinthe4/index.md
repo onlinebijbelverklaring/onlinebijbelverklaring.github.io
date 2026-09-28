@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 4
+
 1. DAAROM, dewijl wij deze bediening hebben, naar de barmhartigheid die ons geschied is, zo vertragen wij niet;
 2. Maar wij hebben verworpen de bedekselen der schande, niet wandelende in arglistigheid, noch het Woord Gods vervalsende, maar door openbaring der waarheid onszelven aangenaam makende bij alle consciënties der mensen, in de tegenwoordigheid Gods.
 3. Doch indien ook ons Evangelie bedekt is, zo is het bedekt in degenen die verloren gaan;

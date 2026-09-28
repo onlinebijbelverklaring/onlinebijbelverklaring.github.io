@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Obadja 1
+
 1. Alzo zegt de Heere HEERE van Edom: Wij hebben een gerucht gehoord van de HEERE, en er is een gezant geschikt onder de heidenen: Staat op, en laat ons opstaan tegen hen ten strijde. 
 2. Ziet, Ik heb u klein gemaakt onder de heidenen, gij zijt zeer veracht. 
 3. De trotsheid uws harten heeft u bedrogen; hij, die daar woont in de kloven der steenrotsen, in zijn hoge woning; die in zijn hart zegt: Wie zou mij ter aarde nederstoten? 

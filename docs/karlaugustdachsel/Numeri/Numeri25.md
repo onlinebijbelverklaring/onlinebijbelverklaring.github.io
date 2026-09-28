@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 25
+
 AFGODERIJ EN HOERERIJ ERNSTIG BESTRAFT.
 
 ## I. Vers 1-18

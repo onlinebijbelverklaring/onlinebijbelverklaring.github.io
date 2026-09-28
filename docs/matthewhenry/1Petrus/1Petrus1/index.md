@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 1
+
 1. PETRUS, een apostel van JEZUS CHRISTUS, aan de vreemdelingen, verstrooid in Pontus, Galátië, Cappadócië, Azië en Bithynië,
 2. De uitverkorenen naar de voorkennis van God den Vader, in de heiligmaking des Geestes, tot gehoorzaamheid en besprenging des bloeds van Jezus Christus: Genade en vrede zij u vermenigvuldigd.
 3. Geloofd zij de God en Vader van onzen Heere Jezus Christus, Die naar Zijn grote barmhartigheid ons heeft wedergeboren tot een levende hoop, door de opstanding van Jezus Christus uit de doden;

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Mattheus 19
+
 OVER ECHTSCHEIDING, KINDEREN EN RIJKDOM.
 
 ## I. Vers 1-12

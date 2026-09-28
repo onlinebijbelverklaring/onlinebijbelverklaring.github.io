@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 13
+
 HEILIGING VAN DE EERSTGEBORENEN. VOORTZETTING VAN DE UITTOCHT.
 
 ## I. Vers 1-16 

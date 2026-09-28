@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Korinthe 13
+
 VOORTREFFELIJKHEID EN EIGENSCHAPPEN VAN DE LIEFDE
 
 #### b. Over de liefde, zonder welke het bezit van de geestelijke gaven zonder waarde is en welke een veel hoger goed is dan die alle.

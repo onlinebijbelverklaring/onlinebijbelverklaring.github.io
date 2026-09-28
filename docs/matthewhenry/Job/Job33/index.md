@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 33
+
 1. EN gewisselijk, o Job, hoor toch mijn redenen, en neem al mijn woorden ter ore.
 2. Zie nu, ik heb mijn mond opengedaan; mijn tong spreekt onder mijn gehemelte.
 3. Mijn redenen zullen de oprechtheid mijns harten, en de wetenschap mijner lippen, wat zuiver is, uitspreken.

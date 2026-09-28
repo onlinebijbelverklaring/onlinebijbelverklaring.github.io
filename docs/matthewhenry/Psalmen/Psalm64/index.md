@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 64
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. Hoor, o God, mijn stem in mijn geklag; behoed mijn leven voor des vijands schrik.
 3. Verberg mij voor den heimelijken raad der boosdoeners, voor de oproerigheid van de werkers der ongerechtigheid,

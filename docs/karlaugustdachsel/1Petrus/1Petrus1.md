@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Petrus 1
+
 OVER GODS GEESTELIJKE WELDADEN EN DE PLICHTEN VAN DE CHRISTENEN
 
 A. Aan het hoofd draagt deze brief, die nog iets vroeger geschreven is dan de tweede brief van Paulus aan Timotheus en de brief aan de Efeziërs, een opschrift, dat de briefschrijver noemt, alsmede hen, aan wie de brief is gericht en aan de laatsten de groet van de eersten aanbiedt 1Th 1: 1. De schrijver noemt echter zichzelf niet eenvoudig met zijn naam, maar denkt meteen aan zijn apostolische waardigheid. Ook voor hen, die de brief ontvangen, heeft hij behalve wat tot eenvoudig noemen dient, aanwijzigingen, die hun inwendige genadestaat nader karakteriseren en meteen het doel van het hele schrijven aangeven, op welk doel tevens de vorm van de groet wijst.

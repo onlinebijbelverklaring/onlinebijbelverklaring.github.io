@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 33
+
 1. Voorts sprak de HEERE tot Mozes: Ga heen, trek op van hier, gij en het volk, dat gij uit Egypteland opgevoerd hebt, naar het land, dat Ik Abraham, Izak en Jakob gezworen heb, zeggende: Aan uw zaad zal Ik het geven; 
 2. En Ik zal een Engel voor uw aangezicht zenden (en Ik zal uitdrijven de Kanaänieten, de Amorieten, en de Hethieten, en de Ferezieten, de Hevieten, en de Jebusieten), 
 3. Naar het land, dat van melk en honig is vloeiende; want Ik zal in het midden van u niet optrekken; want gij zijt een hardnekkig volk; dat Ik u op dezen weg niet vertere. 

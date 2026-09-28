@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Thessalonicenzen 2
+
 IJVERIGE TOEHOORDERS ZIJN VOOR TROUWE LERAARS EEN GROTE BLIJDSCHAP
 
 ## II. Vers 1-16

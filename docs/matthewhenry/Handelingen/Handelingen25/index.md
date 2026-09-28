@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 25
+
 1. FESTUS dan in de provincie gekomen zijnde, ging na drie dagen van Cesaréa op naar Jeruzalem.
 2. En de hogepriester en de voornaamsten der Joden verschenen voor hem tegen Paulus, en baden hem,
 3. Begerende gunst tegen hem, opdat hij hem zou doen komen te Jeruzalem; en leggende een lage om hem op den weg om te brengen.

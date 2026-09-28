@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 144
+
 1. EEN psalm van David. Gezegend zij de HEERE, mijn Rotssteen, Die mijn handen onderwijst ten strijde, mijn vingeren ten oorlog;
 2. Mijn Goedertierenheid en mijn Burcht, mijn hoog Vertrek en mijn Bevrijder voor mij; mijn Schild, en op Wien ik mij betrouwe; Die mijn volk aan mij onderwerpt.
 3. O HEERE, wat is de mens, dat Gij hem kent? Het kind des mensen, dat Gij het acht?

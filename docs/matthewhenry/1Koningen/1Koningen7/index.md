@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Koningen 7
+
 1. Maar aan zijn huis bouwde Salomo dertien jaren, en hij volmaakte zijn ganse huis. 
 2. Hij bouwde ook het huis des wouds van Libanon, van honderd ellen in zijn lengte, en vijftig ellen in zijn breedte, en dertig ellen in zijn hoogte, op vier rijen van cederen pilaren, en cederen balken op de pilaren. 
 3. En het was bedekt met ceder van boven op de ribben, die op vijf en veertig pilaren waren, vijftien in een rij. 

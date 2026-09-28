@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 48
+
 1. Het geschiedde nu na deze dingen, dat men Jozef zeide: Zie, uw vader is krank! Toen nam hij zijn twee zonen met zich, Manasse en Efraim! 
 2. En men boodschapte Jakob, en men zeide: Zie, uw zoon Jozef komt tot u! Zo versterkte zich Israel, en zat op het bed. 
 3. Daarna zeide Jakob tot Jozef: God de Almachtige, is mij verschenen te Luz, in het land Kanaän, en Hij heeft mij gezegend; 

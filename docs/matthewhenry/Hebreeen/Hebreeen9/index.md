@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 9
+
 1. ZO had dan wel ook het eerste verbond rechten van den godsdienst, en het wereldlijk heiligdom.
 2. Want de tabernakel was toebereid, namelijk de eerste, in welken was de kandelaar en de tafel en de toonbroden, welke genaamd wordt het heilige;
 3. Maar achter het tweede voorhangsel was de tabernakel, genaamd het heilige der heiligen,

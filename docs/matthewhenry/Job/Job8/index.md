@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 8
+
 1. TOEN antwoordde Bildad, de Suhiet, en zeide:
 2. Hoelang zult gij deze dingen spreken, en de redenen uws monds een geweldige wind zijn?
 3. Zou dan God het recht verkeren, en zou de Almachtige de gerechtigheid verkeren?

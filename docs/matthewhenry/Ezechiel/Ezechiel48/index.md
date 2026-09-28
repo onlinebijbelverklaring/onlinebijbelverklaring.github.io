@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 48
+
 1. DIT nu zijn de namen der stammen. Van het einde noordwaarts, aan de zijde des wegs van Hethlon, waar men komt te Hamath, Hazar-Enan, de landpale van Damascus, noordwaarts aan de zijde van Hamath (ook zal hij den ooster- en westerhoek hebben), zal Dan één snoer hebben.
 2. En aan de landpale van Dan, van den oosterhoek tot den westerhoek toe, Aser één.
 3. En aan de landpale van Aser, van den oosterhoek af tot den westerhoek toe, Naftali één.

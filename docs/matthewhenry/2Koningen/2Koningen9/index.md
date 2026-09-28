@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 9
+
 1. Toen riep de profeet Elisa een van de zonen der profeten, en hij zeide tot hem: Gord uw lenden, en neem deze oliekruik in uw hand, en ga heen naar Ramoth in Gilead. 
 2. Als gij daar zult gekomen zijn, zo zie, waar Jehu, de zoon van Jósafath, de zoon van Nimsi, is; en ga in, en doe hem opstaan uit het midden zijner broederen, en breng hem in een binnenste kamer. 
 3. En neem de oliekruik, en giet ze uit op zijn hoofd, en zeg: Zo zegt de HEERE: Ik heb u tot koning gezalfd over Israël. Doe daarna de deur open, en vlied, en vertoef niet. 

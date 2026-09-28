@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 15
+
 1. Na deze dingen geschiedde het woord des HEEREN tot Abram in een gezicht, zeggende: Vrees niet, Abram! Ik ben u een Schild, uw Loon zeer groot.
 2. Toen zeide Abram: Heere, HEERE! wat zult Gij mij geven, daar ik zonder kinderen heenga en de bezorgr van mijn huis is deze Damaskener Eliezer? 
 3. Voorts zeide Abram: Zie, mij hebt Gij geen zaad gegeven, en zie, de zoon van mijn huis zal mijn erfgenaam zijn! 

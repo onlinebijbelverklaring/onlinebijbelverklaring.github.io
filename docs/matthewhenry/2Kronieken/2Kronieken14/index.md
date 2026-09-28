@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 14
+
 1. Zo ontsliep Abia met zijn vaderen, en zij begroeven hem in de stad Davids, en zijn zoon Asa werd koning in zijn plaats. In zijn dagen was het land tien jaren stil. 
 2. En Asa deed dat goed en dat recht was in de ogen des HEEREN, zijns Gods. 
 3. Want hij nam de altaren der vreemden, en de hoogten weg, en brak de opgerichte beelden, en hieuw de bossen af. 

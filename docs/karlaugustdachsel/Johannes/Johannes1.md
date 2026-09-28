@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Johannes 1
+
 CHRISTUS’ PERSOON EN AMBT. ANDREAS, PETRUS, FILIPPUS EN NATHANAEL WORDEN ZIJN DISCIPELEN
 
 A. De evangelist begint met een proloog of voorwoord waardoor hij zijn lezers dadelijk op het verheven standpunt wil plaatsen, vanwaar de heiligste geschiedenis, die in de wereld is, moet worden beschouwd. Volgens Hoofdst. 20: 31 is toch datgene, dat in dit evangelie wordt meegedeeld, daartoe bestemd, dat de lezers leren geloven dat Jezus de Christus, de Zoon van God is en dat zij door het geloof het leven hebben in Zijn naam. In de eerste plaats moet dan ook een bewustzijn van de grootheid van Jezus’ persoon hun harten vervullen. Zo ergens, dan is hier van toepassing "trek uw voetzolen uit, want de plaats waar u staat, is heilig land" (Ex. 3: 5. Joz. 5: 15.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Korinthe 8
+
 1. VOORTS maken wij u bekend, broeders, de genade Gods die in de gemeenten van Macedónië gegeven is;
 2. Dat in veel beproeving der verdrukking de overvloed hunner blijdschap en hun zeer diepe armoede overvloedig geweest is tot den rijkdom hunner goeddadigheid.
 3. Want zij zijn naar vermogen (ik betuig het), ja, boven vermogen gewillig geweest,

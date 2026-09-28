@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 2
+
 1. En een Engel des HEEREN kwam opwaarts van Gilgal tot Bochim, en Hij zeide: Ik heb ulieden uit Egypte opgevoerd, en u gebracht in het land, dat Ik uw vaderen gezworen heb, en gezegd: Ik zal Mijn verbond met ulieden niet verbreken in eeuwigheid. 
 2. En ulieden aangaande, gij zult geen verbond maken met de inwoners dezes lands; hun altaren zult gij afbreken. Maar gij zijt Mijner stem niet gehoorzaam geweest; waarom hebt gij dit gedaan? 
 3. Daarom heb Ik ook gezegd: Ik zal hen voor uw aangezicht niet uitdrijven; maar zij zullen u aan de zijden zijn, en hun goden zullen u tot een strik zijn. 

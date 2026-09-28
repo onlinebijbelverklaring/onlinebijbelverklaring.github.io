@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Job 24
+
 1. WAAROM zouden van den Almachtige de tijden niet verborgen zijn, dewijl zij die Hem kennen, Zijn dagen niet zien?
 2. Zij tasten de landpalen aan; de kudde roven zij en weiden zij.
 3. Den ezel der wezen drijven zij weg; den os ener weduwe nemen zij te pand.

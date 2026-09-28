@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 9
+
 DE TABERNAKEL VAN HET VERBOND EN HET LEVITISCHE OFFER, EEN VOORAFSCHADUWING VAN HET HOGEPRIESTERLIJK AMBT VAN CHRISTUS
 
 ***1. Nu had dan wel, om thans op het punt dat in hoofdstuk 8: 4 aangehaald is, terug te komen, ook het eerste onder Mozes opgerichte verbond (hoofdstuk 8: 7 en 13), rechten van godsdienst, rechten betrekking hebbend op goddelijke instellingen (vs. 6) en het wereldlijk heiligdom (vs. 10), zoals zij overeenkwamen met het wereldlijk heiligdom dat voor de godsdienst gegeven was.***

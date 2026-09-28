@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Psalmen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK DER PSALMEN
 
 Wij hebben nu voor ons een der keurigste en voortreffelijkste delen van geheel het Oude Testament. Ja, er is in dit boek zoveel van Christus en Zijn Evangelie, zowel als van God en Zijn wet, dat men het een kort begrip, of wel de hoofdsom, van beide Testamenten genoemd heeft. 

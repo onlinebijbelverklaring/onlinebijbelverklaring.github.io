@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 33
+
 1. EN des HEEREN woord geschiedde tot mij, zeggende:
 2. Mensenkind, spreek tot de kinderen uws volks en zeg tot hen: Wanneer Ik het zwaard over enig land breng, en het volk des lands een man uit hun einden nemen en dien voor zich tot een wachter stellen,
 3. En hij het zwaard ziet komen over het land, en blaast met de bazuin en waarschuwt het volk,

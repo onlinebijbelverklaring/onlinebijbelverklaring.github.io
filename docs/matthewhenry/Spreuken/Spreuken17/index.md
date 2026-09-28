@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 17
+
 1. EEN droge bete en rust daarbij is beter dan een huis vol van geslachte beesten met twist.
 2. Een verstandig knecht zal heersen over een zoon die beschaamd maakt, en in het midden der broederen zal hij erfenis delen.
 3. De smeltkroes is voor het zilver en de oven voor het goud, maar de HEERE proeft de harten.

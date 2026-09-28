@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jesaja 62
+
 1. OM Sions wil zal ik niet zwijgen, en om Jeruzalems wil zal ik niet stil zijn, totdat haar Gerechtigheid voortkome als een glans, en haar Heil als een fakkel die brandt.
 2. En de heidenen zullen uw gerechtigheid zien, en alle koningen uw heerlijkheid; en gij zult met een nieuwen naam genoemd worden, welken des HEEREN mond uitdrukkelijk noemen zal.
 3. En gij zult een sierlijke kroon zijn in de hand des HEEREN, en een koninklijke hoed in de hand uws Gods.

@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# 2 Koningen
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET TWEEDE BOEK DER KONINGEN
 
 Dit tweede boek der Koningen, (hetwelk de Septuaginta, beginnende van Samuël, het vierde noemt) is een voortzetting van het vorige boek. Sommigen denken dat het had behoren aan te vangen met het 51ste vers van het vorige hoofdstuk, waar de regering van Ahazia begint. Het vorige boek had een luisterrijk begin in de glans en de heerlijkheid van het koninkrijk van Israël, toen het nog in zijn geheel was; dit heeft een treurig einde in de verwoesting, eerst van het rijk van Israël, en daarna in die van Juda, nadat zij reeds lang in tweeën waren verdeeld, want een koninkrijk, dat tegen zichzelf is verdeeld, kan niet bestaan. Maar gelijk Elia’s krachtige werken grotendeels de heerlijkheid uitmaakten van het eerste boek in het laatste gedeelte er van, zo zijn die van Elisa de heerlijkheid van dit boek aan het begin ervan. Deze profeten overtreffen in glans hun koningen. Wij hebben hier:

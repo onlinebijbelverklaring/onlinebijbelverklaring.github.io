@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Ezechiel 2
+
 1. EN Hij zeide tot mij: Mensenkind, sta op uw voeten en Ik zal met u spreken.
 2. Zo kwam in mij, als Hij tot mij sprak, de Geest, Die mij stelde op mijn voeten; en ik hoorde Dien Die tot mij sprak.
 3. En Hij zeide tot mij: Mensenkind, Ik zend u tot de kinderen Israëls, tot de rebellerende volken, die tegen Mij gerebelleerd hebben; zij en hun vaderen hebben overtreden tegen Mij tot op dezen zelven huidigen dag.

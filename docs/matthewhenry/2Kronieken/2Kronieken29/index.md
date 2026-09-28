@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 29
+
 1. Jehizkia werd koning, vijf en twintig jaren oud zijnde, en regeerde negen en twintig jaren te Jeruzalem; en de naam zijner moeder was Abia, een dochter van Zacharia. 
 2. En hij deed dat recht was in de ogen des HEEREN, naar alles, wat zijn vader David gedaan had. 
 3. Dezelve deed in het eerste jaar zijner regering, in de eerste maand, de deuren van het huis des HEEREN open, en beterde ze. 

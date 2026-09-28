@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 35
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, in de dagen van Jójakim, den zoon van Josía, den koning van Juda, zeggende:
 2. Ga heen tot der Rechabieten huis, en spreek met hen, en breng hen in des HEEREN huis, in een der kamers, en geef hun wijn te drinken.
 3. Toen nam ik Jaäzánja, den zoon van Jeremía, den zoon van Habazinja, mitsgaders zijn broederen en al zijn zonen, en het ganse huis der Rechabieten,

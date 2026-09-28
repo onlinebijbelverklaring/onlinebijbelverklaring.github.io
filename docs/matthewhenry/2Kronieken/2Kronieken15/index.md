@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Kronieken 15
+
 1. Toen kwam de Geest Gods op Azaria, de zoon van Oded. 
 2. En hij ging uit, Asa tegen, en hij zeide tot hem: Hoort mij, Asa, en gans Juda, en Benjamin! De HEERE is met ulieden, terwijl gij met Hem zijt; en zo gij Hem zoekt, Hij zal van u gevonden worden; maar zo gij Hem verlaat, Hij zal u verlaten. 
 3. Israël nu is vele dagen geweest zonder de waren God, en zonder een lerenden priester, en zonder de wet. 

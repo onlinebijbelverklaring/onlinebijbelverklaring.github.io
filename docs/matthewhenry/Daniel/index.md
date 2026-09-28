@@ -1,3 +1,9 @@
+---
+icon: lucide/book
+---
+
+# Daniel
+
 ## EEN VERKLARING MET PRAKTISCHE OPMERKINGEN VAN HET BOEK DANIËL
 
 Het boek Ezechiël liet Jeruzalem in een treurige toestand achter, geheel in puinhopen, maar met het blijde vooruitzicht op een vernieuwde heerlijkheid. Dit boek is er een gepast vervolg op.

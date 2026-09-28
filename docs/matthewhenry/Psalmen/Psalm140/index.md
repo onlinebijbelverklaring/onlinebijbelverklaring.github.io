@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 140
+
 1. EEN psalm van David, voor den opperzangmeester.
 2. Red mij, HEERE, van den kwaden mens; behoed mij voor den man alles gewelds;
 3. Die veel kwaad in het hart denken, allen dag samenkomen om te oorlogen.

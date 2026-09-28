@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 7
+
 OVER HET SCHULD- EN HET DANKOFFER.
 
 ***1. Dit is nu de wet van het schuldoffer, in zoverre dit de priester nog in het bijzonder aangaat: het is een Heiligheid der Heiligheden. Ook hiermee moet, zoals met hetzondoffer, in ieder opzicht op zeer heilige wijze gehandeld worden (Leviticus. 6:25).***

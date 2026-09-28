@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 3
+
 1. De slang nu was listiger dan al het gedierte des velds, hetwelk de HEERE God gemaakt had; en zij zeide tot de vrouw: Is het ook, dat God gezegd heeft: Gijlieden zult niet eten van allen boom dezes hofs? 
 2. En de vrouw zeide tot de slang: Van de vrucht der bomen dezes hofs zullen wij eten; 
 3. Maar van de vrucht des booms, die in het midden des hofs is, heeft God gezegd: Gij zult van die niet eten, noch die aanroeren, opdat gij niet sterft. 

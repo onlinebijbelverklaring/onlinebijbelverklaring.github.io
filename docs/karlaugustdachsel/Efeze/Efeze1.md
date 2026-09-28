@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Efeze 1
+
 DANKZEGGING VOOR DE GEESTELIJKE WELDADEN VAN GOD. GEBED OM VERMEERDERING VAN GELOOF
 
 A. De aanvang van de brief, die waarschijnlijk reeds in de zomer van het jaar 61 na Christus, dus snel na de aanvang van de gevangenschap van de apostel te Rome, van daar door Tychicus (Hoofdstuk 6: 21 v.) aan de gemeenten (Hand. 18: 31 en Aanh. 2 onder a 2) gezonden is, bevat alleen de aanspraak en de apostolische groet. De eerste heeft veel overeenkomst met die van de brief aan de Kolossensen; echter ontbreekt hier de naam van Timotheus, die daar ook genoemd is. Dit is een bewijs dat de beide brieven niet op dezelfde tijd zijn geschreven, hoe veelvuldig overigens gedachten en uitdrukkingen met elkaar overeenstemmen, zodat een lijst van bijna woordelijk gelijkluidende plaatsen zou kunnen worden gemaakt (vgl. het slotwoord op de brief aan de Kolossensen).

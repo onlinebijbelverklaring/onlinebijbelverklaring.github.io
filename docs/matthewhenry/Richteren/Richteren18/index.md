@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Richteren 18
+
 1. In die dagen was er geen koning in Israël; en in dezelve dagen zocht de stam der Danieten voor zich een erfenis om te wonen; want hun was tot op dien dag onder de stammen van Israël niet genoegzaam ter erfenis toegevallen. 
 2. Zo zonden de kinderen van Dan uit hun geslacht vijf mannen uit hun einden, mannen, die strijdbaar waren, van Zora en van Esthaol, om het land te verspieden, en dat te doorzoeken; en zij zeiden tot hen: Gaat, doorzoekt het land. En zij kwamen aan het gebergte van Efraim, tot aan het huis van Micha, en vernachtten aldaar. 
 3. Zijnde bij het huis van Micha, zo kenden zij de stem van de jongeling, de Leviet; en zij weken daarheen, en zeiden tot hem: Wie heeft u hier gebracht, en wat doet gij alhier, en wat hebt gij hier? 

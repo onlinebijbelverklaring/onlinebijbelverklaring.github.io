@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hebreeen 7
+
 VERGELIJKING VAN CHRISTUS MET MELCHIZEDEK
 
 ### B. Vers 1-28

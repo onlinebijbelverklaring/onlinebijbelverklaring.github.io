@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Leviticus 1
+
 1. En de HEERE riep Mozes, en sprak tot hem uit de tent der samenkomst, zeggende: 
 2. Spreek tot de kinderen Israëls, en zeg tot hen: Als een mens uit u de HEERE een offerande zal offeren, gij zult uw offeranden offeren van het vee, van runderen en van schapen. 
 3. Indien zijn offerande een brandoffer van runderen is, zo zal hij een volkomen mannetje offeren; aan de deur van de tent der samenkomst zal hij dat offeren, naar zijn welgevallen, voor het aangezicht des HEEREN. 

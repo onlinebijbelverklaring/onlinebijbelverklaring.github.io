@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 45
+
 JOZEF MAAKT ZICH AAN ZIJN BROEDERS BEKEND.
 
 ## I. Vers 1-15

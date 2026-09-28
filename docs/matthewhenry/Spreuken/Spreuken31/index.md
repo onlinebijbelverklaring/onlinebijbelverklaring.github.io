@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Spreuken 31
+
 1. DE woorden van den koning Lemuël; de last waarmede zijn moeder hem onderwees.
 2. Wat, o mijn zoon, en wat, o zoon mijns buiks; ja, wat, o zoon mijner geloften?
 3. Geef den vrouwen uw vermogen niet, noch uw wegen om koningen te verdelgen.

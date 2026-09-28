@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 14
+
 1. EN ik zag, en zie, het Lam stond op den berg Sion, en met Hem honderd vier en veertig duizend, hebbende den Naam Zijns Vaders geschreven aan hun voorhoofden.
 2. En ik hoorde een stem uit den hemel, als een stem veler wateren en als een stem van een groten donderslag. En ik hoorde een stem van citerspelers, spelende op hun citers;
 3. En zij zongen als een nieuw gezang voor den troon en voor de vier dieren en de ouderlingen; en niemand kon het gezang leren dan de honderd vier en veertig duizend, die van de aarde gekocht waren.

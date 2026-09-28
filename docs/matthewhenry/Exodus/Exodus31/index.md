@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Exodus 31
+
 1. Daarna sprak de HEERE tot Mozes, zeggende: 
 2. Zie, Ik heb met name geroepen Bezaleel, de zoon van Uri, de zoon van Hur, van de stam van Juda. 
 3. En Ik heb hem vervuld met de Geest Gods, met wijsheid, en met verstand, en met wetenschap, namelijk in alle handwerk; 

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 8
+
 1. Het geschiedde nu, toen Samuël oud geworden was, zo stelde hij zijn zonen tot richters over Israël. 
 2. De naam van zijn eerstgeborenen zoon nu was Joel, en de naam van zijn tweeden was Abia; zij waren richters te Ber-seba. 
 3. Doch zijn zonen wandelden niet in zijn wegen; maar zij neigden zich tot de gierigheid, en namen geschenken, en bogen het recht. 

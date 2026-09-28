@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 24
+
 1. EEN psalm van David.
 De aarde is des HEEREN, mitsgaders haar volheid, de wereld en die daarin wonen.
 2. Want Hij heeft ze gegrond op de zeeën, en heeft ze gevestigd op de rivieren.

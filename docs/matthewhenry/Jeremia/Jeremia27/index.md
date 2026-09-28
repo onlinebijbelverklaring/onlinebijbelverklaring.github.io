@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 27
+
 1. IN het begin des koninkrijks van Jójakim, zoon van Josía, koning van Juda, geschiedde dit woord tot Jeremía van den HEERE, zeggende:
 2. Alzo zeide de HEERE tot mij: Maak u banden en jukken, en doe die aan uw hals.
 3. En zend ze tot den koning van Edom, en tot den koning van Moab, en tot den koning der kinderen Ammons, en tot den koning van Tyrus, en tot den koning van Sidon; door de hand der boden die te Jeruzalem tot Zedekía, den koning van Juda, komen.

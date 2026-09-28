@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Titus 1
+
 WELKE PERSONEN HET PREDIKAMBT MOETEN BEDIENEN EN WAT HET AMBT VAN DE PREDIKERS IS
 
 A. Deze brief is waarschijnlijk aan Titus, die op Kreta was achtergelaten, door Paulus uit Efeze geschreven, na Paulus terugkeren van de reis in Hand. 19: 20 beschreven, snel na Pasen van het jaar 57. De aanvang heeft met die van de eerste brief aan Timotheus overeenkomst, niet alleen in de zegenwens, maar ook reeds in het opschrift. Het is hier echter uitgebreid op een wijze, dat veel meer over de persoon van de apostel gezegd is, dat slechts op dergelijke manier voorkomt in het opschrift boven de brief aan de Romeinen (Rom. 1: 1-6). Zonder twijfel deze uitbreiding heeft haar grond in de gemoedsstemming, waarin Paulus zijn brief begon en in de gezichtspunten, die hij Titus wilde openen, om hem de juiste verhouding aan te wijzen tot het hem opgedragen werken en hierin is nu menige behartigingwaardige wenk, tot verkrijging van een vast oordeel over de tijd, waarin de brief is geschreven, terwijl nergens elders onmiddellijke en zekere berichten daarover te vinden zijn.

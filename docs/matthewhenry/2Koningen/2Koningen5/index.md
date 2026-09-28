@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 2 Koningen 5
+
 1. Naäman nu, de krijgsoverste van de koning van Syrië, was een groot man voor het aangezicht zijns heren, en van hoog aanzien; want door hem had de HEERE de Syriërs verlossing gegeven; zo was deze man een strijdbaar held, doch melaats. 
 2. En er waren benden uit Syrië getogen, en hadden een kleine jonge dochter uit het land van Israël gevankelijk gebracht, die in de dienst der huisvrouw van Naäman was. 
 3. Deze zeide tot haar vrouw: Och, of mijn heer ware voor het aangezicht van de profeet, die te Samaria is, dan zou hij hem van zijn melaatsheid ontledigen. 

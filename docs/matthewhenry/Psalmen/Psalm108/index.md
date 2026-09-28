@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 108
+
 1. EEN lied, een psalm van David.
 2. O God, mijn hart is bereid; ik zal zingen en psalmzingen, ook mijn eer.
 3. Waak op, gij luit en harp, ik zal in den dageraad opwaken.

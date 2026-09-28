@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Hooglied 8
+
 1. OCH, dat Gij mij als een Broeder waart, zuigende de borsten mijner moeder! Dat ik U op de straat vond, ik zou U kussen, ook zouden zij mij niet verachten.
 2. Ik zou U leiden, ik zou U brengen in mijner moeders huis, Gij zoudt mij leren; ik zou U van specerijwijn te drinken geven, en van het sap van mijn granaatappelen.
 3. Zijn linkerhand zij onder mijn hoofd, en Zijn rechterhand omhelze mij.

@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Galaten 1
+
 1. PAULUS, een apostel (geroepen niet van mensen, noch door een mens, maar door JEZUS CHRISTUS, en God den Vader, Die Hem uit de doden opgewekt heeft),
 2. En al de broeders die met mij zijn, aan de gemeenten van Galátië:
 3. Genade zij u en vrede van God den Vader en onzen Heere Jezus Christus;

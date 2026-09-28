@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Jeremia 32
+
 1. HET woord dat tot Jeremía geschied is van den HEERE, in het tiende jaar van Zedekía, koning van Juda; dit jaar was het achttiende jaar van Nebukadrézar.
 2. (Het heir nu des konings van Babel belegerde toen Jeruzalem; en de profeet Jeremía was besloten in het voorhof der bewaring, dat in het huis des konings van Juda is.
 3. Want Zedekía, de koning van Juda, had hem besloten, zeggende: Waarom profeteert gij, zeggende: Zo zegt de HEERE: Zie, Ik geef deze stad in de hand des konings van Babel, en hij zal haar innemen;

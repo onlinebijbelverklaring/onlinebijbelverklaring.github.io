@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Genesis 13
+
 1. Alzo toog Abram op uit Egypte naar het zuiden, hij en zijn huisvrouw, en al wat hij had, en Lot met hem. 
 2. En Abram was zeer rijk, in vee, in zilver, en in goud. 
 3. En hij ging, volgens zijn reizen, van het zuiden tot Beth-el toe, tot aan de plaats, waar zijn tent in het begin geweest was, tussen Beth-el, en tussen Ai; 

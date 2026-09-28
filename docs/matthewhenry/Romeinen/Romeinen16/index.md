@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Romeinen 16
+
 1. EN ik beveel u Fébe, onze zuster, die een dienares is der gemeente die te Kenchreeën is;
 2. Opdat gij haar ontvangt in den Heere, gelijk het den heiligen betaamt, en haar bijstaat in wat zaak zij u zou mogen vandoen hebben; want zij is een voorstandster geweest van velen, ook van mijzelven.
 3. Groet Priscilla en Áquila, mijn medewerkers in Christus Jezus,

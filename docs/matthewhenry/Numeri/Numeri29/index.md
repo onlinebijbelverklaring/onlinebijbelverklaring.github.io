@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Numeri 29
+
 1. Desgelijks in de zevende maand, op de eersten der maand, zult gij een heilige samenroeping hebben; geen dienstwerk zult gij doen; het zal u een dag des geklanks zijn. 
 2. Dan zult gij een brandoffer, ten liefelijken reuk, de HEERE bereiden: een jongen var, een ram, zeven volkomen eenjarige lammeren; 
 3. En hun spijsoffer van meelbloem, met olie gemengd; drie tienden tot de var, twee tienden tot de ram. 

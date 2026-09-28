@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Handelingen 17
+
 1. EN door Amfípolis en Apollónia hun weg genomen hebbende, kwamen zij te Thessaloníca, alwaar een synagoge der Joden was.
 2. En Paulus, gelijk hij gewoon was, ging tot hen in, en drie sabbatten lang handelde hij met hen uit de Schriften,
 3. Dezelve openende, en voor ogen stellende, dat de Christus moest lijden en opstaan uit de doden, en dat deze Jezus is de Christus, Dien ik, zeide hij, ulieden verkondig.

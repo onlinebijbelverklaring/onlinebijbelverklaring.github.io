@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 73
+
 1. EEN psalm van Asaf. Immers is God Israël goed, dengenen die rein van hart zijn.
 2. Maar mij aangaande, mijn voeten waren bijna uitgeweken, mijn treden waren bijkans uitgeschoten.
 3. Want ik was nijdig op de dwazen, ziende der goddelozen vrede.

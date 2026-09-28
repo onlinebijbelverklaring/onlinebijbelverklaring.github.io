@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Johannes 3
+
 OVER DE HEERLIJKHEID, EIGENSCHAPPEN, LIJDEN EN VERTROOSTING VAN DE WARE CHRISTENEN
 
 ## III. Vers 1-12

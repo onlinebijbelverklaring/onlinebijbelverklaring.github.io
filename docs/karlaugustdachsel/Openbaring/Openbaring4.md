@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Openbaring 4
+
 HET TWEEDE GEZICHT VAN DE TROON VAN DE HEERLIJKHEID EN MAJESTEIT VAN DE VADER
 
 B. Johannes was met de aanvang van zijn werkzaamheid in Klein-Azië geplaatst aan het hoofd van de ontwikkeling van het Nieuw Testamentische Godsrijk, die niet meer, zoals die tijdens Petrus en Paulus, met Joden en heidenen tegelijk te doen had, maar uitsluitend op het planten en ontwikkelen van een Christelijke kerk uit de heidenen het oog had. In de hem gedicteerde brieven aan de zeven gemeenten in Klein-Azië had hij dus datgene, wat aanwezig is, met hetgeen zich met het verder tijdsverloop tot aan het einde daarin zou ontwikkelen, nu in handen en was hij daarmee voor zijn pastoraal patriarchale werkzaamheid, als hij die na de verbanning weer zou kunnen opnemen, door de Heere zelf geïnstrueerd. Wat hem nu in het bijzonder ter harte ging, was eensdeels het lot van zijn eigen volk, waartoe hij naar het vlees behoorde, hoe het stond met de toekomst ervan en met het einde van de verwerping, die er nu over kwam en aan de andere zijde het lot van de drie eerste van de zeven kerken, in de zeven gemeenten afgebeeld, die kerken het Oosten omvatten. Over beide krijgt hij vervolgens mededelingen. Over de eerste zaak in de gezichten van de zeven zegels en over de tweede in de gezichten van de zeven bazuinen, die in dit gedeelte van de Openbaring volgen, maar zo, dat dadelijk de zesde bazuin in het derde deel ingrijpt, dat zich daaraan het naast aansluit en tenslotte de zevende bazuin de hoofdinhoud van dit deel beheerst, maar hem daarmee ook mededeling wordt gegeven over de geschiedenis van de kerken, die door de vier laatste gemeenten worden afgebeeld.

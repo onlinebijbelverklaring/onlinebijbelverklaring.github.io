@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# Psalm 29
+
 1. EEN psalm van David. Geeft den HEERE, gij kinderen der machtigen, geeft den HEERE eer en sterkte.
 2. Geeft den HEERE de eer Zijns Naams; aanbidt den HEERE in de heerlijkheid des heiligdoms.
 3. De stem des HEEREN is op de wateren, de God der ere dondert; de HEERE is op de grote wateren.

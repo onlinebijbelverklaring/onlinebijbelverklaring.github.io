@@ -1,3 +1,9 @@
+---
+icon: lucide/file-text
+---
+
+# 1 Samuel 26
+
 1. De Zifieten nu kwamen tot Saul te Gibea, zeggende: Houdt zich David niet verborgen op de heuvel van Hachila, voor aan de wildernis? 
 2. Toen maakte zich Saul op, en toog af naar de woestijn Zif, en met hem drie duizend man, uitgelezenen van Israël, om David te zoeken in de woestijn Zif. 
 3. En Saul legerde zich op de heuvel van Hachila, die voor aan de wildernis is aan de weg, maar David bleef in de woestijn, en zag, dat Saul achter hem kwam naar de woestijn. 
