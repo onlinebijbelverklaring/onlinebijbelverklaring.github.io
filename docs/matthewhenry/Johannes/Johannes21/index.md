@@ -32,11 +32,11 @@ icon: lucide/file-text
 
 ## Inleiding
 
-De evangelist scheen zijn geschiedenis met het voorgaande hoofdstuk te hebben besloten; maar (zoals Paulus soms in zijn brieven), daar zich nieuwe stof aandiende, vangt hij opnieuw aan. Hij had gezegd dat Jezus nog vele andere tekenen gedaan had tot bewijs van zijn opstanding. En in dit hoofdstuk vermeldt hij één van die vele, namelijk Christus' verschijning aan enkelen van zijn discipelen aan de zee van Tiberias, waarvan wij hier het verslag hebben:
-I. Hoe Hij Zich aan hen openbaarde terwijl zij aan het vissen waren, hun net vulde, en daarna op zeer vertrouwelijke wijze kwam en met hen het maal hield van hetgeen zij gevangen hadden, Johannes 21:1-14.
-II. Wat gesprek Hij na het maal met Petrus had,
-1. Aangaande Zichzelf, Johannes 21:15-19.
-2. Aangaande Johannes, Johannes 21:20-23.
+De evangelist scheen zijn geschiedenis met het voorgaande hoofdstuk te hebben besloten; maar (zoals Paulus soms in zijn brieven), daar zich nieuwe stof aandiende, vangt hij opnieuw aan. Hij had gezegd dat Jezus nog vele andere tekenen gedaan had tot bewijs van zijn opstanding. En in dit hoofdstuk vermeldt hij één van die vele, namelijk Christus' verschijning aan enkelen van zijn discipelen aan de zee van Tiberias, waarvan wij hier het verslag hebben:  
+I. Hoe Hij Zich aan hen openbaarde terwijl zij aan het vissen waren, hun net vulde, en daarna op zeer vertrouwelijke wijze kwam en met hen het maal hield van hetgeen zij gevangen hadden, Johannes 21:1-14.  
+II. Wat gesprek Hij na het maal met Petrus had,  
+1. Aangaande Zichzelf, Johannes 21:15-19.  
+2. Aangaande Johannes, Johannes 21:20-23.  
 III. De plechtige besluiting van dit evangelie, Johannes 21:24, 25. Het is vreemd dat er enigen zouden menen dat dit hoofdstuk door een andere hand is toegevoegd, daar in vers 24 uitdrukkelijk gezegd wordt dat de discipel die Jezus liefhad, degene is die van deze dingen getuigt. 
 
 ## Johannes 21:1-14

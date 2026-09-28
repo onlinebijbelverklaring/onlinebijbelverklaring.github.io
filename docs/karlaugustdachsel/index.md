@@ -17,6 +17,6 @@ Zijn Bijbelverklaring schreef hij in zeven delen tussen 1862 en 1880. Als opzet 
 
 ## Beschikbaarheid
 
-Er wordt gewerkt om de bijbelverklaring online te zetten. De verwachting is dat dit in 2026 klaar zal zijn.
+Er wordt gewerkt om de bijbelverklaring online te zetten. De verwachting is dat dit in 2027 klaar zal zijn.
 
 <label for="file">Voortgang: 40/66 Bijbelboeken</label><progress id="file" value="40" max="66" style="width:80%; height:25px;"></progress>
