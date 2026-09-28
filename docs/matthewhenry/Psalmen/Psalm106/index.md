@@ -174,7 +174,7 @@ B. Toen werden zij aangevallen door hun vijanden, en daar hun schaduw van hen ge
 
 C. Als God hun enige verlichting schonk, gingen zij toch voort met hun zonden, en zo bleef dan ook hun benauwdheid aanhouden, vers 43. Dit verwijst naar de dagen van de richteren, toen God hun dikwijls verlossers verwekt heeft, maar toch vielen zij dan weer terug in de afgoderij, en verbitterden God door hun raad, hun afgodische daden, zodat zij God er toe brachten om hen aan de een of andere verdrukker over te leveren, zodat zij ten laatste om hun ongerechtigheid zeer naar de diepte werden gebracht. Zij, die zichzelf verkleinen en verlagen door de zonde, en zich niet door berouw willen verootmoedigen, worden rechtvaardig verlaagd en vernederd en door de oordelen Gods naar de diepte gebracht.
 
-D. Eindelijk riepen zij tot God, en toen is God in gunst tot hen wedergekeerd, vers 44-46. Zij werden gekastijd voor hun zonden, maar niet verdelgd, neergeworpen meer niet verstoten. God verscheen voor hen: 
+D. Eindelijk riepen zij tot God, en toen is God in gunst tot hen wedergekeerd, vers 44-46. Zij werden gekastijd voor hun zonden, maar niet verdelgd, neergeworpen maar niet verstoten. God verscheen voor hen: 
 
 a. Als een God van genade, die hun kommer aanzag. Hij zag hun benauwdheid aan, als Hij hun geschrei hoorde. Hij hoorde hun geschrei met medelijden, Exodus 3:7, en zag hun tergingen voorbij, want hoewel Hij gezegd had en reden had om het te zeggen, dat Hij hen wilde verdelgen, berouwde het Hem naar de veelheid van Zijn goedertierenheden, en vernietigde Hij het vonnis, hoewel Hij geen mens is dat het Hem berouwen zou, alsof Hij van zin veranderde, is Hij toch een genadig God, die zich over ons ontfermt, en dan Zijn wijze van doen verandert.
 

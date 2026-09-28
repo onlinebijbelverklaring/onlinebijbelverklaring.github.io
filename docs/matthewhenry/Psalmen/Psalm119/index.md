@@ -264,14 +264,14 @@ Hier is:
 ## Psalm 119:12 
 Hier:
 
-1\. Geeft David eer aan God: "Heere, Gij zijt gezegend. Gij zijt oneindig gelukzalig in Uzelf, en hebt mij en mijn diensten niet nodig, meer het behaagt U U er door geëerd te achten, help mij daarom, en neem mij dan aan." Al onze gebeden moeten met lofzeggingen vermengd zijn.
+1\. Geeft David eer aan God: "Heere, Gij zijt gezegend. Gij zijt oneindig gelukzalig in Uzelf, en hebt mij en mijn diensten niet nodig, maar het behaagt U U er door geëerd te achten, help mij daarom, en neem mij dan aan." Al onze gebeden moeten met lofzeggingen vermengd zijn.
 
 2\. Hij vraagt genade van God, "leer mij Uw inzettingen. Geef mij in alles mijn plicht te kennen en te doen. Gij zijt de bron van alle zegen en alle zaligheid, o laat mij die druppel hebben uit deze bron, deze zegen van die zaligheid. Leer mij Uw inzettingen, opdat ik moge weten hoe U te zegenen, die een gezegende God zijt, en opdat ik in U gezegend moge zijn." 
 
 ## Psalm 119:13-16 
 1\. David ziet terug met vertroosting op de eerbied, die hij het Woord Gods heeft bewezen. Hij had het getuigenis van zijn geweten: 
 
-a. Dat hij anderen gesticht had met hetgeen hem uit het Woord van God geleerd was, vers 3. Ik heb met mijn lippen verteld al de rechten Uws monds. Dit deed hij, niet alleen als koning, orders gevende en recht sprekende naar het Woord van God, noch alleen als profeet door zijn psalmen, maar in zijn gewone gesprekken. Aldus toonde hij hoe vervuld hij was van het Woord van God, en hoe fier hij was op zijn bekendheid er mede, want het is uit de overvloed des harten dat de mond spreekt. Aldus deed hij goed met zijn kennis, hij heeft Gods Woord niet verborgen voor anderen, maar heeft het tot hun behoeve weggelegd in zijn hart, en uit die goed schat zijns harten bracht hij goede dingen voort, zoals de heer des huizes, die uit zijn schat nieuwe en oude dingen voortbrengt. Zij, wier hart met het brood des levens gevoed is, behoren met hun lippen velen te voeden. Hij had gebeden, vers 12, dat God hem zou leren, en hier pleit hij bij God, zeggende, Heere, ik heb getracht een goed gebruik te maken van de kennis, die Gij mij gegeven hebt, vermeerder haar daarom," want wie heeft die zal gegeven worden.
+a. Dat hij anderen gesticht had met hetgeen hem uit het Woord van God geleerd was, vers 3. Ik heb met mijn lippen verteld al de rechten Uws monds. Dit deed hij, niet alleen als koning, orders gevende en recht sprekende naar het Woord van God, noch alleen als profeet door zijn psalmen, maar in zijn gewone gesprekken. Aldus toonde hij hoe vervuld hij was van het Woord van God, en hoe fier hij was op zijn bekendheid er mede, want het is uit de overvloed des harten dat de mond spreekt. Aldus deed hij goed met zijn kennis, hij heeft Gods Woord niet verborgen voor anderen, maar heeft het tot hun behoeve weggelegd in zijn hart, en uit die goede schat zijns harten bracht hij goede dingen voort, zoals de heer des huizes, die uit zijn schat nieuwe en oude dingen voortbrengt. Zij, wier hart met het brood des levens gevoed is, behoren met hun lippen velen te voeden. Hij had gebeden, vers 12, dat God hem zou leren, en hier pleit hij bij God, zeggende, Heere, ik heb getracht een goed gebruik te maken van de kennis, die Gij mij gegeven hebt, vermeerder haar daarom," want wie heeft die zal gegeven worden.
 
 b. Dat hij er zich in had verlustigd, "Heere, leer mij uw inzettingen, want ik begeer geen groter genot dan ze te kennen en waar te nemen vers 14. Ik heb me verheugd in de weg Uwer getuigenissen, heb mij verblijd in een gestadige gehoorzaamheid aan U, niet alleen in de bespiegelingen en geschiedenissen van Uw Woord, maar in de geboden ervan, en in de weg van ernstige Godsvrucht, die zij mij afbakenen, ik ben daar vrolijker in dan over allen rijkdom, meer dan ooit een wereldling vrolijk is over de toeneming van zijn rijkdom. In de weg van Gods geboden kan ik in waarheid zeggen: Ziel neem rust." In de ware Godsdienst is alle rijkdom, de onnaspeurlijke rijkdom van Christus.
 
@@ -436,7 +436,7 @@ Hier is:
 ## Psalm 119:39 
 Hier:
 
-1\. Bidt David tegen smaadheid, evenals tevoren, vers 22. David was zich bewust datgene gedaan te hebben, hetwelk de vijanden des Heeren grotelijks zou kunnen doen lasteren, zijn eigen eer zou kunnen verkleinen en tot versmaadheid zou kunnen zijn van zijn geslacht. En nu bidt hij dat het Gode, die aller mensen hart en tong in Zijn hand heeft, mocht behagen om dit te voorkomen, hem te verlosser van al zijn overtredingen en hem niet tot een smaad des dwazen te stellen, hetgeen hij vreesde, Psalm 39:9. Of wel, hij bedoelt de smaad, die zijn vijanden onrechtvaardig op hem geworpen hadden. Laat hun liegende lippen verstommen.
+1\. Bidt David tegen smaadheid, evenals tevoren, vers 22. David was zich bewust datgene gedaan te hebben, hetwelk de vijanden des Heeren grotelijks zou kunnen doen lasteren, zijn eigen eer zou kunnen verkleinen en tot versmaadheid zou kunnen zijn van zijn geslacht. En nu bidt hij dat het Gode, die aller mensen hart en tong in Zijn hand heeft, mocht behagen om dit te voorkomen, hem te verlossen van al zijn overtredingen en hem niet tot een smaad des dwazen te stellen, hetgeen hij vreesde, Psalm 39:9. Of wel, hij bedoelt de smaad, die zijn vijanden onrechtvaardig op hem geworpen hadden. Laat hun liegende lippen verstommen.
 
 2\. Hij pleit op de goedheid van Gods rechten. "Heere, Gij zijt gezeten op de troon, en Uw rechten zijn goed, rechtvaardig en vriendelijk voor hen, aan wie onrecht is geschied, en daarom beroep ik mij van de onrechtvaardige veroordeling van de mensen op U." Het is weinig om door de mensen geoordeeld te worden, terwijl Hij, die ons oordeelt, de Heere is. Of wel: "Uw woord en Uw wegen en Uw heilige Godsdienst zijn zeer goed, maar de smaadheden, op mij geworpen, zullen op hen vallen, en daarom Heere, wend ze af, laat in mij de Godsdienst niet gewond worden." 
 
@@ -451,7 +451,7 @@ Hier:
 Hier is:
 
 1\. Davids gebed om het heil des Heeren "Heere, Gij zijt mijn Zaligmaker, ik ben ellendig in mijzelf, ellendig en ongelukkig, en Gij alleen kunt mij gelukkig maken, laat Uw heil over mij komen, verhaast de tijdelijke verlossing uit mijn tegenwoordige benauwdheid, en spoed mij voort naar het eeuwig heil door er mij de hoedanigheden voor te geven en de troostrijke voorsmaak ervan." 
-2\. Davids vertrouwen op de genade en belofte van God voor dat heII. Dat zijn de twee pilaren, waarop onze hoop is gebouwd, en zij zullen ons niet begeven.
+2\. Davids vertrouwen op de genade en belofte van God voor dat heil. Dat zijn de twee pilaren, waarop onze hoop is gebouwd, en zij zullen ons niet begeven.
 
 a. De genade van God. Dat mij Uw goedertierenheden overkomen namelijk Uw heII. Ons heil moet toegeschreven worden aan Gods goedertierenheid, en niet aan enigerlei verdienste van onszelf. Het eeuwige leven moet verwacht worden als "de barmhartigheid van onze Heere Jezus Christus", Judas: 21 "Heere, door het geloof heb ik Uw goedertierenheden op het oog, laat mij door het gebed verkrijgen dat zij over mij komen." 
 
@@ -466,7 +466,7 @@ Hier is:
 
 2\. Zijn nederige belijdenis van het hart des oprechten, zonder hetwelk de tong van de geleerden, hoe nuttig die ook is voor anderen, ons van geen dienst zal zijn, 
 
-a. David berijdt zijn vertrouwen op God: "Heere, maak mij vaardig en machtig in de Schriften, want ik hoop op Uw rechten, op de rechten van Uw mond, en zo die niet gereed bij de hand zijn, dan is mijn steun, mijn bescherming van mij geweken.
+a. David belijdt zijn vertrouwen op God: "Heere, maak mij vaardig en machtig in de Schriften, want ik hoop op Uw rechten, op de rechten van Uw mond, en zo die niet gereed bij de hand zijn, dan is mijn steun, mijn bescherming van mij geweken.
 
 b. Hij spreekt zijn besluit uit om in de kracht van Gods genade in zijn plicht te volharden: "Zo zal ik Uw wet steeds onderhouden. Als ik Uw woord niet alleen in mijn hart, maar ook in mijn mond heb, dan zal ik doen al wat ik moet doen, volkomen wezen in al Uw wil." Aldus zal "de mens Gods volmaakt zijn, tot alle goed werk volmaakt toegerust", 2 Timotheüs 3:17, Coloss. 3:16. Merk op hoe hij besluit Gods wet te onderhouden: 
 
@@ -570,7 +570,7 @@ David had gezegd dat hij Gods woorden zal bewaren, vers 57, en het was wel gezeg
 ## Psalm 119:61 
 Hier is:
 
-1\. De boosaardigheid van Davids vijanden tegen hem, het waren goddelozen, die hem haatten om zijn Godsvrucht, er waren benden of troepen van tegen hem verbonden, zij deden hem al het kwaad dat zij konden, zij beroofden hem, gepoogd hebbende zijn goede naam weg te nemen, vers 51, hadden zij het nu op zijn bezittingen gemunt, en beroofden hem ervan, hetzij door plundering in tijd van oorlog, of door boeten en verbeurdverklaringen onder schijn van wet. Saul heeft waarschijnlijk zijn goederen in bezit genomen, Absalom nam bezit van zijn paleis, de Amalekieten plunderden Ziklag. Wereldse rijkdom is hetgeen waarvan wij beroofd kunnen worden. David kon hoewel hij een krijgsman was, de zijn niet behouden. Dieven breken door en stelen.
+1\. De boosaardigheid van Davids vijanden tegen hem, het waren goddelozen, die hem haatten om zijn Godsvrucht, er waren benden of troepen van tegen hem verbonden, zij deden hem al het kwaad dat zij konden, zij beroofden hem, gepoogd hebbende zijn goede naam weg te nemen, vers 51, hadden zij het nu op zijn bezittingen gemunt, en beroofden hem ervan, hetzij door plundering in tijd van oorlog, of door boeten en verbeurdverklaringen onder schijn van wet. Saul heeft waarschijnlijk zijn goederen in bezit genomen, Absalom nam bezit van zijn paleis, de Amalekieten plunderden Ziklag. Wereldse rijkdom is hetgeen waarvan wij beroofd kunnen worden. David kon hoewel hij een krijgsman was, de zijnen niet behouden. Dieven breken door en stelen.
 
 2\. Het getuigenis van Davids geweten voor hem dat hij, toen hij van alles beroofd was, aan zijn Godsdienst heeft vastgehouden, zoals Job gedaan heeft toen de benden van de Chaldeeën en de Sabeeërs hem beroofden. Nochtans heb ik Uw wet niet vergeten. Geen zorg of smart moet Gods Woord uit ons geheugen verdrijven of ons troostrijk genot erin verhinderen. En nooit moeten wij om enigerlei moeilijkheid, die wij op Gods wegen ondervinden, van die wegen te erger denken of vrezen dat wij ten laatste bij onze Godsdienst tekort zullen komen, al is het ook dat wij er thans verliezen door lijden.
 
@@ -838,7 +838,7 @@ c. Hij overtrof de ouden, hetzij die van zijn eigen tijd, evenals Elihu was hij 
 ## Psalm 119:101 
 Hier is:
 
-1\. Davids zorg om de wegen van de zonde te mijden, alk heb mijn voeten geweerd van alle kwade paden, waarheen zij op het punt waren af te wijken, maar ik weerhield mij en ging terug, zodra ik bemerkte dat ik in verzoeking kwam." Hoewel het een brede weg was, een groene weg, een aangename weg, een weg waar velen op wandelden, was het toch, daar het een zondige weg was, een kwade weg, en hij heeft er zijn voeten van geweerd, daar hij het einde van die weg voorzag. En zijn zorg was algemeen, hij schuwde elke kwade weg. "Door het woord Uwer lippen heb ik mij gewacht voor de paden des verdervers," Psalm 17:4.
+1\. Davids zorg om de wegen van de zonde te mijden, ik heb mijn voeten geweerd van alle kwade paden, waarheen zij op het punt waren af te wijken, maar ik weerhield mij en ging terug, zodra ik bemerkte dat ik in verzoeking kwam." Hoewel het een brede weg was, een groene weg, een aangename weg, een weg waar velen op wandelden, was het toch, daar het een zondige weg was, een kwade weg, en hij heeft er zijn voeten van geweerd, daar hij het einde van die weg voorzag. En zijn zorg was algemeen, hij schuwde elke kwade weg. "Door het woord Uwer lippen heb ik mij gewacht voor de paden des verdervers," Psalm 17:4.
 
 2\. Zijn zorg om op de weg van plicht gevonden te worden, opdat ik Uw woord zou onderhouden, en het nooit zou overtreden. Dat hij zich van zonde onthield, was: 
 
@@ -1280,7 +1280,7 @@ Hier is een bericht van het geluk van de Godvruchtigen, die bestuurd worden door
 ## Psalm 119:166 
 Hier is de gehele plicht van de mens, want er wordt ons geleerd:
 
-1\. Ons oog gericht te houden op Gods gunst als op ons doel: "O Heere, ik hoop op Uw heil, niet alleen tijdelijk, maar eeuwig heII. Daarop hoop ik als mijn geluk, mijn zaligheid, daar heb ik mijn schat in weggelegd. Ik hoop erop als het Uwe, als een heil, door U bereid, door U beloofd, en dat bestaat in bij U te zijn. De hoop hierop heeft mij opgeheven boven de wereld, en mij ondersteund en staande gehouden onder al de lasten ervan." 
+1\. Ons oog gericht te houden op Gods gunst als op ons doel: "O Heere, ik hoop op Uw heil, niet alleen tijdelijk, maar eeuwig heil. Daarop hoop ik als mijn geluk, mijn zaligheid, daar heb ik mijn schat in weggelegd. Ik hoop erop als het Uwe, als een heil, door U bereid, door U beloofd, en dat bestaat in bij U te zijn. De hoop hierop heeft mij opgeheven boven de wereld, en mij ondersteund en staande gehouden onder al de lasten ervan." 
 
 2\. Ons oog gericht te houden op God Woord als onze regel: ik doe Uw geboden. Ik leg er mij met mijn geweten op toe, om mij in alles te gedragen naar Uw wil. Merk hier op, hoe God deze twee samengevoegd heeft, en laat niemand ze willen scheiden. Wij kunnen niet op goede gronden hopen op Gods heil, tenzij wij er ons toe zetten om Zijn geboden te doen, Openbaring 22:14. Maar zij, die er in oprechtheid naar streven om Zijn geboden te doen, behoren goede hoop te koesteren op het heil, en die hoop zal het hart binden en ook verruimen om de geboden te doen. Hoe levendiger de hoop is, hoe opgewekter de gehoorzaamheid zal zijn.
 
@@ -1313,7 +1313,7 @@ Hier is:
 
 1\. Een grote gunst, die David van God verwacht, namelijk dat Hij hem Zijn inzettingen zal leren. Daar heeft hij in deze psalm dikwijls om gebeden, en er met onderscheidene argumenten op aangedrongen, nu hij tot het slot nadert van de psalm, spreekt hij er van als van iets, dat reeds toegestaan is. Zij, die op nederige wijze sterk aandringen bij God om Zijn genade, en met Jakob besluiten Hem niet te laten gaan tenzij Hij hen zegent met geestelijke zegeningen, kunnen nederig vertrouwen dat zij ten laatste verkrijgen zullen wat zij zo dringend begeren. De God Israëls zal hun geven hetgeen waar zij Hem om vragen.
 
-2\. Het dankbare besef, dat hij van die gunst belooft te zullen hebben. mijn lippen zullen Uw lof overvloedig uitstoffen, als Gij mij uw inzettingen zult geleerd hebben.
+2\. Het dankbare besef, dat hij van die gunst belooft te zullen hebben. mijn lippen zullen Uw lof overvloedig uitstorten, als Gij mij uw inzettingen zult geleerd hebben.
 
 a. Dan zal hij reden hebben om God te loven. Zij, die van God geleerd zijn, hebben zeer veel reden tot dankbaarheid, want dit is de grond van al deze geestelijke zegeningen, die de beste zegeningen zijn en het onderpand van de eeuwige zegeningen.
 

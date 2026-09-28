@@ -108,7 +108,7 @@ a. Hij was ontroerd in zijn gemoed vers 22, mijn hart is in het binnenste van mi
 
 b. Hij gevoelde zijn einde naderen, ik ga ineen gelijk een schaduw wanneer zij zich neigt, ik ben reeds zo goed als heengegaan. Het leven des mensen, op zijn best genomen, is als een schaduw, soms is het als de schaduw van de avond, de voorbode van de naderende nacht, als de schaduw wanneer zij zich neigt. 
 
-c. Hij was onvast, omgedreven als een sprinkhaan, zijn geest is dobberend, aarzelend, telkens zinnende clip nieuwe raadslagen, in zijn uitwendige toestand was geen vastheid, hij was als een veldhoen op de bergen.
+c. Hij was onvast, omgedreven als een sprinkhaan, zijn geest is dobberend, aarzelend, telkens zinnende op nieuwe raadslagen, in zijn uitwendige toestand was geen vastheid, hij was als een veldhoen op de bergen.
 
 d. Zijn lichaam was uitgeteerd, vers 24. mijn knieën struikelen door vasten hetzij door gedwongen vasten, uit gebrek aan voedsel toen hij vervolgd werd, of uit gebrek aan eetlust toen hij ziek was, of door vrijwillig vasten als hij zijn ziel kwelde met vasten, hetzij vanwege zonde, of uit droefheid, zijn eigene, of die van anderen, Psalm 35:19, 69:11. "Mijn vlees is vermagerd, zodat er geen vet aan is, het vet, dat het had, heeft het verloren, zodat ik een geraamte ben geworden er is niets aan mij dan vel en been." Maar het is beter deze magerheid te hebben in het lichaam, terwijl de ziel gezond is en welvaart dan magerheid te hebben in de ziel, terwijl het lichaam op allerlei goed onthaald wordt.
 

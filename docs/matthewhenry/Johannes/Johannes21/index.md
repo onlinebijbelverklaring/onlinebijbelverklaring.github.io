@@ -32,12 +32,12 @@ icon: lucide/file-text
 
 ## Inleiding
 
-The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that there were many other signs which Jesus did for the proof of his resurrection. And in this chapter he mentions one of these many, which was Christ's appearance to some of his disciples at the sea of Tiberias, in which we have an account:  
-I. How he discovered himself to them as they were fishing, filled their net, and then very familiarly came and dined with them upon what they had caught, John 21:1-14.  
-II. What discourse he had with Peter after dinner,   
-1. Concerning himself, John 21:15-19.  
-2. Concerning John, John 21:20-23.   
-III. The solemn conclusion of this gospel, John 21:24; John 21:25. It is strange that any should suppose that this chapter was added by some other hand, when it is expressly said (John 21:24) that the disciple whom Jesus loved is he which testifieth of these things.  
+De evangelist scheen zijn geschiedenis met het voorgaande hoofdstuk te hebben besloten; maar (zoals Paulus soms in zijn brieven), daar zich nieuwe stof aandiende, vangt hij opnieuw aan. Hij had gezegd dat Jezus nog vele andere tekenen gedaan had tot bewijs van zijn opstanding. En in dit hoofdstuk vermeldt hij één van die vele, namelijk Christus' verschijning aan enkelen van zijn discipelen aan de zee van Tiberias, waarvan wij hier het verslag hebben:
+I. Hoe Hij Zich aan hen openbaarde terwijl zij aan het vissen waren, hun net vulde, en daarna op zeer vertrouwelijke wijze kwam en met hen het maal hield van hetgeen zij gevangen hadden, Johannes 21:1-14.
+II. Wat gesprek Hij na het maal met Petrus had,
+1. Aangaande Zichzelf, Johannes 21:15-19.
+2. Aangaande Johannes, Johannes 21:20-23.
+III. De plechtige besluiting van dit evangelie, Johannes 21:24, 25. Het is vreemd dat er enigen zouden menen dat dit hoofdstuk door een andere hand is toegevoegd, daar in vers 24 uitdrukkelijk gezegd wordt dat de discipel die Jezus liefhad, degene is die van deze dingen getuigt. 
 
 ## Johannes 21:1-14
 

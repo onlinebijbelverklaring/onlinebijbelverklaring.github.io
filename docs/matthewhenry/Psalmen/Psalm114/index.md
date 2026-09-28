@@ -20,7 +20,7 @@ De verlossing van Israël uit Egypte heeft hun kerk en volk In het aanzijn geroe
 I. Dat zij uit de slavernij waren gebracht, vers 1.  
 II. Dat God Zijn tabernakel onder hen heeft opgericht, vers 2.  
 III. Dat de zee en de Jordaan voor hun aangezicht verdeeld werden, vers 3, 5.  
-IV. Dat de aarde beefde bij de wetgeving, toen God neerkwam op de berg Sinas, vers 4, 6, 7.  
+IV. Dat de aarde beefde bij de wetgeving, toen God neerkwam op de berg Sinaï, vers 4, 6, 7.  
 V. Dat God hun water gaf uit de rots, vers 8.  
 Bij het zingen van deze psalm moeten wij Gods macht en goedheid erkennen in hetgeen Hij voor Israël gedaan heeft, en het toepassen op het nog veel grotere wonderwerk, onze verlossing door Christus, en onszelf en anderen aanmoedigen om ook in de grootste benauwdheid op God te vertrouwen.
 

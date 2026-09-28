@@ -25,7 +25,7 @@ En evenzo in de meeste er van, zo niet in alle. Misschien zijn zij om een van de
 I. Hij bidt God hem te redden van het kwaad, dat door valse en boosaardige lieden tegen hem beraamd was, vers 1, 2.  
 II. Hij dreigt met de oordelen Gods tegen de zodanigen, vers 3, 4.  
 III. Hij klaagt over zijn boze naburen, die twistziek en kwellend waren, vers 5-7.  
-Bij het zingen van deze psalm kunnen we ons, als wij te eniger tijd onrechtvaardig de gesel gevoelen van de valse tong, er mee troosten, dat beteren dan we zijn er onder geleden hebben.
+Bij het zingen van deze psalm kunnen we ons, als wij te eniger tijd onrechtvaardig de gesel gevoelen van de valse tong, er mee troosten, dat beteren dan wij zijn er onder geleden hebben.
 
 ## Psalm 120:1-4 
 Hier is:
@@ -38,7 +38,7 @@ a. Door bij hem te liegen. Zij vleiden hem met betuigingen van vriendschap en be
 
 b. Door leugens te spreken van hem. Zij verzonnen valse beschuldigingen tegen hem, eisten van hem hetgeen hij niet wist. Dit is dikwijls het lot geweest, niet alleen van de onschuldigen, maar van de voortreffelijken van de aarde, die door valse lippen in grote benauwdheid waren gebracht, wier naam niet alleen beklad en hatelijk gemaakt werd in gesprekken, maar wier leven en alles wat hun dierbaar is in deze wereld in gevaar werd gebracht door valse getuigenissen voor het gericht. David is hierin een type geweest van Christus, die ook door valse lippen en bedrieglijke tongen belaagd is geworden.
 
-B. In deze benauwdheid nam hij door gelovig en vurig gebed de tolvlucht tot God, ik riep tot de Heere. Geen beschutting hebbende tegen bedrieglijke tongen, beriep Hij zich op Hem, die aller mensen harten in Zijn hand heeft, macht heeft over het geweten van slechte mensen, en, als het Hem behaagt, hun tong kan breidelen. Zijn gebed was: "O Heere, red mijn ziel van de valse lippen, opdat mijn vijanden door deze gevloekte methode niet mijn ondergang bewerken." Hij, die zo vurig gebeden had om voor valsheid bewaard te blijven, Psalm 119:29, en haar zo van harte haatte in zichzelf, vers 163, kon met te meer vertrouwen bidden om bewaard te blijven van door anderen belopen en belasterd te worden en voor de kwade gevolgen daarvan.
+B. In deze benauwdheid nam hij door gelovig en vurig gebed de toevlucht tot God, ik riep tot de Heere. Geen beschutting hebbende tegen bedrieglijke tongen, beriep Hij zich op Hem, die aller mensen harten in Zijn hand heeft, macht heeft over het geweten van slechte mensen, en, als het Hem behaagt, hun tong kan breidelen. Zijn gebed was: "O Heere, red mijn ziel van de valse lippen, opdat mijn vijanden door deze gevloekte methode niet mijn ondergang bewerken." Hij, die zo vurig gebeden had om voor valsheid bewaard te blijven, Psalm 119:29, en haar zo van harte haatte in zichzelf, vers 163, kon met te meer vertrouwen bidden om bewaard te blijven van door anderen belopen en belasterd te worden en voor de kwade gevolgen daarvan.
 
 C. Hij verkreeg een genaderijk antwoord op dit gebed, God verhoorde hem, zodat zijn vijanden, hoewel zij zeer ver waren gegaan in hun plannen, tenslotte werden teleurgesteld en niet bij machte waren om hem het kwaad te doen, dat zij tegen hem beraamd hadden. De God van de waarheid is de beschermer van Zijn volk tegen valse lippen, Psalm 37:6.
 
